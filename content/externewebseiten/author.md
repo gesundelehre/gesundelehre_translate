@@ -1,0 +1,1 @@
+<!--t externewebseiten t--> Hier füge ich externe Websites hinzu, um sie zum Download in der Downloads-Abschnitt und in der statischen Website verfügbar zu machen
