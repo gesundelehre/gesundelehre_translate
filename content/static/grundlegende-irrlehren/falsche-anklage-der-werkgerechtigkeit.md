@@ -7,7 +7,7 @@ Dies soll Helfen im Wirrwar zurechtzufinden, wenn so viele Irrlehrer einem einre
 - - -
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [evangelicaloutreach.org/workssalvation.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/workssalvation.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](/*TODO workssalvation auf github*/) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Nachfolgend die Übersetzung der Datei von [evangelicaloutreach.org/workssalvation.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/workssalvation.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-irrlehren/falsche-anklage-der-werkgerechtigkeit.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
 Source: [www.evangelicaloutreach.org/workssalvation.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/workssalvation.html)
 

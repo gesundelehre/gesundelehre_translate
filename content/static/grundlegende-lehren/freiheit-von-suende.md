@@ -6,7 +6,7 @@ Freiheit von Sünde
 - - - 
 - - - 
 
-# Nachfolgend die Übersetzung der Datei von [evangelicaloutreach.org/sin.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](/*TODO sin auf github*/) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Nachfolgend die Übersetzung der Datei von [evangelicaloutreach.org/sin.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-lehren/freiheit-von-suende.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
 Source: [www.evangelicaloutreach.org/sin.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)
 
