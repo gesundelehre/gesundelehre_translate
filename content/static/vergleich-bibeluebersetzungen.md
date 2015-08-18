@@ -90,8 +90,8 @@ Namely **crucial passages** have been changed / shortened / striked out. To illu
 - **Repentance**, **to take up your cross** and **to follow Jesus and obey him uncompromisingly** are being removed radically (Mt5,44; Mt9,13; Mk2,17; Mk10,21; Acts9,5-6; Acts17,30)
 - **e.g. in Romans 8,1 the crucial half part of the verse has been omitted**, that one can conclude easier, that one can continue to sin and nonetheless/still be saved. Anyway they want to promote "Faith alone", that means "without obedience". (Col3,6, Rev22,14) **To turn from sin and to turn cease from it/stop it as _CONDITION_ for the Salvation** (Jas2,20) is not desired, therefore they also create for themselves suitable bibletranslations. That forgiveness is also tied to conditions and is not unconditionally, is being eliminted/extirpated. (Verse Mk11,26 left away). In relation with that, room/space is being generated for the heresy of **Once Saved - Always Saved**  (1Joh3,1; 1Joh5,13)
 - **the Our-Father Prayer** has been shortened massively (Mt6,13; Lk11,2-4)
->>>>>>>>>>- Mit **Apostelgeschichte 8,37** wurde genau DER entscheidende Vers _weggelassen_, der die Kindertaufe verurteilen/verdammen würde. Die offizielle Kirche will an der Kindertaufe festhalten, deshalb hasst sie Apg8,37. Dass die Kindstaufe nicht berechtigt ist und Apg8,37 authentisch ist, sieht man daran, dass Mk16,16 genau dieselbe Botschaft aussagt.
->>>>>>>>>>- das **Malzeichen des Tieres** wurde in einem Vers in Offenbarung entfernt. (Off15,2) (Die Irrlehrer wollen einem übrigens weismachen, dass man das schon ruhig annehmen und dadurch nicht in die Hölle müsse - was aber in komplettem Widerspruch zu Off14,9-12 steht!)
+- With **Acts 8,37** THE crucial Vers has been _omitted_, which would damn infant-baptism. The official church wants to hold on to infant-baptism, that's why it hates Acts8,37. That the baptism of children is not warranted and Acts8,37 one can also see, because Mk16,16 is saying the same thing.
+- the **mark of the beast** has been taken away in a verse in revelation. (Rev15,2) (The false Teachers by the way want to make you believe, that you can take the mark of the beast easily and won't go to hell because of that - which is in total contradiction to Rev14,9-12!)
 - **Joseph is depicted as the father of Jesus** instead of God (Mk1,1, Lk2,33) therefore **Jesus is being degraded from the Son of God to a simple human** (Joh6,69; Joh9,35)
 - **Jesus is depicted / made into a liar**, in that one word is being left out (Joh7,8)
 - **Jesus is not being called a righteous person** (Mt27,24; Mk14,68)
@@ -104,17 +104,15 @@ Namely **crucial passages** have been changed / shortened / striked out. To illu
 - **they make, that the text contains contradictions/lies/false statements** (Mk1,2; Joh21,15; Acts13,19-20; Phil1,16-17)
 - the **Universalism-Heresey** ist being promoted (Rev21,24)
 
->>>>>>>Als allererstes empfehle ich einmal die sorgfältige Lektüre vom nachfolgend erwähnten Dokument von Rudolf Ebertshäuser (_Achtung, seiner Theologie kann ich nicht zustimmen_ (er lehrt die Erbsünde, absolute Abkehr von Sünde/Heiligung ist bei ihm deshalb nicht heilsnotwendig, da man laut der Lehre der Erbsünde gar nicht aufhören könnte zu sündigen)) 
+To start with I recommend the reading of the following mentioned Document of Rudolf Ebertshäuser (_Warning, I cannot agree with his doctrine_ (he teaches original sin, therefore absolute ceasing from sin is not salvation-relevant for him, because according to the teaching of original sin one cannot stop sinning))
 
->>>>>>Ein paar Dinge habe ich bereits auf dem [mindmap](mindmap) erwähnt. Für mehr Informationen konsultiere die Informationen von Rudolf Ebersthäuser und sein Vergleich der 300 wichtigsten Verse des Neuen Testamentes ([Open-Office-Format](files/bibeluebersetzungen/300_stellen_ebertshaeuser_deutsch_gesamte_tabelle.ods)/[als PDF](files/bibeluebersetzungen/300_stellen_ebertshaeuser_deutsch_gesamte_tabelle.pdf) oder [PDF von Rudolf Ebershäuser](files/bibeluebersetzungen/Rudolf_Ebertshaeuser_Liste_300_wichtige_veraenderungen_im_text_des_nt_B4-Liste-300-A4-2-1.pdf)), welche gravierende Unterschiede in den Bibelübersetzungen beinhalten, sehr empfehlenswert.
+I have already mentioned some things on the [mindmap](mindmap) (only in german so far). For more information please consult the comparison chart of the 300 most important biblevers-changes of the New Testament (the 300 verses were originally chosen by rudolf ebertshäuser - I put the chart into english) 
 
->>>>>Eine erweiterte Fassung auf Deutsch, sowie ein Vergleich der selbigen 300 Bibelverse in Englischen Übersetzungen ist bei mir in Arbeit. Hier die aktuellste Fassung der Vergleichs-Datei [als Open-Office-Datei](files/bibeluebersetzungen/Comparison_KingJames_Nestle_Aland_300_verses.ods)/[als PDF](files/bibeluebersetzungen/Comparison_KingJames_Nestle_Aland_300_verses.pdf)
+Here the most recent version of the bibletranslation-comparison-chart of the 300 verses [as Open-Office-File](files/bibeluebersetzungen/Comparison_KingJames_Nestle_Aland_300_verses.ods)/[as PDF](files/bibeluebersetzungen/Comparison_KingJames_Nestle_Aland_300_verses.pdf)
 
->>>>>>- Kurzübersicht und Kurzvergleich der 300 Verse & Hinweise auf Deutsch [im Open-Office-Format (unfertig)](files/bibeluebersetzungen/300_stellen_ebertshaeuser_deutsch_ohne_uebersetzungstabelle_deutsche_uebersetzungen_uebersicht.ods)/[als PDF (unfertig)](files/bibeluebersetzungen/300_stellen_ebertshaeuser_deutsch_ohne_uebersetzungstabelle_deutsche_uebersetzungen_uebersicht.pdf) (_man beachte die Registerkarten sowie die Legende_)
+The chart is on what horrifying differences the bibletranslations contain, very recommendable.
 
-
-
->>>>>>>Für jene die des griechischen mächtig sind, lade dir den griechische Grundtext (TR) nach Stephanus [als PDF](files/bibeluebersetzungen/tr_textus_receptus_stephanus.pdf) oder als theWord-Modul [.nt mit Akzenten](files/bibeluebersetzungen/free_from_copyright/tra.nt) / [.nt ohne Akzente](files/bibeluebersetzungen/free_from_copyright/tr.nt) herunter
+For those that know Greek, download the greek Text TR according to Stephanus [as PDF](files/bibeluebersetzungen/tr_textus_receptus_stephanus.pdf) or as theWord-Module [.nt with accents](files/bibeluebersetzungen/free_from_copyright/tra.nt) / [.nt without accents](files/bibeluebersetzungen/free_from_copyright/tr.nt)
 
 ## recommended Bible Versions
 - King James Version (without Apocryphes), [download the KJV directly here as Windows help-file (.chm)](files/bibeluebersetzungen/free_from_copyright/kjv.chm) or as a theWord-Module [.ont with Strongs-Nuumbers](files/bibeluebersetzungen/free_from_copyright/kjvstr.ont) / [.ont without Strongs-Numbers](files/bibeluebersetzungen/free_from_copyright/kjv1611.ont)
@@ -122,17 +120,10 @@ Namely **crucial passages** have been changed / shortened / striked out. To illu
 - (not fully checked yet, but looks good so far concerning the 300 Bible Verses in comparison to the TR/SCH2000/KJV: Tyndale-Bible [download as .ont-File](files/bibeluebersetzungen/free_from_copyright/tyndale.ont) / WBT / WEB)
 
 
->>>>>>>>## Bible Translations to refuse
-> Dass alle folgenden Bibelübersetzungen auf einem falschen Grundtext beruhen, werden dir allerdings die falschen Theologen NIE sagen, denn man will Geld damit machen und wenn man jemand anderes sein Geschäft kaputt macht (z.B. den Verlagshäusern), indem man für die Wahrheit einsteht, so macht man sich viele Feinde. Die Apostel bekamen auch dadurch Feinde, dass sie sich GEGEN den Götzendienst einsetzten. Denn mit dem Götzendienst wurde ein riesen Geschäft gemacht, und die Leute wollten u.A. nicht auf ihren Profit verzichten. (siehe Apg19,23ff).  
-Alle Apostel (ausser Johannes, ich rechne Judas Ischariot jetzt nicht mit) wurden übrigens getötet und starben eines nicht natürlichen Todes. Glaub mir, die wurden nicht einfach so getötet, sondern weil sie dem Satan und den bösen Menschen ein Dorn im Auge waren, weil sie gegen Lügen und Sünden aufstanden und dagegen predigten und nicht mitmachten beim Götzendienst - DESHALB wird man als Christ gehasst, weil man gegen die Sünde aufsteht und nicht mitmacht (Mt10,22; Joh15,20; 2Tim3,12 geschieht nicht einfach so). Aber da muss man durch, des gibt keinen einfacheren Weg ins Königreich Gottes (Mt7,13-14; Lk13,24; Apg14,22).  
-Weil mir die Wahrheit wichtig ist und dass Seelen gerettet werden können, deshalb kläre ich nun hier auch auf über die falschen Bibelübersetzungen, die man meiden sollte.
+## Bible Translations to refuse
+> The false theologians will NEVER tell you, that all the following bibletranslations are based upon a false original text, because they want to make profit/money with it and if you ruin someone elses business (e.g. the publishing houses) with that you stand up for the truth you will make yourself a lot of enemies. The apostles also got enemies because they were openly AGAINST idolatry. Because with idolatry a huge business was made and people among other things didn't want to do without their profit. (see Acts19,23 and following).  
+By the way, all the apostles (except John, I don't count Judas Ischariot now) have been killed and didn't die a natural death. Trust me, they weren't just killed without reason, but because they were a thorn in the side of Satan and evil men, becaues they stood up against lies and sins and preached against it adn didn't take part in the idolatry - THAT'S WHY one is being hated as a Christian, because one stands up against sin and doesn't take part therein (Mt10,22; Joh15,20; 2Tim3,12 doesn't just happen without reason). But you have to go through that, there's no other way into the kingdom of God (Mt7,13-14; Lk13,24; Acts14,22).  
+Because the truth is important to me and that souls can be saved, that's why I also inform about the false bibletranslations that you should avoid.
 
-------- Liste
-
--------------------------------------------------------
-
-
-
-For those that know Greek, download the greek Text TR according to Stephanus [as PDF](files/bibeluebersetzungen/tr_textus_receptus_stephanus.pdf) or as theWord-Module [.nt with accents](files/bibeluebersetzungen/free_from_copyright/tra.nt) / [.nt without accents](files/bibeluebersetzungen/free_from_copyright/tr.nt)
-
-Here the most recent version of the bibletranslation-comparison-chart of the 300 verses [as Open-Office-File](files/bibeluebersetzungen/Comparison_KingJames_Nestle_Aland_300_verses.ods)/[as PDF](files/bibeluebersetzungen/Comparison_KingJames_Nestle_Aland_300_verses.pdf)
+Here follows a list of bibletranslations which aren't recommendable:
+- ESV
