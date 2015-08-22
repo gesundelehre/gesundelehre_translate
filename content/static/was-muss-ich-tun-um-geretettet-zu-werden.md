@@ -6,9 +6,9 @@ Von dem wahren Plan der Errettung, dem wahren Evangelium
 - - - 
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [evangelicaloutreach.org/plan-of-salvation.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](/*TODO plan-of-salvation auf github*/) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/plan-of-salvation.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/was-muss-ich-tun-um-gerettet-zu-werden.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [www.evangelicaloutreach.org/plan-of-salvation.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)
+Quelle: [www.evangelicaloutreach.org/plan-of-salvation.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)
 
 # What Is The Gospel of Jesus Christ (The Plan of Salvation)
 ### Dan Corner
