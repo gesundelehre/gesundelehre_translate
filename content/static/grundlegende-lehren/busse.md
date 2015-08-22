@@ -1,4 +1,4 @@
-<!--t Von der wahren Busse - in Arbeit t-->
+<!--t Von der wahren Busse - in Arbeit (0% übersetzt) t-->
 <!--d Von der wahren Busse d-->
 
 Lehre der Busse

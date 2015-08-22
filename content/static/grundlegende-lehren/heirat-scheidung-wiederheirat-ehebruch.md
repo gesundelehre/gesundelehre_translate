@@ -1,4 +1,4 @@
-<!--t Von Heirat-Scheidung-Wiederheirat-Ehebruch - in Arbeit t-->
+<!--t Von Heirat-Scheidung-Wiederheirat-Ehebruch - in Arbeit (0% übersetzt) t-->
 <!--d Von Heirat-Scheidung-Wiederheirat-Ehebruch d-->
 
 Lehre bezüglich Heirat-Scheidung-Wiederheirat-Ehebruch
