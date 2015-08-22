@@ -6,9 +6,9 @@ Judaisierer: Tödlicher Galater-Irrtum wiedereingeführt (Teil 1)
 - - - 
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/galatianism.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/galatianism.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-irrlehren/judaisierer-toedlicher-galater-irrtum-wiedereingefuehrt-teil1.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/galatianism.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/galatianism.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-irrlehren/judaisierer-toedlicher-galater-irrtum-wiedereingefuehrt-teil1.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Quelle: [www.evangelicaloutreach.org/galatianism.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/galatianism.html)
+Quelle: [www.evangelicaloutreach.org/galatianism.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/galatianism.htm)
 
 # Deadly _Galatianism_ Reintroduced -
 
