@@ -6,7 +6,7 @@ Nachfolgend habe ich einen Test für dich, der du dich Christ **nennst** zusamme
 - - -
 Hier kommt der Glaubens-Test, damit man nicht wie jene falschen Christen in Mt7,21-23 in der Hölle endet:
 
-For now here I add a test in english: [![www.christiantest.org - check yourself!](http://gesundelehre.tk/forwarder.php?url=www.christiantest.org/CheckYourselfBanner.jpg)](http://www.christiantest.org)
+For now here I add a test in english: [![www.christiantest.org - check yourself!](../files/pictures/christiantest.org_logo.png)](http://gesundelehre.tk/forwarder.php?url=http://www.christiantest.org)
 - - -
 
 ###So, falls du den Test bestanden hast...
