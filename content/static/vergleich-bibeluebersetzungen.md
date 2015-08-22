@@ -12,10 +12,10 @@ Mach dich auf etwas gefasst bei der Lektüre der folgenden Zeilen / Dateien. Ich
 
 - **Fasten (in Zusammenhang mit Gebet) und auch wachen/nüchtern sein** wurde weniger wichtig dargestellt (Mt17,21; Mt25,13; Mk9,29; Mk13,33; Apg10,30)
 - **Ehebruch und Mord** werden als weniger schlimm dargestellt, indem man die Worte z.B. einfach aus Galater5,19-21 entfernt hat. Dass es Ehebruch ist, wenn man jemanden geschiedenes heiratet, wird weggelassen (Mt19,9), **Unzucht** wird weggelassen (Röm1,29), **Habsucht** wird weniger schlimm dargestellt resp. man will keine Spaltungen (1Tim6,5)
-- **die biblische Lehre von der Hölle und vom ewigen Feuersee** wurde in gravierendem Massstab entfernt (Mk9,44; Mk9,45-46; 
+- **die biblische Lehre von der Hölle und vom ewigen Feuersee** wurde entfernt (Mk9,44; Mk9,45-46) 
 - dass **Ehe zwischen einem MANN und einer FRAU** ist wurde entfernt. Es wird ein Schlupfloch für Homosexualität gelassen (Mk10,6-7)
-- **Busse tun**, **sein Kreuz auf sich nehmen** und **Jesus kompormisslos nachfolgen und gehorchen** werden rigoros entfernt (Mt5,44; Mt9,13; Mk2,17; Mk10,21; Apg9,5-6; Apg17,30)
-- **in Römer 8,1 wurde z.B. der entscheidende halbe Vers weggelassen**, damit man besser schlussfolgern kann, dass man weiterhin sündigen und trotzdem gerettet sein kann. Überhaupt will man "Glaube allein", also "ohne Gehorsam" fördern. (Kol3,6, Off22,14) **Von der Sünde abwenden und damit aufhören müssen, als _BEDINGUNG_ für die Errettung** (Jak2,20) ist nicht gewünscht, daher schafft man sich auch passende Bibelübersetzungen... Dass Vergebung an Bedingungen geknüpft ist und nicht bedingungslos ist, wird ausgemerzt (Vers Mk11,26 weggelassen). Im Zusammenhang damit wird **Raum geschaffen für die "Einmal gerettet - Immer gerettet"-Irrlehre**  (1Joh3,1; 1Joh5,13)
+- **Busse tun**, **sein Kreuz auf sich nehmen** und **Jesus kompromisslos nachfolgen und gehorchen** werden rigoros entfernt (Mt5,44; Mt9,13; Mk2,17; Mk10,21; Apg9,5-6; Apg17,30)
+- **in Römer 8,1 wurde z.B. der entscheidende halbe Vers weggelassen**, damit man besser schlussfolgern kann, dass man weiterhin sündigen und trotzdem gerettet sein kann. Überhaupt will man "Glaube allein", also "ohne Gehorsam" fördern. (Kol3,6, Off22,14) **Von der Sünde abwenden und damit aufhören müssen, als _BEDINGUNG_ für die Errettung** (Jak2,20 (siehe Anmerkung 1)) ist nicht gewünscht, daher schafft man sich auch passende Bibelübersetzungen... Dass Vergebung an Bedingungen geknüpft ist und nicht bedingungslos ist, wird ausgemerzt (Vers Mk11,26 weggelassen). Im Zusammenhang damit wird **Raum geschaffen für die "Einmal gerettet - Immer gerettet"-Irrlehre**  (1Joh3,1; 1Joh5,13)
 - **das Vater-unser Gebet** wurde massiv verkürzt (Mt6,13; Lk11,2-4)
 - Mit **Apostelgeschichte 8,37** wurde genau DER entscheidende Vers _weggelassen_, der die Kindertaufe verurteilen/verdammen würde. Die offizielle Kirche will an der Kindertaufe festhalten, deshalb hasst sie Apg8,37. Dass die Kindstaufe nicht berechtigt ist und Apg8,37 authentisch ist, sieht man daran, dass Mk16,16 genau dieselbe Botschaft aussagt.
 - das **Malzeichen des Tieres** wurde in einem Vers in Offenbarung entfernt. (Off15,2) (Die Irrlehrer wollen einem übrigens weismachen, dass man das schon ruhig annehmen und dadurch nicht in die Hölle müsse - was aber in komplettem Widerspruch zu Off14,9-12 steht!)
@@ -31,6 +31,8 @@ Mach dich auf etwas gefasst bei der Lektüre der folgenden Zeilen / Dateien. Ich
 - **man macht, dass der Text Widersprüche/Lügen/falsche Aussagen enthält** (Mk1,2; Joh21,15; Apg13,19-20; Phil1,16-17)
 - die **Allversöhnugs-Irrlehre** wird gefördert (Off21,24)
 
+_ Anmerkung 1_ :  siehe auch Sprüche28,13; Hesekiel18,30-32; Jesaja55,7-8
+
 Als allererstes empfehle ich einmal die sorgfältige Lektüre vom nachfolgend erwähnten Dokument von Rudolf Ebertshäuser (_Achtung, seiner Theologie kann ich nicht zustimmen_ (er lehrt die Erbsünde, absolute Abkehr von Sünde/Heiligung ist bei ihm deshalb nicht heilsnotwendig, da man laut der Lehre der Erbsünde gar nicht aufhören könnte zu sündigen)) 
 
 Ein paar Dinge habe ich bereits auf dem [mindmap](mindmap) erwähnt. Für mehr Informationen konsultiere die Informationen von Rudolf Ebersthäuser und sein Vergleich der 300 wichtigsten Verse des Neuen Testamentes ([Open-Office-Format](files/bibeluebersetzungen/300_stellen_ebertshaeuser_deutsch_gesamte_tabelle.ods)/[als PDF](files/bibeluebersetzungen/300_stellen_ebertshaeuser_deutsch_gesamte_tabelle.pdf) oder [PDF von Rudolf Ebershäuser](files/bibeluebersetzungen/Rudolf_Ebertshaeuser_Liste_300_wichtige_veraenderungen_im_text_des_nt_B4-Liste-300-A4-2-1.pdf)), welche gravierende Unterschiede in den Bibelübersetzungen beinhalten, sehr empfehlenswert.
@@ -41,14 +43,15 @@ Eine erweiterte Fassung auf Deutsch, sowie ein Vergleich der selbigen 300 Bibelv
 
 
 
-Für jene die des griechischen mächtig sind, lade dir den griechische Grundtext (TR) nach Stephanus [als PDF](files/bibeluebersetzungen/tr_textus_receptus_stephanus.pdf) oder als theWord-Modul [.nt mit Akzenten](files/bibeluebersetzungen/free_from_copyright/tra.nt) / [.nt ohne Akzente](files/bibeluebersetzungen/free_from_copyright/tr.nt) herunter
+Für jene die des griechischen mächtig sind, lade dir den griechische Grundtext (TR) nach Stephanus [als PDF ohne Morphologische Informationen](files/bibeluebersetzungen/tr_textus_receptus_stephanus.pdf)/[als PDF mit Morphologischen Informationen](files/bibeluebersetzungen/Greek-New_Testament_Stephanus_Textus_Receptus_1550_with_morphological_data.pdf) oder als theWord-Modul [.nt mit Akzenten](files/bibeluebersetzungen/free_from_copyright/tra.nt) / [.nt ohne Akzente](files/bibeluebersetzungen/free_from_copyright/tr.nt) herunter
 
 ## empfehlenswerte Bibelübersetzungen
 - Luther von 1545 (Direkt herunterladen [.pdf](files/bibeluebersetzungen/free_from_copyright/luther1545.pdf) / [.epub](files/bibeluebersetzungen/free_from_copyright/luther1545.epub) / [.txt](files/bibeluebersetzungen/free_from_copyright/luther1545.txt) / [.mobi](files/bibeluebersetzungen/free_from_copyright/luther1545.mobi))  bis 1912 (1515 mit neuer Rechtschreibung bevorzugen)
-- Schlachter 2000
-- Jantzen-NT (nach dem Stephanus-TR-Text) + Psalmen + Sprüche -
-- alte Elberfelder? `noch abklären`
-- alte Zürcher bis 193(1?) `noch abklären`
+- Schlachter 2000 (kann auf der [Seite von sermon-online.de](http://www.sermon-online.de/search.pl?lang=de&id=2504&title=&biblevers=&searchstring=&author=0&language=0&category=0&play=0&tm=2) legal heruntergeladen werden (obwohl sie selbst ein Copyright hat) <!-- ([Direktlink dortin](http://bitimage.dyndns.org/german/Schlachter2000AlteRechtschreibung/Schlachter2000.pdf)) -->
+- Jantzen-NT (nach dem Stephanus-TR-Text) + Psalmen + Sprüche (siehe server von cd-mission)
+- alte Zürcher bis zur Revision von 1931 ([NT von 1860 als PDF](http://www.gesundelehre.tk/forwarder.php?url=http://martin-arhelger.de/bibel/zuercher.pdf)) (sehr nach TR, siehe Vergleichstabelle)
+- Johannes Piscator 1755 ([NT](http://gesundelehre.tk/forwarder.php?url=http://martin-arhelger.de/bibel/piscator3.pdf), [AT Teil1](http://gesundelehre.tk/forwarder.php?url=http://martin-arhelger.de/bibel/piscator1.pdf), [AT Teil2](http://gesundelehre.tk/forwarder.php?url=http://martin-arhelger.de/bibel/piscator2.pdf)) (sehr nach TR, siehe Vergleichstabelle)
+- alte Elberfelder? `(noch abklären, wie gut die Übersetzung wirklich ist)`
 
 
 ## abzulehnende Bibelübersetzungen
@@ -112,7 +115,7 @@ Here the most recent version of the bibletranslation-comparison-chart of the 300
 
 The chart is on what horrifying differences the bibletranslations contain, very recommendable.
 
-For those that know Greek, download the greek Text TR according to Stephanus [as PDF](files/bibeluebersetzungen/tr_textus_receptus_stephanus.pdf) or as theWord-Module [.nt with accents](files/bibeluebersetzungen/free_from_copyright/tra.nt) / [.nt without accents](files/bibeluebersetzungen/free_from_copyright/tr.nt)
+For those that know Greek, download the greek Text TR according to Stephanus [as PDF without morphological data](files/bibeluebersetzungen/tr_textus_receptus_stephanus.pdf) / [as PDF with morphological data](files/bibeluebersetzungen/Greek-New_Testament_Stephanus_Textus_Receptus_1550_with_morphological_data.pdf) or as theWord-Module [.nt with accents](files/bibeluebersetzungen/free_from_copyright/tra.nt) / [.nt without accents](files/bibeluebersetzungen/free_from_copyright/tr.nt)
 
 ## recommended Bible Versions
 - King James Version (without Apocryphes), [download the KJV directly here as Windows help-file (.chm)](files/bibeluebersetzungen/free_from_copyright/kjv.chm) or as a theWord-Module [.ont with Strongs-Nuumbers](files/bibeluebersetzungen/free_from_copyright/kjvstr.ont) / [.ont without Strongs-Numbers](files/bibeluebersetzungen/free_from_copyright/kjv1611.ont)
