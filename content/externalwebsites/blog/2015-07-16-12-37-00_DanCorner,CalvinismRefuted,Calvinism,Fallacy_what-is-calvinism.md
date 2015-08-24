@@ -276,7 +276,8 @@ God bless you. Heb. 3:14.
 
 ![Calvinism is a LIE](../../files/pictures/a-colorb.gif)
 
-[**Eternal Security or Conditional Security**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html) 
+- [**Eternal Security or Conditional Security**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html) 
+
 [**Contact or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 [**Support Evangelical Outreach**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/support.html)

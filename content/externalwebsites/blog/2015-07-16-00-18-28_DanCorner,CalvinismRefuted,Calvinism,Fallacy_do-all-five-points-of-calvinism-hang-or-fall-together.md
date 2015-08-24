@@ -47,24 +47,27 @@ In 1980, the year of Edwin H. Palmer's death, an enlarged edition of this same b
 
 **It should be obviously that any Calvinist, including five point Calvinist Edwin H. Palmer, is wrong theologically, since they all believe in those mythical dogmas!**
 
-<center>![five points of calvinism](../../files/pictures/006.gif)</center>
+![five points of calvinism](../../files/pictures/006.gif)</center>
 
 
-**[<font color="blue">Religious Deception</font>](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/religious-deception.html)**
+- **[Religious Deception](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/religious-deception.html)**
 
-**[<font color="blue">Was Johanna Michaelsen Really A Christian Spirit Medium</font>](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johanna-michaelsen-beautiful-side-of-evil.htm)**
+- **[Was Johanna Michaelsen Really A Christian Spirit Medium](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johanna-michaelsen-beautiful-side-of-evil.htm)**
 
-**[<font color="blue">Are All Sins Equal (James 2:10)</font>](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/james210.htm)**
+- **[Are All Sins Equal (James 2:10)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/james210.htm)**
 
-**[<font color="blue">Imputed Righteousness and Eternal Security</font>](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/esimputedrighteousness.html)**
+- **[Imputed Righteousness and Eternal Security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/esimputedrighteousness.html)**
 
 **[Evangelical Outreach](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)**
 
-**www.EvangelicalOutreach.org 
-www.EternalLifeBlog.com**
+**www.EvangelicalOutreach.org**
 
-<center>**[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**</center>
+**www.EternalLifeBlog.com**
 
-**<font size="5">Evangelical Outreach
-</font> PO Box 265
- Washington, PA 15301**
+**[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**</center>
+
+**Evangelical Outreach**
+
+**PO Box 265**
+ 
+**Washington, PA 15301**
