@@ -4,5 +4,5 @@
 Hier kommt dann Inhalt bezüglich Evangelisation:
 
 - Traktate
-- Freiluftpredigen
+- [Umfassende Informationen zum Thema Freiluftpredigen](freiluftpredigen) (Geschichtlicher Abriss, Botschaft, Altes Testament, Neues Testament)
 - Tipps zur Argumentation / Apologetik
