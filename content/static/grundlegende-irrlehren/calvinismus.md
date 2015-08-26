@@ -5,11 +5,11 @@
 Hier folgt eine Abhandlung darüber, weshalb der Calvinismus eine Irrlehre ist.
 
 T.U.L.I.P. ist ein Akronym für den Calvinismus und steht für:  
-**T**otal Depravity = Totale Verderbtheit (mit andern Worten die Lehre der Erbsünde)
-**U**nconditional Election  = bedingungslose Erwählung
-**L**imited Atonement  = limitiertes Sühneopfer (von Jesus)
-**I**rresistible Grace  = unwiderstehliche Gnade
-**P**erseverance of the Saints  = ?(to-do)? der Gläubigen
+**T**otal Depravity = Völlige/Totale Verderbtheit [mit andern Worten die Lehre der Erbsünde]
+**U**nconditional Election  = bedingungslose Erwählung (unfähig, für Gott empfänglich zu sein, bekannt als radikale Verderbtheit) [Gott verfügt souverän über die Erlösung, die nur für die Auserwählten gilt]
+**L**imited Atonement  = beschränktes/limitiertes Sühneopfer (von Jesus) [Christus starb nur für die Auserwählten; alle anderen sind auf ewig verdammt, selbst die nicht auserwählten Säuglinge]
+**I**rresistible Grace  = unwiderstehliche Gnade [nur die Auserwählten, für die Christus starb, können der Gnade nicht widerstehen]
+**P**erseverance of the Saints  = Beharrlichkeit der Gläubigen [auf ewig sicher, ungeachtet der Verantwortung oder Notwendigkeit für Gerechtigkeit]
 
 ### Der Calvinismus ist nichts Neues
 Prediger 1,9: "Was ist gewesen? Das, was sein wird! Und was hat man gemacht? Das, was man machen wird! Und es gibt nichts Neues unter der Sonne." (Schlachterbibel 1951)
@@ -17,15 +17,16 @@ Die Lehre des Calvinismus bzw. die Lehre der totalen Verderbtheit kam schon frü
 Die [Westminster-Confession](to-do) ist DAS Calvinisten-Bekenntnis.
 
 ## Die einzelnen Punkte der Reihe nach widerlegt
-### **T**otal Depravity
+### **T**otal Depravity / völlige Verderbtheit 
 
-### **U**nconditional Election
+### **U**nconditional Election / bedingungslose Erwählung 
 
-### **L**imited Atonement
+### **L**imited Atonement / beschränkte Sühnung 
 
-### **I**rresistible Grace
+### **I**rresistible Grace / unwiderstehliche Gnade
 
-### **P**erseverance of the Saints
+### **P**erseverance of the Saints / Beharrlichkeit
+
 
 - - -
 - - -
