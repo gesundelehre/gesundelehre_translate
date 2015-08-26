@@ -1,10 +1,5 @@
-<!--fi  fi-->
-
-<!--vid  vid-->
-
 <!--t Freed From Sin Addictions - Romans 6 t-->
 <!--d Freed From Sin Addictions, Romans 6  By Dan Corner  Source  www.evangelicaloutreach.org romans6.htm    Freed From Sin Addictions (pdf)        Does d-->
-<!-- updated on 2015-08-16 completely finished2 -->
 
 Source: [www.evangelicaloutreach.org/romans6.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)
 

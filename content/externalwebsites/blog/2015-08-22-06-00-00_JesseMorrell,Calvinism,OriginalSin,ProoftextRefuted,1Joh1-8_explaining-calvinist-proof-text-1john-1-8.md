@@ -1,3 +1,6 @@
+<!--t Explaining Calvinist Proof Text 1 John 1:8 t-->
+<!--d Source https biblicaltruthresources.wordpress.com 2013 03 19 explaining-calvinist-proof-text-1-john-18 Explaining Calvinist Proof Text 1 John 1 8 A d-->
+
 Source: [https://biblicaltruthresources.wordpress.com/2013/03/19/explaining-calvinist-proof-text-1-john-18/](http://gesundelehre.tk/forwarder.php?url=https://biblicaltruthresources.wordpress.com/2013/03/19/explaining-calvinist-proof-text-1-john-18/)
 
 ## [Explaining Calvinist Proof Text 1 John 1:8](http://gesundelehre.tk/forwarder.php?url=https://biblicaltruthresources.wordpress.com/2013/03/19/explaining-calvinist-proof-text-1-john-18/)

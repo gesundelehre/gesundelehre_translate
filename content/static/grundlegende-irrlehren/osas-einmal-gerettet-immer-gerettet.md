@@ -5,5 +5,8 @@ Hier folgt eine Abhandlung darüber, weshalb "Einmal gerettet - immer gerettet" 
 
 Dies Lehre hat verschiedenste Namen:
 - Unverlierbarkeit des Heils
+- Einmal Gerettet Immer Gerettet
 - OSAS (Once saved - Always saved)
 - Perseverance of the Saints (äquivalente Bezeichnung im Calvinismus)
+- Preservation of the Saints
+- Eternal Security
