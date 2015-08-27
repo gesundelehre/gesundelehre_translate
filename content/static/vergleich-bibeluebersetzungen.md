@@ -31,13 +31,13 @@ Mach dich auf etwas gefasst bei der Lektüre der folgenden Zeilen / Dateien. Ich
 - **man macht, dass der Text Widersprüche/Lügen/falsche Aussagen enthält** (Mk1,2; Joh21,15; Apg13,19-20; Phil1,16-17)
 - die **Allversöhnugs-Irrlehre** wird gefördert (Off21,24)
 
-_ Anmerkung 1_ :  siehe auch Sprüche28,13; Hesekiel18,30-32; Jesaja55,7-8
+_Anmerkung 1_ :  siehe auch Sprüche28,13; Hesekiel18,30-32; Jesaja55,7-8
 
 Als allererstes empfehle ich einmal die sorgfältige Lektüre vom nachfolgend erwähnten Dokument von Rudolf Ebertshäuser (_Achtung, seiner Theologie kann ich nicht zustimmen_ (er lehrt die Erbsünde, absolute Abkehr von Sünde/Heiligung ist bei ihm deshalb nicht heilsnotwendig, da man laut der Lehre der Erbsünde gar nicht aufhören könnte zu sündigen)) 
 
 Ein paar Dinge habe ich bereits auf dem [mindmap](mindmap) erwähnt. Für mehr Informationen konsultiere die Informationen von Rudolf Ebersthäuser und sein Vergleich der 300 wichtigsten Verse des Neuen Testamentes ([Open-Office-Format](files/bibeluebersetzungen/300_stellen_ebertshaeuser_deutsch_gesamte_tabelle.ods)/[als PDF](files/bibeluebersetzungen/300_stellen_ebertshaeuser_deutsch_gesamte_tabelle.pdf) oder [PDF von Rudolf Ebershäuser](files/bibeluebersetzungen/Rudolf_Ebertshaeuser_Liste_300_wichtige_veraenderungen_im_text_des_nt_B4-Liste-300-A4-2-1.pdf)), welche gravierende Unterschiede in den Bibelübersetzungen beinhalten, sehr empfehlenswert.
 
-Eine erweiterte Fassung auf Deutsch, sowie ein Vergleich der selbigen 300 Bibelverse in Englischen Übersetzungen ist bei mir in Arbeit. Hier die aktuellste Fassung der Vergleichs-Datei [als Open-Office-Datei](files/bibeluebersetzungen/Comparison_KingJames_Nestle_Aland_300_verses.ods)/[als PDF](files/bibeluebersetzungen/Comparison_KingJames_Nestle_Aland_300_verses.pdf)
+Eine erweiterte Fassung auf Deutsch, sowie ein Vergleich der selbigen 300 Bibelverse in Englischen Übersetzungen ist bei mir in Arbeit. Hier die aktuellste Fassung der Vergleichs-Datei [als Open-Office-Datei](files/bibeluebersetzungen/Comparison_KingJames_Nestle_Aland_300_verses.ods)/[als PDF](files/bibeluebersetzungen/Comparison_KingJames_Nestle_Aland_300_verses.pdf) --> hier sind momentan auch noch die zusätzlichen deutschen Bibelübersetzungen die ich verglichen habe drin (NGÜ komplett, Schlachter1905, Schlachter1951, Zürcher1860, Johannis Piscator 1755, Basisbibel, NeÜ)
 
 - Kurzübersicht und Kurzvergleich der 300 Verse & Hinweise auf Deutsch [im Open-Office-Format (unfertig)](files/bibeluebersetzungen/300_stellen_ebertshaeuser_deutsch_ohne_uebersetzungstabelle_deutsche_uebersetzungen_uebersicht.ods)/[als PDF (unfertig)](files/bibeluebersetzungen/300_stellen_ebertshaeuser_deutsch_ohne_uebersetzungstabelle_deutsche_uebersetzungen_uebersicht.pdf) (_man beachte die Registerkarten sowie die Legende_)
 
@@ -45,11 +45,13 @@ Eine erweiterte Fassung auf Deutsch, sowie ein Vergleich der selbigen 300 Bibelv
 
 Für jene die des griechischen mächtig sind, lade dir den griechische Grundtext (TR) nach Stephanus [als PDF ohne Morphologische Informationen](files/bibeluebersetzungen/tr_textus_receptus_stephanus.pdf)/[als PDF mit Morphologischen Informationen](files/bibeluebersetzungen/Greek-New_Testament_Stephanus_Textus_Receptus_1550_with_morphological_data.pdf) oder als theWord-Modul [.nt mit Akzenten](files/bibeluebersetzungen/free_from_copyright/tra.nt) / [.nt ohne Akzente](files/bibeluebersetzungen/free_from_copyright/tr.nt) herunter
 
+Für jene, die sich umgehender damit beschäftigen wollen, denen sei hier eine [umfassende Übersicht über die Änderungen vom Nestle-Aland Text zum Textus Receptus](files/bibeluebersetzungen/alle_TR_NA_unterschiede_deutsch.zip) zum Download als zip-Datei mit enthaltenen .rtf-Dateien bereitgestellt. Die einzelnen in der zip-Datei enthaltenen .rtf-Dateien: [Intro](files/bibeluebersetzungen/alle_tr_na_unterschiede_deutsch/Intro.rtf),[Matthäus](files/bibeluebersetzungen/alle_tr_na_unterschiede_deutsch/Matthew.rtf), [Markus](files/bibeluebersetzungen/alle_tr_na_unterschiede_deutsch/Mark.rtf), [Lukas](files/bibeluebersetzungen/alle_tr_na_unterschiede_deutsch/Luke.rtf), [Johannes](files/bibeluebersetzungen/alle_tr_na_unterschiede_deutsch/John.rtf), [Apostelgeschichte](files/bibeluebersetzungen/alle_tr_na_unterschiede_deutsch/Acts.rtf), [Römerbrief - 2. Korintherbrief](files/bibeluebersetzungen/alle_tr_na_unterschiede_deutsch/Rom-2Ko.rtf), [Galaterbrief - Philipperbrief](files/bibeluebersetzungen/alle_tr_na_unterschiede_deutsch/Gal-Phil.rtf), [Hebräerbrief - Judasbrief](files/bibeluebersetzungen/alle_tr_na_unterschiede_deutsch/Heb-Jud.rtf), [Offenbarung](files/bibeluebersetzungen/alle_tr_na_unterschiede_deutsch/Revelation.rtf)
+
 ## empfehlenswerte Bibelübersetzungen
 - Luther von 1545 (Direkt herunterladen [.pdf](files/bibeluebersetzungen/free_from_copyright/luther1545.pdf) / [.epub](files/bibeluebersetzungen/free_from_copyright/luther1545.epub) / [.txt](files/bibeluebersetzungen/free_from_copyright/luther1545.txt) / [.mobi](files/bibeluebersetzungen/free_from_copyright/luther1545.mobi))  bis 1912 (1515 mit neuer Rechtschreibung bevorzugen)
-- Schlachter 2000 (kann auf der [Seite von sermon-online.de](http://www.sermon-online.de/search.pl?lang=de&id=2504&title=&biblevers=&searchstring=&author=0&language=0&category=0&play=0&tm=2) legal heruntergeladen werden (obwohl sie selbst ein Copyright hat) <!-- ([Direktlink dortin](http://bitimage.dyndns.org/german/Schlachter2000AlteRechtschreibung/Schlachter2000.pdf)) -->
-- Jantzen-NT (nach dem Stephanus-TR-Text) + Psalmen + Sprüche (siehe server von cd-mission)
-- alte Zürcher bis zur Revision von 1931 ([NT von 1860 als PDF](http://www.gesundelehre.tk/forwarder.php?url=http://martin-arhelger.de/bibel/zuercher.pdf)) (sehr nach TR, siehe Vergleichstabelle)
+- Schlachter 2000 (kann auf der [Seite von sermon-online.de](http://www.sermon-online.de/search.pl?lang=de&id=2504&title=&biblevers=&searchstring=&author=0&language=0&category=0&play=0&tm=2) legal heruntergeladen werden (obwohl sie selbst ein Copyright hat) <!-- ([Direktlink dortin](http://bitimage.dyndns.org/german/Schlachter2000AlteRechtschreibung/Schlachter2000.pdf)) -->  
+- Jantzen-NT (nach dem Stephanus-TR-Text) + Psalmen + Sprüche (siehe server von cd-mission)  
+- alte Zürcher bis zur Revision von 1931 ([NT von 1860 als PDF](http://www.gesundelehre.tk/forwarder.php?url=http://martin-arhelger.de/bibel/zuercher.pdf)) (sehr nach TR, ausserordentlich gut! - siehe Vergleichstabelle)
 - Johannes Piscator 1755 ([NT](http://gesundelehre.tk/forwarder.php?url=http://martin-arhelger.de/bibel/piscator3.pdf), [AT Teil1](http://gesundelehre.tk/forwarder.php?url=http://martin-arhelger.de/bibel/piscator1.pdf), [AT Teil2](http://gesundelehre.tk/forwarder.php?url=http://martin-arhelger.de/bibel/piscator2.pdf)) (sehr nach TR, siehe Vergleichstabelle)
 - alte Elberfelder? `(noch abklären, wie gut die Übersetzung wirklich ist)`
 
@@ -130,3 +132,10 @@ Because the truth is important to me and that souls can be saved, that's why I a
 
 Here follows a list of bibletranslations which aren't recommendable:
 - ESV
+
+- - -
+
+## Nachfolgend noch zusätzliches Material um Griechisch zu lernen / Following additional material to learn greek:
+- [Griechisch-Deutsch Strongs Dixionär/Wörterbuch](files/bibeluebersetzungen/bi_strongs_nr-deutsch.pdf)  
+- [New Testament Greek for Beginners By J. Gresham Machem D.D., Litt.D., Professor in New Testament in Westminster Theological Seminary Philadelphia](files/bibeluebersetzungen/new_testament_greek_for_beginners.pdf)  
+- [Teach Yourself New Testament Greek By D.F. Hudson (M.A. Oxon.), Association Press New York, 1960](files/bibeluebersetzungen/TeachYourselfGreek-Hudson.pdf)
