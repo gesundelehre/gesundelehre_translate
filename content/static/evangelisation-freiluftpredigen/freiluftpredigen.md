@@ -1,5 +1,5 @@
-<!--t Freiluftpredigen (Open Air Preaching) - in Arbeit (1% übersetzt) t-->
-<!--d Freiluftpredigen (Open Air Preaching) - in Arbeit (1% übersetzt) d-->
+<!--t Freiluftpredigen (Open Air Preaching) - in Arbeit (10% übersetzt) t-->
+<!--d Freiluftpredigen (Open Air Preaching) - in Arbeit (10% übersetzt) d-->
 
 Freiluftpredigen (Open Air Preaching)
 
@@ -16,15 +16,15 @@ Quelle: [libraryoftheology.com](http://libraryoftheology.com) > evangelism >
 ### Von John Duncan ([www.gospeljohn.com](http://www.gospeljohn.com))  
 
 ## Biblische Evangelisation
-Open-air preaching is the most used method for Biblical Evangelism. Jesus was an openair preacher (Sermon on the _Mount_), John the Baptist was an open-air preacher (he preached in the _wilderness_), Paul was an open-air preacher (Mars _Hill_), Stephen **(Acts 7)**, and many more such as Peter, Jeremiah, Amos, Jotham, Jonah, Isaiah, etc.
+Open-air preaching ist die meistbenutzte Methode für biblische Evangelisation. Jesus war ein Freiluftprediger (_Berg_-Predigt), Johannes der Täufer war ein Freiluftprediger (er predigte in der _Wüste_), Paulus war ein Freiluftprediger (Mars _Hill_), Stephanus **(Apg 7)**, und viele weitere wie zum Beispiel Petrus, Jeremia, Amos, Jotham, Jona, Jesaja, etc.
 
-We believe that the Gospel is a confrontational message, a call to forsake _all_ known sin, and a committing of the soul and the whole being to Jesus Christ. We fervently oppose the message that one can continue in sin while in a relationship with God.
+Wir glauben, dass das Evangelium eine confrontational Botschaft ist, ein Ruf, _alle_ bekannte Sünde aufzugeben/zu verlassen, und ein Anvertrauen der Seele und des ganzen Daseins an Jesus Christus. Wir widersetzen uns eifrig der Botschaft, dass man in Sünde weitermachen kann in einer Beziehung mit Gott.
 
-Beginning at around noon, with no amplification, Ellen and I approach the free speech area in the secular universities and lift up our voices, crying aloud and sparing not against sin, as the Bible says to do in Isaiah **(Is 58:1)**.
+Beginning at around noon, ohne Verstärkung, Ellen und Ich nähern uns der free speech area in den säkulären Universitäten und erheben unsere Stimmen, laut rufend und nciht schonend gegen Sünde, wie die Bibel zu tun sagt in Jesaja (**Jes 58,1)**.
 
-I believe that one of the greatest needs in America today is aggressive evangelism in the open-air. Many of our modern methods only reach those that _want_ to hear it, read it or tune in. Open-air preaching reaches those who would not come to a traditional evangelistic meeting otherwise.
+Ich glaube, dass eine der grössten Nöte heutzutage in Amerika aggressive Evangelisation im Freien (Open-Air) ist. Viele unserer modernen Methoden erreichen nur jene, die es hören, lesen und einstellen (Radio) _wollen_. Freiluftpredigen erreicht jene, die sonst nicht an ein traditionelles evangelistisches Treffen kommen würden.
 
-I have tried it all: pizza suppers, musical outreaches, door-to-door witnessing, literature distribution, book tables, etc. All these have been effective to a degree, but open-air preaching is by far the most effective (as well as the most controversial).
+Ich hab es alles versucht: Pizza Abendessen, Musical outreaches, Tür-zu-Tür witnessing, Verteilung von Literatur, Bücherstände, etc. All diese waren effektiv bis zu einem Grad, aber Freiluftpredigen ist bei Weitem das effektivste (sowie auch das umstrittenste).
 
 ## Ist Freiluftpredigen Biblisch?
 In Bible times life was much simpler than it is today. From the written page to communication in cyberspace, today's transfer of information is radically different than that of Biblical times. Why then should you consider or emphasize the description of PREACHING found with Scripture? The most obvious answer, as we will fully document, is GOD'S examples found within His Word. This chapter will show the weakness found in contemporary approaches vs. the strength and power found in the Scriptures.
@@ -45,54 +45,56 @@ What then is PREACHING? According to Noah Webster, "Preach" come from a Latin wo
 As we have outlined, PREACHING today is narrowly defined and misunderstood to the exclusion of the above definition. It typically refers to invited people, invited speakers, and scheduled services. BIBLICAL PREACHING, however, conforms to the above definition, and is often to hostile crowds outside "religious" services...to those who would seek to even kill the messenger.
 
 ## Das Alte Testament
-The Old Testament is rich with accounts of PUBLIC PREACHING.
+Das Alte Testament ist Reich an Schilderungen von ÖFFENTLICHEM PREDIGEN.
 
-> "Wisdom CRIETH WITHOUT; she uttereth her voice IN THE STREETS: SHE CRIETH IN THE CHIEF PLACE OF CONCOURSE, in the openings of the gates: in the city she uttereth her words…" **(Proverbs 1:20-21)**.
+> "Die Weisheit RUFT DRAUSSEN LAUT, ÖFFENTLICH läßt sie ihre Stimme hören; IM ÄRGSTEN STRASSENLÄRM SCHREIT SIE, an den Pforten der Stadttore hält sie ihre Reden:" **(Sprüche 1,20-21; Schlachter1951)**
 
-"CRIETH" means shouting out loud. "WITHOUT" means outside. "CHIEF PLACE OF CONCOURSE" means where the biggest crowds are.
+[[> "Wisdom CRIETH WITHOUT; she uttereth her voice IN THE STREETS: SHE CRIETH IN THE CHIEF PLACE OF CONCOURSE, in the openings of the gates: in the city she uttereth her words…" **(Proverbs 1:20-21)**.]]
 
-> "Doth not wisdom CRY? And understanding PUT FORTH HER VOICE? She standeth in the top of high places, by the way in the places of the paths. She crieth at the gates, at the entry of the city, at the coming in at the doors." **(Proverbs 8:1-3)**.
+[["CRIETH" means shouting out loud. "WITHOUT" means outside. "CHIEF PLACE OF CONCOURSE" means where the biggest crowds are.]]
+
+> "RUFT nicht die Weisheit, und die Klugheit LÄSST SICH HÖREN? Öffentlich am Wege und an der Straße steht sie. An den Toren bei der Stadt, da man zur Türe eingeht, SCHREIT sie:" **(Sprüche 8,1-3; Luther 1912)**
 
 Old testament prophets often PREACHED at the GATES of the city. The gates were the busiest place in town. The cities in Bible times were surrounded by walls for protection, and all traffic in and out of the city went through the gate. It was the place to be to get a message to all visitors **(Genesis 19:1)** as well as the citizens (going in and out to work in the fields), and the king and all dignitaries. All kinds of activity took place at the gates:
 
-- Business transactions **(Genesis 23:10ff; II Kings 7:1)**
+- Geschäftsabwicklungen **(Genesis 23:10ff; II Kings 7:1)**
 - Community meetings/ "city hall" **(Genesis 34:20ff; II Samuel 19:8; Proverbs 31:23; Lam. 5:14)**
-- Legal decisions/court **(Deut. 22:15ff; 25:7; Ruth 4:1; II Sam. 15:2; Amos 5:15; Zech 8:16)**
-- Public executions **(Deuteronomy 22:24)**
-- Public mourning **(II Samuel 18:33)**
+- Rechtliche Entscheidungen/Gericht **(Deut. 22:15ff; 25:7; Ruth 4:1; II Sam. 15:2; Amos 5:15; Zech 8:16)**
+- Öffentliche Hinrichtungen **(Deuteronomy 22:24)**
+- Öffentliches mourning **(II Samuel 18:33)**
 - Daily chores **(II Samuel 23:15; I Kings 17:10)**
 - Religious meetings/idolatry **(I Kings 22:10; II Kings 23:8; II Chronicles 18:9; Acts 14:13)**
-- The poor **(Psa. 69:12; Proverbs 22:22; Amos 5:12)**
+- Die Armen **(Psa. 69:12; Proverbs 22:22; Amos 5:12)**
 
 These then are some of the things that took place at the gates. A man PREACHING at the gate would not only reach large crowds, but also have an IMPACT on and a direct outreach to such varied arenas as: the business community, court decisions, idolatrous meetings, soldiers, government, etc., etc.
 
 AMOS WAR EIN STRASSENPREDIGER!
 
-> "They hate him that rebuketh in the gate, and they abhor him that speaketh uprightly. **(Amos 5:10)**
+> "Sie hassen den, der im Tore Recht spricht, und verabscheuen den, der aufrichtig redet." **(Amos 5,10; Schlachter1951)**
 
 JESAJA WAR EIN STRASSENPREDIGER!
 
-> They "lay a snare for him that reproveth in the gate…" **(Isaiah 29:21)**
+> "... und demjenigen Schlingen legen, der sie im Tore zurechtweist..." **(Jesaja 29,21; Schlachter1951)**
 
 JEREMIA WAR EIN STRASSENPREDIGER!
 
-> "Thus said the Lord unto me, Go and stand in the GATE of the children of the people, whereby the kings of Judah come in, and by the which they go out, and in all the GATES of Jerusalem; and say unto them, Hear ye the word of the Lord, ye kings of Judah, and all Judah, and all the inhabitants of Jerusalem that enter in by these gates: Thus saith the Lord…" **(Jeremiah 17:19-20)**
+> "Weiter sprach der HERR also zu mir: Gehe hin und stelle dich unter das TOR der Volksgenossen, durch das die Könige von Juda aus und eingehen, ja, unter alle TORE zu Jerusalem, und sage ihnen: Höret das Wort des HERRN, ihr Könige von Juda, du ganz Juda und alle Einwohner von Jerusalem, welche durch diese Tore eingehen. So spricht der HERR: ..." **(Jeremia 17,19-21; Schlachter1951)**
 
-> "The word that came to Jeremiah from the Lord, saying, Stand in the GATE of the Lord’s house, and proclaim there this word, and say, Hear the word of the Lord, all ye of Judah, that enter in at these gates to worship the Lord. **(Jeremiah 7:1-2)**
+> "Dies ist das Wort, welches vom HERRN an Jeremia erging: Tritt unter das TOR am Hause des HERRN und predige dort dieses Wort und sprich: Höret das Wort des HERRN, ihr alle aus Juda, die ihr zu diesen Toren eingehet, um den HERRN anzubeten!" **(Jeremia 7,1-2; Schlachter1951)**
 
 An interesting point about these men is that most of them spent most of their time not reaching those in other countries, or the most reprobate sinners, but God’s "chosen people," who had the Bible, as they entered the house of God to worship the LORD!
 
-> "Thus saith the Lord; Go down to the house of the king of Judah, and speak there this word, and say, Hear the word of the Lord, O king of Judah…and thy people that enter in by these GATES." **(Jeremiah 22:1-2)**
+> "So sprach der HERR: Gehe hinab ins Haus des Königs von Juda und rede daselbst diese Worte: Höre das Wort des HERRN, du König von Juda, der du auf dem Thron Davids sitzest, du samt deinen Knechten und deinem Volk, die zu diesen TOREN eingehen!" **(Jeremia 22,1-2; Schlachter1951)**
 
-> "Then read Baruch in the book of the words of Jeremiah in the house of the Lord…at the entry of the new GATE of the Lord’s house, in the ears of all the people." **(Jeremiah 36:10)**
+> "Da las Baruch aus dem Buch die Reden Jeremias im Hause des HERRN ... am Eingang des neuen TORES des Hauses des HERRN, vor den Ohren des ganzen Volkes." **(Jeremia 36,10; Schlachter1951)**
 
 The PROPHETS of GOD in the Old Testament did not use "low-key," "subtle" **(see Genesis 3:1)** approaches, such as literature tables, passing out tracts, invitations to religious meetings, traveling Gospel singing teams, etc., etc. These methods have some limited value, but again, what is the MAIN method of outreach in the BIBLE? What is the most effective way to reach the most people at the least expense? What is the method that most ACCURATELY REFLECTS THE REAL CHARACTER OF GOD? What is the method that is most consistent with the message of Heaven or HELL? What is the one method that receives the least amount of teaching, encouragement and promotion?
 
-STREET PREACHING!!
+STRASSENPREDIGT!!
 
-> "Then the Lord said unto me, Proclaim all these words in the cities of Judah, and in the STREETS of Jerusalem, saying, Hear ye the words of this covenant, and do them." **(Jeremiah 11:6)**
+> "Darauf sprach der HERR zu mir: Verkündige alle diese Worte in den Städten Judas und auf den GASSEN zu Jerusalem und sprich: Höret die Worte dieses Bundes und befolget sie!" **(Jeremia 11,6; Schlachter1951)**
 
-> "The word of the Lord came to me, saying, Go and cry in the ears of Jerusalem, saying, Thus saith the Lord…" **(Jeremiah 2:1-2)**
+> "Und das Wort des HERRN erging an mich und sprach: Gehe hin und predige in die Ohren Jerusalems und sprich: So spricht der HERR: ... " **(Jeremia 2,1-2; Schlachter1951)**
 
 > "CRY ALOUD; SPARE NOT; LIFT UP THY VOICE LIKE A TRUMPET, AND SHOW MY PEOPLE THEIR TRANSGRESSIONS AND THE HOUSE OF JACOB THEIR SINS." **(Isaiah 58:1)**
 
@@ -136,9 +138,9 @@ The four Gospels are often described as John and the " three synoptic Gospels," 
 
 > "In the last day, that great day of the feast, Jesus stood and CRIED, saying, If any man thirst, let him come unto me, and drink." **(John 7:37)**.
 
-JESUS commanded His apostles:
+JESUS befahl Seinen Aposteln:
 
-> "What I tell you in darkness, that speak ye in light, and what ye hear in the ear, that preach ye upon the housetops." **(Matthew 10:27)**
+> "Was ich euch im Finstern sage, das redet am Licht, und was ihr ins Ohr höret, das prediget auf den Dächern." **(Matthäus 10,27; Schlachter1951)**
 
 His apostles carried this out in the book of Acts. On the day of Pentecost **(Acts 2)**, we find one of the greatest examples of STREET PREACHING of all time. The charismatic read Acts 2, see tongues, and say: We need to speak in tongues like they did in Acts 2. Some fundamentalists read Acts 2 and see 3000 added to the church in one day, and they say: We need to have large church growth like they did in Acts 2. What is missing is the recognition of the delivery and method of STREET PREACHING found in Acts 2,. TONGUES drew a crowd, Peter preached REPENTANCE **(Acts 2:38)**, and the church grew.
 
@@ -153,7 +155,7 @@ Why the market? Crowds! The apostles wanted to get the Gospel to the most people
 ## Zusammenfassend Sehen Wir:
 MODERNE Methoden sind:
 - Teuer!
-- Limited to reaching a few of the many who we are commanded to reach
+- Limitiert darauf, ein paar wenige der vielen zu erreichen, von denen uns befohlen ist, sie zu erreichen
 - Ineffizient
 - Zeit und Arbeitsintensiv
 - Bürokratisch
@@ -172,7 +174,7 @@ Public, open air preaching of the Gospel and the Kingdom of GOD is imperative fo
 
 > "He which soweth sparingly shall reap also sparingly; and he which soweth bountifully shall reap also bountifully." **(2 Corinthians 9:6)**
 
-## A Short Geschichte of Open-Air Preaching
+## Eine Short Geschichte of Open-Air Preaching
 
 There are those who say that preaching in the streets was good for Biblical times, but not for today. Here we will do a historical study of open air preaching and its effectiveness throughout Church history. The subject of preaching is to be differentiated from that of "witnessing." The preaching spoken of throughout this history is best defined by Christ himself in **Matthew 10:27**: things heard and proclaimed from the housetops.
 
@@ -206,7 +208,7 @@ FRANZISKANER WAREN STRASSENPREDIGER!
 
 The Dominicans were founded by **Dominic** (1170-1221), who traveled with Diego and journeyed from town to town conducting open air debates. Some Dominican preachers were again so popular that they had to preach outside the church to accommodate the crowds that came to hear them. Such a Dominican preacher was Vincent Ferrer (1350- 1419). DOMINICANS WERE STREET PREACHERS!
 
-## Early Protestants
+## Frühe Protestanten
 Before Luther and the Protestant Reformation came along, the groundwork for their success was laid by several groups that rose within the Catholic Church and questioned papal authority to the point of getting excommunicated. Three such groups arose in France in the 12th century and were started by STREET PREACHERS.
 
 The Henricians were started by **Henry of Lausanne** (died 1148), the Petrobrussians by **Peter de Bruys** (died 1126). They worked together denouncing romanist doctrines like infant baptism and transubstantiation (both were eventually condemned as heretics and martyred.). They also rejected Church buildings, and "preached on the streets and in the open places." THE HENRICIANS UND PETROBRUSIANS WAREN STRASSENPREDIGER!"
@@ -215,31 +217,31 @@ The Henricians were started by **Henry of Lausanne** (died 1148), the Petrobruss
 
 Die Waldenser wurden started by **Peter Waldo**, a wealthy merchant in Lyons, France in the 12th century. One day he asked a theologian what he should do to gain eternal life. He was answered with the words of Jesus to the rich young ruler, to sell his possessions, give the money to the poor, and follow Christ. Waldo took this literally, selling his business, giving away his wealth. Together with his followers, they traveled by twos, preaching in the streets, reading passages of Scripture which they translated themselves into the common language. According to Foxe's Book of Martyrs the Inquisition was originally launched against the Waldenses. DIE WALDENSER WAREN STRASSENPREDIGER!
 
-### The LOLLARDS
+### The LOLLARDEN
 
-Now we come to **John Wycliffe** (1330-1384), "dem Morgenstern der Reformation". Wycliffe war der Erste to translate the Bible into the Englische Sprache (from the Vulgate), and the Wycliffe Bible Translators take their name from him. His followers were called Lollards, and traveled throughout England preaching in the streets and marketplaces against the errors of Popery. THE LOLLARDS WERE STREET PREACHERS!
+Nun kommen wir zu **John Wycliffe** (1330-1384), "dem Morgenstern der Reformation". Wycliffe war der Erste der die Bibel in die Englische Sprache übersetzte (von der Vulgata), und die Wycliffe Bibelübersetzer take ihren Namen von ihm. Seine Nachfolger wurden Lollarden genannt und reisten durch ganz England in den Strassen und auf den Marktplätzen gegen die Irrtümer des Papsttums predigend. DIE LOLLARDEN WAREN STRASSENPREDIGER!
 
-### THE PROTESTANT REFORMERS
+### DIE PROTESTANTISCHEN REFORMATOREN
 
 The early Protestant reformers necessarily had to be outdoor preachers, since, as Spurgeon points out, the churches were in the hands of the papacy. **William Farel** (1489- 1565), who paved the way for John Calvin to come to Switzerland, and has been called "the pioneer of Protestantism in Western Switzerland," was a STREET PREACHER. "He turned every stump and stone into a pulpit, every house, every street, and market-place into a church."
 
-The Presbyterian Church was founded in Scotland by **John Knox** (1513-1572), who started out as a bodyguard for a STREET PREACHER named **George Wishart**. After Wishart was martyred in 1546, Knox took over as leader of the reformation. Wishart was not allowed to preach in the churches and so preached in the market-places and fields. John Knox accompanied him on his preaching tours, sword in hand, to protect him from violence." Later, when the Church of England was established in Scotland, Protestant preachers were banned from their pulpits and became field preachers, proclaiming their message in the open air. Some of these Scottish Presbyterian field preachers included **Richard Cameron** (1648-1680) and **Donald Cargill** (1619-1681). THE PRESBYTERIAN CHURCH WAS STARTED BY STREET PREACHERS!
+The Presbyterian Church was founded in Scotland by **John Knox** (1513-1572), who started out as a bodyguard for a STREET PREACHER named **George Wishart**. After Wishart was martyred in 1546, Knox took over as leader of the reformation. Wishart was not allowed to preach in the churches and so preached in the market-places and fields. John Knox accompanied him on his preaching tours, sword in hand, to protect him from violence." Later, when the Church of England was established in Scotland, Protestant preachers were banned from their pulpits and became field preachers, proclaiming their message in the open air. Some of these Scottish Presbyterian field preachers included **Richard Cameron** (1648-1680) and **Donald Cargill** (1619-1681). DIE PRESBYTERIAN KIRCHE WURDE DURCH STRASSENPREDIGER STARTED!
 
-### POST-REFORMATION PREACHERS
+### POST-REFORMATORISCHE PREDIGER
 
-After the Reformation other great movements were started by STREET PREACHERS.
+Nach der Reformation wurden andere grosse Bewegungen durch STRASSENPREDIGER started.
 
 The Methodist Church, co-founded by **George Whitefield** (1714-1770) and **John Wesley** (1703-1791) is an example of this period. These two were Anglicans, but being banned from speaking in churches since they were not "licensed," they took to FIELD PREACHING, boldly proclaiming GOD'S WORD to large crowds in streets and markets. Whitefield spoke to estimated crowds of up to 20,000 people in the open air. They traveled throughout England and the American colonies, and were instrumental in the GREAT AWAKENING, a mighty revival that swept the colonies in the eighteenth century. THE METHODIST CHURCH WAS STARTED BY STREET PREACHERS!
 
 George Whitefield stated: "I believe I never was more acceptable to my Master than when I was standing to teach those hearers in the open fields." ... "I now preach to ten times more people than I should, if had been confined to the Churches."
 
-Also from **John Wesley**: "I am well assured that I did far more good to my Lincolnshire parishioners by preaching three days on my father's tomb than I did by preaching three years in his pulpit." ... "To this day field preaching is a cross to me, but I know my commission and see no other way of preaching the gospel to every creature".
+Auch von **John Wesley**: "Ich bin davon absolut gewiss, dass ich weit mehr Gutes für meine Lincolnshire Gemeindeglieder getan hatte indem ich drei Tage auf meines Vaters Grab predigte, als dass ich drei Jahre Predigt auf seiner Kanzel tat." ... " Bis zu diesem Tag ist field preaching ein Kreuz für mich, aber ich kenne meinen Auftrag und sehe keinen anderen Weg, um das Evangelium aller Kreatur zu predigen".
 
-A friend of Whitefield and Wesley's started a great revival in Wales called the Welsh Revival. His name was **Howell Harris,** and is another example of a man known to be a FIELD PREACHER.
+Ein Freund von Whitefield und Wesley started eine grosse Erweckung in Wales genannt die Welsche Erweckung (Welsh Revival). Sein name war **Howell Harris,** und ist ein weiteres Beispiel eines Mannes der als FIELD PREACHER bekannt war.
 
 Another great Methodist outdoor preacher at this time was **Gideon Ouseley** (1762-1839). He traveled on horseback and preached several times a day, without dismounting, in streets, fairs and markets throughout Ireland. Methodists were also instrumental in America's second Great Awakening, typified by outdoor Camp Meetings, started in 1800 by **James Mcready**, and also featuring the preaching of **Peter Cartwright** (1785-1872) and **Lorenzo Dow** (1777-1834).
 
-A great Baptist revival in Scotland was the result of the FIELD PREACHING of **Robert** (1764-1842) and **James** (1768-1851) **Haldane** and **Rowland Hill** (one of the founders of the Religious Tract Society, and an early advocate of vaccination). They were Anglicans, but converted to Baptists when the established Church forbade their field preaching. Robert and James left their business and sold their estate to devote their time to preaching the Gospel.
+A great Baptist revival in Scotland was the result of the FIELD PREACHING of **Robert** (1764-1842) and **James** (1768-1851) **Haldane** and **Rowland Hill** (einer der Gründer der "Religious Tract Society" [zu deutsch "Religiöse Traktat Gesellschaft"], und ein früher Befürworter der Impfung). Sie waren Anglikaner, konvertierten jedoch zu Baptisten, als die established Kirche ihr field preaching verbot. Robert and James verliessen ihr Geschäft und verkauften ihren Grundbesitz/ihr Anwesen, um sich vollzeit dem Predigen des Evangeliums zu widmen.
 
 ### MODERN MISSIONS MOVEMENT
 
@@ -247,9 +249,9 @@ The first modern Protestant missionary society was started by **William Carey** 
 
 Other famous preachers started their ministries by preaching in the streets, such as **C.H. Spurgeon**, **D.L. Moody**, and **Billy Graham**. Spurgeon began preaching in the streets of London at the age of 16, which he continued until he became pastor of the Metropolitan Tabernacle at 19.
 
-**Dwight L. Moody** (1837-1899) was a well known preacher in the Chicago area. The Moody Bible Institute bears his name. "One of his regular practices in the late sixties was to exhort the passersby in the evenings from the steps of the court house. Often these impromptu gathering drew as many hecklers as supporters." MOODY WAS A STREET PREACHER!
+**Dwight L. Moody** (1837-1899) was a well known preacher in the Chicago area. The Moody Bible Institute bears his name. "One of his regular practices in the late sixties was to exhort the passersby in the evenings from the steps of the court house. Often these impromptu gathering drew as many hecklers as supporters." MOODY WAR EIN STRASSENPREDIGER!
 
-It is well known that **The Salvation Army** started out doing a lot of STREET PREACHING!
+Es wohl bekannt, dass die **Heilsarmee** begann mit einer Menge an STRASSENPREDIGT!
 
 Coming to Modern Times there is a remnant today of those who still carry on the mission of STREET PREACHING. A particular aspect of open air preaching is utilization of the Free Speech Platforms on College and University Campuses. Cal State Berkeley was ablaze with Bible preaching in the 1960s by **Hubert Lindsey** (also known as "Holy Hubert" to those turbulent times). Today others follow in his footsteps.
 
