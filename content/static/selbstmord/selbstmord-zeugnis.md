@@ -1,5 +1,5 @@
-<!--t Ewige Sicherheit Fördert Suizid, Teil 1 - in Arbeit (0% übersetzt) t-->
-<!--d Ewige Sicherheit Fördert Suizid, Teil 1 - in Arbeit (0% übersetzt) d-->
+<!--t Ewige Sicherheit Fördert Suizid, Teil 1 - in Arbeit (30% übersetzt) t-->
+<!--d Ewige Sicherheit Fördert Suizid, Teil 1 - in Arbeit (30% übersetzt) d-->
 
 Ewige Sicherheit Fördert Suizid, Teil 1
 
@@ -15,7 +15,7 @@ Source: [www.evangelicaloutreach.org/suicide_testimony.htm](http://gesundelehre.
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-Below is an actual experience that occurred in a church which changes _grace into a license to sin._ As you will read, this **[Calvinistic](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/calvinismrefuted.html)** doctrine promotes _self-murder._ It also has broken up many homes over _adultery_ and caused multitudes to be damned. After reading this email, you should fight harder than ever against this demonic doctrine. It is spiritually dangerous as well as physically dangerous in this natural world. 
+Nachfolgend ist eine wirkliche Erfahrung, die in einer Kirche geschaf welche _Gnade in eine Lizenz zum Sündigen_ verdreht. Wie du lesen wirst, fördert diese **[calvinistische](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/calvinismrefuted.html)** Lehre _Selbst-Mord._ Sie zerstörte auch schon viele Häuser (Familien) aufgrund von _Ehebruch bewirkte, dass Massen verdammt wurden. Nach dem Lesen dieser Email solltest du härter gegen diese dämonische Lehre kämpfen. Sie ist sowohl geistlich gefährlich als auch physisch in dieser natürlichen Welt. 
 
 Though the following testimony/experience occurred inside a Southern Baptist congregation, please do not think the same does not and has not occurred in more Calvinistic churches such as **[John MacArthur's](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/John-MacArthur.html)** which embraces all 5 points of **[John Calvin's](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/johncalvin.html)** heresies. The truth is: ALL churches, groups, ministries, etc. that deny a righteous person can die spiritually over one act of murder (which is what **[suicide](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/suicide.html)** is) are doctrinally wrong and DANGEROUS TO YOUR SOUL.
 
@@ -33,19 +33,19 @@ The pastor and this Sunday school teacher told the four children left behind, an
 
 
 
-**<u>Approximately three months later, the pastor’s own grandson decided to kill himself also.</u>  The same lie was told:He is in heaven.**
+**<u>Ungefähr drei Monate später entschied des Pastors eigener Enkel, sich selbst zu töten.</u> Dieselbe Lüge wurde erzählt: Er ist nun im Himmel.**
 
 
 
 I am appalled that a church would lead anyone to believe that you would still be saved even if you kill yourself. If for no other reason you would not want to start a mass suicide plan on your congregation. This is also one of the reasons that I do not believe it is from God to pull something like that as **I am certain this is not the God of the Bible. Honestly, who’s voice does it sound like?**
 
-Respectfully,
+Hochachtungsvoll,
 
 - - -
 
-<big><big>**[Eternal Security Promotes Suicide (Murder), Part 2](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/almost_suicide.html)**</big></big>
+<big><big>**[Ewige Sicherheit Fördert Suizid (Mord), Teil 2](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/almost_suicide.html)**</big></big>
 
-<big><big>**[Rick Knapp Gets The Skull and Crossbones Award](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/rick_knapp_george_sodini.htm)**</big></big>
+<big><big>**[Rick Knapp Erhält Den Skull and Crossbones Award](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/rick_knapp_george_sodini.htm)**</big></big>
 
 **[Evangelical Outreach](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/index.html)**  
 **PO Box 265**  
