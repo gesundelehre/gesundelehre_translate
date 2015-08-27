@@ -1,5 +1,5 @@
-<!--t Selbstmord: Ein Schnelles Ticket Zur Hölle - in Arbeit (2% übersetzt) t-->
-<!--d Selbstmord: Ein Schnelles Ticket Zur Hölle - in Arbeit (2% übersetzt) d-->
+<!--t Selbstmord: Ein Schnelles Ticket Zur Hölle - in Arbeit (98% übersetzt) t-->
+<!--d Selbstmord: Ein Schnelles Ticket Zur Hölle - in Arbeit (98% übersetzt) d-->
 
 Selbstmord: Ein Schnelles Ticket Zur Hölle
 
@@ -22,11 +22,11 @@ Graphics copyright Evangelical Outreach
 ## STOP! Bringe Dich Selber NICHT Um!
 
 
-**_Suicide_ is commonly defined as _the taking of one's own life._ Tens of thousands of people a year in the United States alone commit suicide, according to a national statistic as of 1993 on suicide:**
+**_Suicide_ is commonly definiert als _the taking of one's own life._ Allein in den Vereinigten Staaten begehen jährlich Zehntausende von Leuten Suizid laut der nationalen Statistik von 1993 bezüglich Suizid:**
 
-> White men run the highest risk of suicide. In fact, they account for almost 75 percent of the **32,000 suicides a year in the United States.**
+> Weisse Männer haben das höchste Suizidrisiko. In der Tat, machen sie fast 75 Prozent der **32,000 Suizide eines Jahres in den Vereinigten Staaten.** aus.
 
-A different source yielded a slightly lower figure for 1993, but also stated a steady increase in suicides, except for 1992:
+Eine andere Studie ergab ein geringfügig tieferes Bild für 1993, besagte jedoch auch eine stetige Zunahme an Suiziden, ausgenommen für 1992:
 
 ![Suizid ist Selbstmord](../../files/pictures/why.jpg)
 
@@ -37,68 +37,68 @@ A different source yielded a slightly lower figure for 1993, but also stated a s
 >  1992 = 30,484 (männlich, 24,457; weiblich, 6,027)  
 >  1993 = 31,102 (männlich, 25,007; weiblich, 6,095)  
 
-<big>**[READ THIS! Life Long Temptation For Suicide Ended](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sj.htm)**</big>
+<big>**[LIES DIES! Eine Lebenslange Versuchung für Selbstmord Endete](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sj.htm)**</big>
 
-Those suicidal statistics show that women are much less apt to commit suicide than men, for some unknown reason.
+Diese Suizid-Statistiken zeigen, dass Frauen aus einem unbekannten Grund viel weniger gefährdet sind, Suizid zu begehen als Männer.
 
-One must wonder how anyone could consider **murdering himself** (committing suicide). Perhaps one reason for suicide is that these people think they will escape their pain and no longer be aware of anything, just as if they had never been born. There have even been death pacts made resulting in several people successfully murdering themselves together. They didn't realize what they were doing and where they would be heading for eternity, according to Scripture! Otherwise suicidal people would NOT have gone through with it.
+Man muss sich fragen, wie jemand in erwägen könnte **sich selbst zu ermorden** (Suizid begehen). Vielleicht ein Grund für Suizid ist, dass diese Leute denken, dass sie ihrem Schmerz entfliehen werden und nicht sich nicht länger irgendetwas bewusst sein werden, genau wie wenn sie nie geboren worden wären. Es wurden sogar schon Todespakte gemacht, die darin resultierten, dass mehrere Leute sich erfolgreich zusammen umbrachten. Sie realisierten dabei nicht, dass was sie taten und wohin sie laut der Bibel für die Ewigkeit unterwegs waren! Andererseits hätten suicidal Leute das NICHT durchgemacht.
 
-Others who have been religiously misled by **[eternal security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)** may think a person once saved will escape the agony of their compound painful problems by killing himself by going to heaven. For such a misled person, a heavenly paradise, through suicide, seems appealing and actually **[promotes suicide](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/suicide_testimony.htm)**!
+Andere, welche durch **[ewige Sicherheit](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)** religiös irregeführt wurden, denken vielleicht, eine Person die einmal gerettet war wird die Qual ihrer zusammengesetzten schmerzhaften Probleme entfliehen, indem sie sich selbst tötet indem sie in den Himmel kommt. Für solche eine irregeführte Person, scheint ein himmlisches Paradies durch Suizid ansprechend und [begünstigt/fördert eigentlich Suizid](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/suicide_testimony.htm)**!
 
 ## Wenn Ein Christ Selbstmord Begeht, Kommt Er In Den Himmel?
 
-That's another way of asking if a suicide who was once saved (a Christian) dies as an unrepentant, premeditated murderer, does he go to heaven?
+Dies ist eine andere Art zu sagen "Wenn ein Selbstmörder, der einmal gerettet war (ein Christ) als ein unbussfertiger, vorsätzlicher Mörder stirbt, kommt er dann in den Himmel?"
 
-**Remember this, like abortion, _suicide_ is just another name for murder.** However, to be more exact, **suicide is premeditated self-murder.** But even beyond this, **it is the kind of murder one cannot repent of**! Unlike **[King David](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/king-david-sinned.html)**, who had another person murdered but was later forgiven, suicide victims cannot **[repent](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html)** to find forgiveness.
+**Denk daran, wie Abtreibung ist _Suizid_ lediglich ein anderer Name für Mord.** Um Jedoch genauer zu sein, **Suizid ist vorsätzlicher Selbst-Mord.** Doch sogar jenseits davon, **es ist die Art von Mord, wovon man nicht Busse tun kann**! Im Gegensatz zu **[König David](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/king-david-sinned.html)**, der eine andere Person ermordet hatte, jedoch später vergeben wurde, Suizid Opfer können nicht **[Busse tun](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html)** um Vergebung zu finden.
 
 ## Die EINZIGE Zuverlässige Quelle Bezüglich Suizid
 
-The only reliable source to find out the spiritual facts about life after death, in connection with suicide, is the **[bible](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html)**--God's word to mankind. **Don't be deceived by a [false teacher](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm), all unforgiven murderers, without exception, do not have eternal life and will end up in the [lake of fire](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html):**
+Die einzig zuverlässige Quelle, um die geistlichen Fakten über Leben nach dem Tod herauszufinden, im Zusammenhang mit Suizid, ist die **[Bibel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html)**--Gottes Wort für die Menschheit. **Werde nicht Irregeführt von einem [falschen Lehrer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm), alle unverziehenen Mörder, ohne Ausnahme, haben kein ewiges Leben und werden im [Feuersee](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html) landen:**
 
-> Whoever hates his brother is a murderer, and you know that **no murderer has eternal life abiding in him** (1 Jn. 3:15, NKJV).
+> Jeder, der seinen Bruder haßt, ist ein Totschläger; und ihr wisset, daß **kein Totschläger ewiges Leben bleibend in sich hat.** (1 Joh 3,15; Schlachter 1951) 
 
-![Suicide will send you to hell. Don't do it!](../../files/pictures/eternalfire.gif)
+![Suizid wird dich in die Hölle bringen. Tu es nicht!](../../files/pictures/eternalfire.gif)
 
-> But the cowardly, unbelieving, abominable, **murderers**, sexually immoral, sorcerers, idolaters, and all liars shall have **their part in the lake which burns with fire and brimstone, which is the second death** (Rev. 21:8, NKJV).
+> Den Feiglingen aber und Ungläubigen und Greulichen und **Mördern** und Unzüchtigen und Zauberern und Götzendienern und allen Lügnern wird **ihr Teil sein in dem See, der von Feuer und Schwefel brennt; das ist der zweite Tod**. (Off 21,8; Schlachter 1951)
 
-No exception to the above is made anywhere in Scripture for a person who was once a Christian, then commits suicide because of a bad combination -- painful circumstances, hopelessness and a belief in eternal security (the belief that you can never go to hell once you become a Christian)!
+Es wird nirgends in der Bibel eine Ausnahme gemacht für eine Person, die einmal ein Christ war, dann Suizid begeht aufgrund einer schlechten Kombination -- schmerzhafte Umstände, Hoffnungslosigkeit und ein Glaube an ewige Sicherheit (der Glaube, dass man niemals in die Hölle kommen wird, sobald man ein Christ geworden ist)!
 
-## Mentale Illness und Suizid
+## Mentale Krankheit und Suizid
 
-Some have tried to excuse the sin of suicide (premeditated self-murder) with the following rationale: _If one is mentally ill, he isn't responsible for his actions._ **To excuse any form of murder this way, including self-murder, is not Scriptural. There is absolutely no Biblical backing for such a statement**! Besides, mental illness isn't the root of sin, the **heart** of man is. Jesus tells us where _murder_ proceeds from:
+Einige haben versucht, die Sünde von Suizid (vorsätzlicher Selbst-Mord) mit der folgenden vernunftsmässigen Erklärung zu entschuldigen: _Wenn jemand mental krank ist, so ist er nicht verantwortlich für sein Handeln._ **Jegliche Form von Mord auf diese Art zu entschuldigen, inklusive Selbst-Mord, ist nicht biblisch. Es gibt absolut keine biblische Unterstützung für so eine Aussage**! Ausserdem, mentale Krankheit ist nicht die Ursache von Sünde, das **Herz** des Menschen ist es. Jesus sagt uns wo _Mord_ herkommt:
 
-> What comes out of a man is what makes him unclean. For from **within, out of men's hearts come** evil thoughts, sexual immorality, theft, **murder**, adultery, greed, malice, deceit, lewdness, envy, slander, arrogance and folly. All these evils come from inside and make a man 'unclean' (Mk. 7:20-23, NIV).
+> Er sprach aber: Was aus dem Menschen herauskommt, das verunreinigt den Menschen.  Denn **von innen, aus dem Herzen des Menschen**, kommen die bösen Gedanken hervor, Ehebruch, Unzucht, **Mord**,  Diebstahl, Geiz, Bosheit, Betrug, Zügellosigkeit, Neid, Lästerung, Hochmut, Unvernunft. All dieses Böse kommt von innen heraus und verunreinigt den Menschen. (Mk 7,20-23; Schlachter2000)
 
-**Please note that _murder_ (regardless the form) comes from the _heart_ und ist laut dem Herrn keine geistige Krankheit!**
+**Bitte beachte, dass _Mord_ (ungeachtet der Form) aus dem _Herzen_ kommt und ist laut dem Herrn keine geistige Krankheit!**
 
-![Two people in hell fire. One was a suicide victim.](../../files/pictures/pic11.jpg)
+![Zwei Personen im Feuer der Hölle. Eine davon war ein Selbstmordopfer.](../../files/pictures/pic11.jpg)
 
-Such people who yield to this temptation won't be going to heaven, since they committed **murder** and couldn't repent of it!
+Solche Leute die dieser Versuchung nachgeben werden nicht in den Himmel kommen, da sie **Mord** begingen und nicht darüber Busse tun konnten!
 
-It is vitally important that suicide, like other satanic temptations, be steadfastly resisted. In other words, **don't even for a moment entertain suicidal thoughts.** Anyone who yields to this satanic temptation of murder, and becomes a suicide, will only be intensifying their own pain and misery in eternity, not escaping it! People in hell at this moment because of suicide would do anything to have the chance you have to reverse their actions but can't. It's too late forever for them.
+Es ist von entscheidender Bedeutung, dass Suizid, wie anderen satanischen Versuchungen auch, felsenfest widerstanden werden. Mit anderen Worten, **unterhalte nicht einmal für einen Moment Suizidgedanken.** Jeder der dieser satanischen Versuchung nach Mord nachgibt, und ein Selbstmörder wird, wird seinen Schmerz und seine Trübsal in Ewigkeit nur verstärken und nicht davon entfliehen! Leute, die in diesem Moment in der Hölle sind aufgrund von Suizid, würden alles tun, um die Chance zu haben, die du hast, um ihre Taten rückgängig zu machen, aber es geht nicht. Es ist für immer zu spät für sie.
 
-Lasting hope and peace can be found only in the Lord Jesus. If you were once saved, but have backslidden to the point where you are thinking about suicide, please repent and read these **[safeguards](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/safegard.html)** for your soul and put them into practice.
+Bleibende Hoffnung und Friede kann nur im Herrn Jesus gefunden werden. Wenn du einmal gerettet warst, aber rückfällig wurdest bis zum Punkt wo du über Suizid nachdenkst, bitte tue Busse und lies diese **[Schutzvorrichtungen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/safegard.html)** für deine Seele und setze sie in die Praxis um.
 
 GRAPHICS COPYRIGHT EVANGELICAL OUTREACH
 
 
-## <font color="magenta">The True Plan of Salvation For The Suicidal and Everyone</font>
+## <font color="magenta">Der Wahre Plan der Errettung Für The Suicidal und Jedermann</font>
 
-The true plan of salvation is repentance towards God and faith in Christ Jesus (Acts 20:21). We prove our repentance by our deeds (Acts 26:20). The Lord Jesus taught the road to life is **"hard"** and only a **"few"** will find it (Mt. 7:13,14, NKJV). Many get saved, but afterwards fall away (Lk. 8:13; Jn. 6:66; 1 Tim. 1:19; etc.). In other words, after initial salvation we must endure to the **"end"** to enter the kingdom of God and escape the lake of fire (Mt. 10:22; Heb. 3:14; Rev. 2:10,11). Eternal life comes to the repentant the moment such believe on Jesus for salvation (Jn. 3:16; 6:47; 1 Jn. 5:12,13), but there is another important aspect of eternal life that many are totally unware of in our day because of the false teaching of eternal security. **According to true grace teaching, eternal life is also a HOPE (Titus 3:7), yet to be REAPED (Gal. 6:8,9) in the AGE TO COME (Mk. 10:30) for only the ones who PERSIST IN DOING GOOD (Rom. 2:7) and DO NOT GROW WEARY AND GIVE UP (Gal. 6:9).**
+Der wahre Plan der Errettung ist Busse gegen Gott und Glaube an Jesus Christus (Apg. 20:21). Wir beweisen unsere Busse durch unsere Taten. (Apg. 26,20). Der Herr Jesus lehrte, dass der Weg zum Leben **"hart/schmal"** ist und nur ein **"paar"** ihn finden werden (Mt. 7,13-14). Viele werden gerettet doch fallen anschliessend wieder ab (Lk. 8,13; Jn. 6:66; 1 Tim. 1,19; etc.). Mit anderen WOrten, nach anfänglicher Errettung müssen wir bis zum **"Ende"** durchhalten, um ins Königreich Gottes zu kommen und dem Feuersee zu entkommen (Mt. 10,22; Heb. 3,14; Off. 2,10-11). Ewiges Leben kommt zum Bussfertigen in dem Moment wenn jener für die Errettung an Jesus glaubt (Joh. 3,16; 6,47; 1 Joh. 5,12-13), aber es gibt einen weiteren wichtigen Aspekt des ewigen Lebens wovon viele gänzlich nichts wissen heutzutage, aufgrund der falschen Lehre von ewiger Sicherheit. **Laut wahrer Gnadenlehre ist ewiges Leben auch eine HOFFNUNG (Titus 3,7), die noch zu ERNTEN ist (Gal. 6,8-9) im ZUKÜNFTIGEN ZEITALTER (Mk. 10,30) und nur für diejenigen, die AUSHARREN IM TUN DES GUTEN (Röm. 2,7) und NICHT MATT WERDEN UND AUFGEBEN (Gal. 6,9).**
 
-![suicide](../../files/pictures/023.gif)
+![suizid](../../files/pictures/023.gif)
 
-- **[Suicide And Eternal Security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/suicide-es.htm)**
+- **[Suizid und Ewige Sicherheit](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/suicide-es.htm)**
 
-- **[Eternal Security Promotes Suicide, Part 1](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/suicide_testimony.htm)**
+- **[Ewige Sicherheit Fördert Suizid, Teil 1](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/suicide_testimony.htm)**
 
-- **[Life Long Temptation For Suicide Ended](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sj.htm)**
+- **[Lebenslange Versuchung Für Suizid Endete](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sj.htm)**
 
-## The most exhaustive refutation to the teaching of eternal security ever written. 801 informative pages.
+## Die gründlichste Widerlegung der lehre der ewigen Sicherheit die jemals geschrieben wurde. 801 informative Seiten.
 
 
 
-<small>Click on the book</small>[![eternal security book](../../files/pictures/TBCS.jpg "eternal security book")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html)
+<small>Klicke auf das Buch</small>[![ewige sicherheit buch](../../files/pictures/TBCS.jpg "ewige sicherheit buch")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  
@@ -108,3 +108,6 @@ The true plan of salvation is repentance towards God and faith in Christ Jesus (
 **www.EternalLifeBlog.com**
 
 **[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+
+<small>Version Schlachter1951 (c) Genfer Bibelgesellschaft</small>  
+<small>Version Schlachter2000 (c) Genfer Bibelgesellschaft</small>
