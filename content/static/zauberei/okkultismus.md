@@ -1,5 +1,5 @@
-<!--t Das Okkulte - in Arbeit (0% übersetzt) t-->
-<!--d Das Okkulte - in Arbeit (0% übersetzt) d-->
+<!--t Das Okkulte - in Arbeit (98% übersetzt) t-->
+<!--d Das Okkulte - in Arbeit (98% übersetzt) d-->
 
 Das Okkulte
 
@@ -18,125 +18,125 @@ Quelle: [www.evangelicaloutreach.org/occult.htm](http://gesundelehre.tk/forwarde
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-![dangers of the occult](../../files/pictures/evangelical-occult.jpg)
+![gefahren des okkulten](../../files/pictures/evangelical-occult.jpg)
 
-![dangers of the occult](../../files/pictures/a-colorb.gif)
+![gefahren des okkulten](../../files/pictures/a-colorb.gif)
 
-## The Spiritual DANGERS of the Occult
+## Die Geistlichen GEFAHREN dse Okkulten
 
-**The word _occult_ means _hidden._ It is a dark power and practice strictly forbidden by God being disallowed in Scripture. It is soul damning sin:**
+**Das Wort _okkult_ bedeutet _verborgen._ Es ist eine dunkle Kraft und Praktik, welche strikt durch Gott dadurch verboten wurde, in dem es in der Bibel verweigert wurde. Es ist Seelen verdammende Sünde:**
 
-[![](../../files/pictures/never-call-on-an-angel.jpg "angels spiritual deception")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/religious-deception.html)
+[![](../../files/pictures/never-call-on-an-angel.jpg "engel geistliche täuschung")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/religious-deception.html)
 
-> When you enter the land the LORD your God is giving you, **do not learn to imitate the detestable ways of the nations there. Let no one be found among you who** sacrifices his son or daughter in the fire, who **practices divination or sorcery, interprets omens, engages in witchcraft, or casts spells, or who is a medium or [spiritist](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritism.htm) or who consults the dead. Anyone who does these things is detestable to the LORD,** and because of these detestable practices the LORD your God will drive out those nations before you. (Deu 18:9-12)
+> Wenn du in das Land kommst, das der HERR, dein Gott, dir gibt, **so sollst du nicht lernen, nach den Greueln jener Heidenvölker zu handeln. Es soll niemand unter dir gefunden werden**, der seinen Sohn oder seine Tochter durchs Feuer gehen läßt, oder einer, der **Wahrsagerei betreibt oder Zeichendeuterei oder ein Beschwörer oder ein Zauberer, oder einer, der Geister bannt, oder ein Geisterbefrager [=Medium], oder ein [Hellseher](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritism.htm) oder jemand, der sich an die Toten wendet. Denn wer so etwas tut, ist dem HERRN ein Greuel**, und um solcher Greuel willen vertreibt der HERR, dein Gott, sie vor dir aus ihrem Besitz. (5. Mose 18,9-12; Schlachter2000)
 
-> But the cowardly, the unbelieving, the vile, the murderers, the sexually immoral, **those who practice MAGIC ARTS,** the idolaters and all liars--**their place will be in the fiery lake of burning sulfur. This is the second death.** (Rev 21:8)
+> Den Feiglingen aber und Ungläubigen und Greulichen und Mördern und Unzüchtigen und **ZAUBERERN** und Götzendienern und allen Lügnern **wird ihr Teil sein in dem See, der von Feuer und Schwefel brennt; das ist der zweite Tod.** (Off 21,8, Schlachter1951)
 
-<big>**[Click Here To Learn About _Near Death Experiences_](#occult)**</big> 
+<big>**[Klicke Hier Um Über _Nah Tod Erfahrungen_ zu Lernen](#occult)**</big> 
 
-The dangers of the occult will therefore extend far beyond this life. They will stretch into eternity and the lake of fire for unrepentant occultists. Occult dangers are therefore of the **[greatest danger that exists](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/greatest-danger.html)**! It must also be stressed that occult new age _spirit guides_ are really demons. In fact, demons are the real and only power behind the occult! The danger of witchcraft is a form of **[religious deception](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/religious-deception.html)** which may include miracles and even accurate predictions at times. The tools used range from the ouija boards to crystal balls. Harry Potter, though fictitious, represents a wizard and is no wholesome role model for children or adults. Take warning and avoid the occult. IF you have been involved in the occult and desire to be set free and forgiven, repent and go to the Lord Jesus in humble and sincere prayer for mercy. Click to read the **[Biblical plan of salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**.
+Die Gefahren des Okkulten werden daher weit über dieses leben hinausgehen. Sie reichen bis in die Ewigkeit und den Feuersee für die unbussfertigen Okkultisten. Okkulte Gefahren sind daher von den **[grössten Gefahren, welche existieren](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/greatest-danger.html)**! Es muss auch betont werden, dass New Age _Geisterführer_ [engl. spirit guides] in Wahrheit Dämonen sind. In der Tat sind Dämonen die reale und einzige Kraft hinter dem Okkulten! Die Gefahr von Hexerei ist eine Form von **[religiöser Verführung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/religious-deception.html)**, welche eventuell Wunder und sogar exakte Voraussagen beinhalten kann. Die Instrumente reichen von Ouija Brettern zu Kristallkugeln. Harry Potter, obgleich fiktiv, repräsentiert einen Zauber und ist kein gesundes Vorbild für Kinder oder Erwachsene. Lass dich warnen [engl. take warning] und meide das Okkulte. FALLS du bereits im Okkulten involviert warst und wünschst davon frei und vergeben zu werden, tue Busse und gehe zum Herrn Jesus in demütigem und aufrichtigem Gebet um Barmherzigkeit. Klicke um den **[biblischen Plan der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)** zu lesen.
 
 ![Gefahren des Okkulten](../../files/pictures/a-colorb.gif)
 
 <span class="inline-images">
-![Angels](../../files/pictures/redball.gif)**[Angels, Demons and Satan](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/angels.html) | [Audio (wma)](http://media10.cqservers.com/evangelicaloutreach.org/060105.wma)**
+![Engel](../../files/pictures/redball.gif)**[Engel, Dämonen und Satan](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/angels.html) | [Audio (wma)](http://media10.cqservers.com/evangelicaloutreach.org/060105.wma)**
 
-> Without writing a thick volume on angels, demons and Satan, let's proceed with some answers from the only reliable source that God has given mankind - the Bible. Sadly many have been misinformed about these, especially those involved in the occult.
+> Ohne einen dicken Band über Engel, Dämonen und Satan zu schreiben, let's proceed mit einigen Antworten von der einzigen zuverlässigen Quelle, die Gott der Menschheit gegeben hat - der Bibel. Traurigerweise wurden viele über jene falsch informiert, besonders jene, die im okkulten involviert sind.
 </span>
 
 <span class="inline-images">
-![nostradamus](../../files/pictures/redball.gif)**[The Facts About Nostradamus and His Prophecies](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nostradamus-2.html)** These facts about Nostradamus are truly shocking and very little known!
+![nostradamus](../../files/pictures/redball.gif)**[Die Fakten Über Nostradums und Seine Prophetien](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nostradamus-2.html)** Diese Fakten über Nostradamus sind schockierend und sehr wenig bekannt!
 </span>
 
 <span class="inline-images">
-![Harry Potter](../../files/pictures/redball.gif)**[Harry Potter, the wizard from Hell](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/harry_potter.htm)** (video of radio interview out of Dublin, Ireland)
+![Harry Potter](../../files/pictures/redball.gif)**[Harry Potter, der Zauberer aus der Hölle](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/harry_potter.htm)** (video of radio interview out of Dublin, Ireland)
 </span>
 
 <span class="inline-images">
-![aliens and religion](../../files/pictures/redball.gif)[**Aliens and Religion Do NOT Mix**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/aliens-and-religion.html)
+![aliens und religion](../../files/pictures/redball.gif)[**Aliens und Religion Lassen sich NICHT vermischen**](	http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/aliens-and-religion.html)
 </span>
 
-[![occult occultic demons satan](../../files/pictures/occultic.png "Occult witchcraft demons satanic")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritism.htm)
+[![okkult okkultisch dömonen satan](../../files/pictures/occultic.png "Okkultismus Hexerei Dämonen satanisch")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritism.htm)
 
 <span class="inline-images">
-> The belief in **[ufos and aliens](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/aliens-and-religion.html)** is very much alive and well throughout the world! Many people from all walks of life and from around the globe claim to have seen ufos, dead aliens and/or even say they were _abducted into a ufo_ and given a _medical examination_ by the child-size, hairless _greys,_ who have large oblong black eyes and large heads! What is the religious message associated with all of that?
-</span>
-
-<span class="inline-images">
-![Book of Enoch](../../files/pictures/redball.gif) **[A Critical Examination of The Book of Enoch](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/enoch.htm)**
-
-> In A Critical Examination of the Book of Enoch (BOE) you will be exposed to solid reasons to reject this book from antiquity as a source of spiritual truth.
+> Der Glaube an **[UFOs und Aliens](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/aliens-and-religion.html)** ist sehr wohl lebendig und wohlauf auf der ganzen Welt! Viele Leute von allen walks of life und von rund um den Globus behaupten Ufos gesehen zu haben, tote Aliens, und/oder sagen sogar, sie wurden _in ein UFO entführt_ und _medizinisch untersucht_ durch die kindsgrossen, haarlosen _grauen,_ die grosse langformatige schwarze Augen und grosse Köpfe haben! Was ist die religiöse Botschaft, die mit all dem verbunden ist?
 </span>
 
 <span class="inline-images">
-![Halloween](../../files/pictures/redball.gif)**[Halloween and the Christian (Text Article)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Halloween.html) | [Halloween Radio Interview From Ireland](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/halloween.mp3) (mp3)**
+![Das Buch Henoch](../../files/pictures/redball.gif) **[Eine Kritische Untersuchung des Buches Henoch](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/enoch.htm)**
 
-> Is Halloween innocent or a dark practice that should be hated, avoided, not immitated and exposed by Christians?
+> In Einer kritischen Untersuchtung des Buches Henoch (BOE - Book of Enoch) wirst du mit soliden Gründen konfrontiert, dieses altertümliche Buch als Quelle für Spirituelle Wahrheit abzulehnen.
 </span>
 
-
 <span class="inline-images">
-![Nostradamus](../../files/pictures/redball.gif)**[The Facts About Nostradamus And His Prophecies](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nostradamus.html)**
+![Halloween](../../files/pictures/redball.gif)**[Halloween und der Christ (Text Article)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Halloween.html) | [Halloween Radio Interview Aus Ireland](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/halloween.mp3) (mp3)**
 
-> Was he a prophet or demon possessed occultist?
+> Ist Halloween arglos/harmlos oder eine dunkle Praktik/Praxis welche gehasst, gemieden, nicht imitiert und aufgedeckt werden sollte durch Christen?
 </span>
 
 
 <span class="inline-images">
-![Dreams](../../files/pictures/redball.gif)**[Dreams In The Bible](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/dreams.htm)**
+![Nostradamus](../../files/pictures/redball.gif)**[Die Fakten Übber Nostradamus Und Seine Prophezeihungen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nostradamus.html)**
 
-> You are about to read what the Bible says about dreams. This is a hot topic in our day and should be carefully studied because many have been seriously deceived by such.
+> War er ein Prophet oder ein dämonenbesessener Okkultist?
+</span>
+
+
+<span class="inline-images">
+![Träume](../../files/pictures/redball.gif)**[Träume In Der Bibel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/dreams.htm)**
+
+> Du bist im Begriff zu lesen, was die Bibel über Träume sagt. Dies ist ein heisses Thema heutzutage und sollte deshalb sorgfältig studiert werden, weil viele ernsthaft durch solche irregeführt wurden.
 </span>
 
 <span class="inline-images">
-![Psychic Or God's Word](../../files/pictures/redball.gif)**[A Psychic Vs God's Word](../../files/pictures/psychic-and-christian.pdf)**
+![Psychic Oder Gottes Wort](../../files/pictures/redball.gif)**[Ein Psychic kontra Gottes Wort](../../files/pictures/psychic-and-christian.pdf)**
 
-![psychic occult](../../files/pictures/psychic-lady.jpg)
+![psychic okkult](../../files/pictures/psychic-lady.jpg)
 
-> Print a great pdf tract about this serious subject.
+> Drucke ein spitzemässiges Traktat aus über dieses Thema.
 </span>
 
 <span class="inline-images">
-![Ouija Board](../../files/pictures/redball.gif)**[The Dangers of the Ouija Board](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ouija.htm)**
+![Ouija Brett](../../files/pictures/redball.gif)**[Die Gefahren des Ouija Brettes](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ouija.htm)**
 
-> One of the chief tools used in divination is the Ouija Board. Is it a harmless game?
+> Eines der Haupt-Werkezeuge die in divination benutzt werden ist das Ouija Brett. Ist es ein harmloses Spiel?
 </span>
 
 <span class="inline-images">
-<a name="occult"></a>![NDE](../../files/pictures/redball.gif)**[Near Death Experiences](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nde.html)**
+<a name="occult"></a>![NDE](../../files/pictures/redball.gif)**[Nah Tod Erfahrungen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nde.html)**
 
-> Among a few others, near death experiences (NDE) are a popular and effective way the devil has been deceiving people about the afterlife.
+> Nebst ein paar anderen Wegen sind Nahtoderfahrungen (NDE - Near Death Experiences) eine beliebte und effektive Art wie der Teufel Leute bezüglich des Lebens nach dem Tode irregeführt hat.
 </span>
 
 <span class="inline-images">
-![Miracles](../../files/pictures/redball.gif)**[Miracles - Two Sources](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/miracles.html)**
+![Wunder](../../files/pictures/redball.gif)**[Wunder - Zwei Ursprünge](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/miracles.html)**
 
-> Miracles come through two sources - God and the devil!
+> Wunder kommen durch zwei Urpsrünge/Quellen - Gott und den Teufel!
 </span>
 
 <span class="inline-images">
-![Reincarnation](../../files/pictures/redball.gif)**[Reincarnation: Does It Exist?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/reincarnation.htm)**
+![Reinkarnation](../../files/pictures/redball.gif)**[Reinkarnation: Existiert Sie?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/reincarnation.htm)**
 
-> There is no reincarnation after our death for we will die only once (see Heb. 9:27). But there are other clear passages that prove the same.
+> Es gibt keine Reinkarnation nach unserem Tod, denn wir werden nur einmal sterben (siehe Heb9,27). Es gibt jedoch andere Verse, die dasselbe beweisen.
 </span>
 
 <span class="inline-images">
-![Spiritism](../../files/pictures/redball.gif)**[Beware of Spiritism](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritism.htm)**
+![Spiritismus](../../files/pictures/redball.gif)**[Hüte dich vor Spiritismus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritism.htm)**
 
-> Beware of consulting witches, wizards, sorcerers, fortune tellers, mediums, diviners and necromancers! Have nothing to do with palmistry, tea leaf reading, Tarot card reading, crystal reading, Ouija boards, astrology, horoscopes or black magic in any form! "Why?" you may ask. Because ALL of these are condemned by the Bible! They are not good, but evil, according to the Creator of this universe. You will become spiritually defiled by just seeking out such.
+> Hüte dich davor, Hexen, Zauberer, Magier, Kartenleger, Medien, Wahrsager/Wünschelrutengänger oder Nekromancer zu konsultieren! Habe nichts zu tun mit Handlesekunst/Handlinienlesen, Teebeutellesen/Kaffesatzlesen, Tarot Karten lesen, Kristall lesen, Ouija Brettern, Astrologie, Horoskopen oder schwarzer Magie in jeder Form! "Warum?" wirst du vielleicht fragen. Weil ALLE diese von der Bibel verurteilt/verdammt werden! Sie sind nicht gut, sondern böse, laut dem Schöpfer dieses Universums. Dadurch dass du nur schon solches aufsuchst wirst du geistlich verunreinigt.
 
 </span>
-![witch casting spells](../../files/pictures/WitchSpells.png)
-<span class="inline-images">
+
+![hexe casting spells](../../files/pictures/WitchSpells.png)
 
 <span class="inline-images">
-![Witchcraft](../../files/pictures/redball.gif)**[The Woes of Witchcraft](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/witchcraftwoes.html)** (A true testimony)
+![Hexerei](../../files/pictures/redball.gif)**[The Woes of Witchcraft](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/witchcraftwoes.html)** (Ein wahres Zeugnis)
 
-> My experience with the occult really started with the Ouija Board. I thought that I was just playing and having fun, ignorantly opening my life and my parents' house to all types of demonic activities.
+> Meine Erfahrung mit dem Okkulten really begann mit dem Ouija Brett. Ich dachte, dass ich lediglich spielte und Spass hatte, und öffnete unwissentlich mein Leben und das Haus meiner Eltern für alle Arten von dämonischen Aktivitäten.
 </span>
 
 <span class="inline-images">
-![Letter from Spiritist](../../files/pictures/redball.gif)**[Letter from (and response to) a Brazilian Spiritist](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritist.html)**
+![Brief von Spiritist](../../files/pictures/redball.gif)**[Brief von (und Antwort zu) einem brasilianischen Spiritisten](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritist.html)**
  </span>
  
  ![](../../files/pictures/a-colorb.gif)
@@ -144,10 +144,13 @@ The dangers of the occult will therefore extend far beyond this life. They will 
 All scripture quotations, unless otherwise indicated, are taken from the HOLY BIBLE, NEW INTERNATIONAL VERSION, NIV, Copyright 1973, 1978, 1984 by International Bible Society. Used by permission of Zondervan. All rights reserved.
  
 **Evangelical Outreach**  
- **PO Box 265**  
- **Washington, PA 15301**
+**PO Box 265**  
+**Washington, PA 15301**
  
 **EvangelicalOutreach**  
- **EternalLifeBlog.com**
+**EternalLifeBlog.com**
  
- **[Contact Us or Join Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+**[Kontaktiere Uns oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+
+<small>Version Schlachter1951 (c) Genfer Bibelgesellschaft</small>    
+<small>Version Schlachter2000 (c) Genfer Bibelgesellschaft</small>
