@@ -1,5 +1,5 @@
-<!--t Ewige Sicherheit Fördert Suizid (Mord), Teil 2 - in Arbeit (0% übersetzt) t-->
-<!--d Ewige Sicherheit Fördert Suizid (Mord), Teil 2 - in Arbeit (0% übersetzt) d-->
+<!--t Ewige Sicherheit Fördert Suizid (Mord), Teil 2 - in Arbeit (95% übersetzt) t-->
+<!--d Ewige Sicherheit Fördert Suizid (Mord), Teil 2 - in Arbeit (95% übersetzt) d-->
 
 Ewige Sicherheit Fördert Suizid (Mord), Teil 2
 
@@ -18,25 +18,25 @@ Quelle: [www.evangelicaloutreach.org/almost_suicide.htm](http://gesundelehre.tk/
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 
-## I Almost Committed Self-Murder!
+## Ich Beging Beinahe Selbst-Mord!
 
-I just read your paper on _self murder._ A little over four years ago, **I used to believe in [eternal security](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/eternal-security.html)**.
+Ich las gerade Ihr Schreiben bezüglich _Selbstmord._ Vor ein wenig mehr als vier Jahren, **glaubte ich an [ewige Sicherheit](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/eternal-security.html)**.
 
-[![suicide](../../files/pictures/almost-suicide.jpg "Once saved always saved sometimes leads to suicide.")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/suicide-es.htm)
+[![Suizid](../../files/pictures/almost-suicide.jpg "Einmal Gerettet Immer Gerettet führt manchmal zu Suizid.")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/suicide-es.htm)
 
-That was just the way I was brought up. I remember everyday I would do something that was not pleasing to the Lord and I would briefly say, “sorry Lord forgive me” then do it again the next day and believe if I just said sorry I was okay with God.
+Dies war einfach die Art, wie ich erzogen wurde. Ich erinnere mich daran, dass ich täglich etwas tat, was dem Herrn nicht gefiel und ich kurz sagte, "tut mir leid Herr vergib mir" um es am nächsten Tag wieder zu tun und ich glaubte dass wenn ich einfach "tschuldigung" sagte, dass Gott dann mit mir zufrieden wäre.
 
-My junior year in high school the year of 2004 I woke up in the morning with so much anxiety and just fear I went down stairs just crying. I literally felt like I was going crazy. My mom tried calming me down. I sent her to get something for me out of my car. When she walked out. I went to my kitchen and grabbed a bottle of pills and I remember just looking at a handful of pills in one hand and holding a glass of water in the other, **hearing a voice in my head saying  “just do it!, if you do, all your troubles will go away”  so I swallowed all the pills.** Next thing I knew I was in the ambulance being rushed to the hospital for what I did. **I praise God that I did not die that day. If I did, I know I would be in burning in hell regretting that day.** Praise Jesus for His mercy and grace.
+My junior year in high school das Jahr 2004. Ich wachte auf am Morgen mit so viel Besofgnis und Angst, dass ich einfach schreiend die Treppe runterging. Es fühlte sich wortwörtlich so an, als würde ich verrückt werden. Meine Mutter versuchte, mich zu beruhigen. Ich sandte sie um für mich etwas aus meinem Auto zu holen. Als sie herauslief, ging ich ging in meine Küche und schnappte mir eine Flasche von Pillen und ich erinnere mich daran einfach daran, eine handvoll Pillen in der einen Hand zu sehen und in der anderen Hand, wie ich ein Glas voll Wasser hielt und ich hörte eine Stimme in meinem Kopf, die mir sagte "Tu's einfach!, Wenn du es tust, so werden all deine Sorgen weggehen" und so schluckte ich die Pillen.** Das Nächste was ich wusste, war, dass ich im Krankenwagen war schnell ins Spital gefahren wurde aufgrund dessen, was ich getan hatte. **Ich lobe Gott dafür, dass ich an diesem Tag nicht starb. Ich weiss, dass wenn ich gestorben wäre, so würde ich jetzt in der Hölle am brennen sein und diesen Tag bereuen.** Gelobt sei Jesus für seine Barmherzigkeit und Gnade.
 
 ______________
 
-Read **[Eternal Security Promotes Suicide](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/suicide_testimony.htm)**
+Lies **[Ewige Sicherheit Begünstigt Suizid](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/suicide_testimony.htm)**
 
-To read and/or listen to the sad **George Sodini** story of multiple homicides and his own suicide, click the video link at the  **_[Rick Knapp Gets The Skull and Crossbones Award](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/rick_knapp_george_sodini.htm)_**.  (Knapp was a former pastor of Sodini's who taught him that even a mass murderer who was once saved will go to heaven.)
+Um die traurige Geschichte von **George Sodini** zu lesen bezüglich mehreren Morden und seinem eigenen Selbstmorde, klicke den Video Link at the  **_[Rick Knapp Erhält Den Skull and Crossbones Award](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/rick_knapp_george_sodini.htm)_**.  (Knapp war der ehemalige Pastor von Sodini, der ihn lehrte, dass sogar ein Massenmörder, der zuvor einmal gerettet war, in den Himmel kommt.)
 
 - - -
 
-**[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/contact.html)**
+**[Kontaktiere Uns oder Geselle Dich zu unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/contact.html)**
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/index.html) Outreach**  
  **PO Box 265**  
