@@ -26,7 +26,7 @@ The pastor and this Sunday school teacher told the four children left behind, an
 
 
 
-**<u>Approximately three months later, the pastor’s own grandson decided to kill himself also.</u>  The same lie was told:He is in heaven.**
+**<u>Approximately three months later, the pastor’s own grandson decided to kill himself also.</u> The same lie was told: He is in heaven.**
 
 
 

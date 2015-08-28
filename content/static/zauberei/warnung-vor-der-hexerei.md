@@ -19,7 +19,7 @@ Quelle: [www.evangelicaloutreach.org/witchcraftwoes.htm](http://gesundelehre.tk/
 
 ![testimony of a former witch](../../files/pictures/a-colorb.gif)
 
-## From The Ouija Board and Witchcraft To JESUS
+## Vom Ouija Brett und Hexerei zu JESUS
 
 It was a warm sunny day ... My husband ... was occupying the free-speech area while I went for a walk. Under the breezeway I could not help but see a lengthy line of young people waiting for something. As I walked to the beginning of this long line, I noticed a big neon sign that read, "PSYCHIC FAIR."
 
@@ -85,9 +85,9 @@ I was deceived by many of the practices of the occult because they had a cloak o
 
 God has given me a wonderful husband and has put us in the ministry ... trying to bring others to the same knowledge of the Lord Jesus Christ for the glory of God. It has now been many years, and the only regret I have is that I hadn't known the joy of loving Christ before.
 
-## [Here Are SHOCKING Facts About Nostradamus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nostradamus-2.html)
+## [Hier Sind SCHOCKIERENDE Fakten Über Nostradamus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nostradamus-2.html)
 
-## Don't Wait Until it is Too Late.
+## Warte Nicht Bis es zu Spät Ist.
 
 > Deu 18:10-12
 >  "There shall not be found among you any one that maketh his son or his daughter to pass through the fire, or that useth **divination** [foretelling of future events by the aid of other than natural means], or an **observer of times** [horoscopes], or an **enchanter** [one who uses the magic arts, spells or charms], or a **witch** [a woman who practices sorcery or enchantment], or a **charmer** [one that practices **[sorcery](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritism.htm)** through charms], or a **consulter with familiar spirits** [a medium or channeler], or a **wizard** [a male witch], or a **necromancer** [one who communicates with the dead]. For all that do these things are an **<u>ABOMINATION</u>** unto the LORD: and because of these abominations the LORD thy God doth drive them out from before thee."
@@ -95,13 +95,13 @@ God has given me a wonderful husband and has put us in the ministry ... trying t
 > Isa 47:12-14
 >  "Stand now with thine **enchantments,** and with the multitude of thy **sorceries,** wherein thou hast laboured from thy youth; if so be thou shalt be able to profit, if so be thou mayest prevail. Thou art wearied in the multitude of thy counsels. Let now the **astrologers,** the **stargazers,** the **monthly prognosticators**, stand up, and save thee from these things that shall come upon thee. Behold, <u>they shall be as stubble</u>; the <u>fire shall burn them</u>; they shall not deliver themselves from the power of the flame."
 
-![testimony of a former witch](../../files/pictures/a-colorb.gif)
+![zeugnis einer ehemaligen hexe](../../files/pictures/a-colorb.gif)
 
-- **[Gospel Tracts and How To Use Them For Evangelism](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tracts.htm)**
+- **[Evangeliumstraktate Und Wie Man Sie Für Evangelisation Gebrauchen Kann](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tracts.htm)**
 
-- **[Christian Evangelism](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-evangelism.html)**
+- **[Christliche Evangelisation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-evangelism.html)**
 
-- **[Spread and Protect The Gospel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/entrusted.htm)**
+- **[Verbreite und Beschütze Das Evangelium](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/entrusted.htm)**
 
 **[Evangelical Outreach](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)**  
 **PO Box 265**  
@@ -110,4 +110,4 @@ God has given me a wonderful husband and has put us in the ministry ... trying t
 **www.EvangelicalOutreach.org**  
 **www.EternalLifeBlog.com**
 
-**[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+**[Kontaktiere Uns oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**

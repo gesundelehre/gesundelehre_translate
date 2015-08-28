@@ -109,3 +109,6 @@ Manasseh was an Old Testament example of a person who "practiced sorcery, divina
 **EternalLifeBlog.com**
 
 **[Contact Us or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+
+<small>Version Schlachter1951 (c) Genfer Bibelgesellschaft</small>    
+<small>Version Schlachter2000 (c) Genfer Bibelgesellschaft</small>

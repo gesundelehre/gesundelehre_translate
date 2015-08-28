@@ -77,8 +77,8 @@ Getting _born again_ occurs at the point of a trusting-and-submitting faith in J
 **VERY IMPORTANT: The Bible refers to the term _salvation_, or a derivative of it, such as _saved,_ in two different ways.** At times it is used in reference to _initial salvation_ and at other times for _final salvation_. **(Initial salvation refers to the point of getting saved or being _born again_ while final salvation refers to _an actual entrance into God's kingdom_ after physical death.)**
 
 
-
-## <a name="verses"></a> _The Gospel of Jesus Christ_ Verses
+<a name="verses"></a>
+## _The Gospel of Jesus Christ_ Verses
 
 [![gospel of Jesus Christ](../../files/pictures/GOSPEL-of-Jesus-Christ.png "Which gospel is the real gospel of Jesus Christ? You must examine all the scriptures to know.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/whichgospel.htm)
 

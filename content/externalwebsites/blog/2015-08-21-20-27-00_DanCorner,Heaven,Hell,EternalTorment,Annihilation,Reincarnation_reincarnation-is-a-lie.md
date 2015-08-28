@@ -146,15 +146,11 @@ Remember, **reincarnation** is a false teaching. **Jesus did not teach reincarna
 
 - **[Near Death Experience](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nde.html)**
 
-**[Evangelical Outreach](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)**
-
-**PO Box 265**
-
+**[Evangelical Outreach](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)**  
+**PO Box 265**  
 **Washington, PA 15301**
 
-
-**EvangelicalOutreach.org**
-
+**EvangelicalOutreach.org**  
 **EternalLifeBlog.com**
 
 [**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
