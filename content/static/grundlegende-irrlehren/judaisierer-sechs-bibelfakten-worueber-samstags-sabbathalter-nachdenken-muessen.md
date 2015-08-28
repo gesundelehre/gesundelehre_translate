@@ -6,7 +6,7 @@ Judaisierer: 6 Bibelfakten worüber Samstags-Sabbathalter nachdenken müssen
 - - -
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/sabbath6facts.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sabbath6facts.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-irrlehren/judaisierer-sechs-bibelfakten-worueber-samstags-sabbathalter-nachdenken-muesse.md) auf github beim Übersetzen helfen und anschliessend einen pull-request mit deinem Übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei hier übernehmen)
+# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/sabbath6facts.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sabbath6facts.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-irrlehren/judaisierer-sechs-bibelfakten-worueber-samstags-sabbathalter-nachdenken-muessen.md) auf github beim Übersetzen helfen und anschliessend einen pull-request mit deinem Übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei hier übernehmen)
 
 Quelle: [www.evangelicaloutreach.org/sabbath6facts.htm](http://gesundelehre.tk/forwarder.php?url=www.evangelicaloutreach.org/sabbath6facts.htm)
 
