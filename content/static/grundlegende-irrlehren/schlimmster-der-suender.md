@@ -1,5 +1,5 @@
-<!--t Schlimmster Der Sünder (Römer 7,14-20) - in Arbeit (5% übersetzt) t-->
-<!--d Schlimmster Der Sünder (Römer 7,14-20) - in Arbeit (5% übersetzt) d-->
+<!--t Schlimmster Der Sünder (Römer 7,14-20) - in Arbeit (50% übersetzt) t-->
+<!--d Schlimmster Der Sünder (Römer 7,14-20) - in Arbeit (50% übersetzt) d-->
 
 Schlimmster Der Sünder (Römer 7,14-20)
 
@@ -42,15 +42,15 @@ Some have erroneously alluded to that Roman's passage by saying it's _normal Chr
 
 > Die Erfahrung die in Römer 7,14-25 beschrieben wird, ist die eines jeden echten Christen. (Arthur Pink)
 
-Misapplying this Roman's passage to Paul, Gromacki and [**John MacArthur**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/John-MacArthur.html) respectively wrote:
+Diese Passage aus dem Römerbrief falsch auf Paulus anwendend, schrieben Gromacki und [**John MacArthur**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/John-MacArthur.html) in dieser Reihenfolge:
 
 > Paulus sagte, dass er "unter Sünde verkauft" war (Röm7,14). **Sünde besass und kontrollierte ihn; er war dessen Sklave.**
 
 > Romans 7 is the classic text describing the believer's struggle with his sinful flesh. Note that while **Paul acknowledged his own disobedience** ....
 
-**Remember this, we should always compare Scripture with Scripture when studying the [Bible](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html).**
+**Denk daran, wir sollten immer Schrift mit Schrift vergleichen, wenn wir die [Bibel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) studieren**.
 
-[![schlimmster der sünder](../../files/pictures/man-in-hell-because-of-eternal-security.jpg "Church-goer in hell who thought if Paul was the worst of sinners he could be sinful and a Christian too because of eternal security.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternaltorment.html)
+[![schlimmster der sünder](../../files/pictures/man-in-hell-because-of-eternal-security.jpg "Kirchengänger in Hölle, der dachte wenn Paulus der Schlimmste der Sünder war, so könnte er auch sündhaft und ein Christ sein aufgrund von ewiger Sicherheit.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternaltorment.html)
 
 **If this is done, it will become apparent that Paul didn't _keep on doing_ (Rom. 7:19) sinful things, as he frequently taught against; neither was he _unspiritual_ (v. 14).** Let's journey around the New Testament to learn more about Rom. 7:14-20.
 
@@ -58,55 +58,55 @@ Misapplying this Roman's passage to Paul, Gromacki and [**John MacArthur**](http
 
 Bitte beachte was Paulus über sich selbst schrieb in seinem ersten Brief an die Korinther:
 
-> He [Timothy] will remind you of **my way of life in Christ Jesus, which agrees with what I teach everywhere in every church** (1 Cor. 4:17, NIV).
+> ... daß er [Timotheus] euch erinnere **meiner Wege, die da in Christo sind, gleichwie ich an allen Enden in allen Gemeinden lehre.** (1.Kor 4,17; Luther 1545)
 
 Paul's _way of life_ (or behavior) agreed with what he taught all the churches. So what did Paul teach Christians about behavior? Among other things, he taught:
 
-> But among you there must **not be even a hint of sexual immorality,** or of **any kind of impurity, or of greed,** because these are improper for God's holy people. **Nor should there be obscenity, foolish talk or coarse joking,** which are out of place, **but rather thanksgiving** (Eph. 5:3,4, NIV).
+> **Unzucht aber und alle Unreinigkeit oder Habsucht werde nicht einmal bei euch genannt**, wie es Heiligen geziemt; **auch nicht Schändlichkeit und albernes Geschwätz, noch zweideutige Redensarten**, was sich nicht geziemt, **sondern vielmehr Danksagung.** (Eph 5,3-4; Schlachterbibel 1951)
 
-> Put to death, therefore, whatever belongs to your earthly nature: **sexual immorality, impurity, lust, evil desires and greed,** which is idolatry. Because of these, the wrath of God is coming. You used to walk in these ways, in the life you once lived. **But now you must rid yourselves of all such things as these: anger, rage, malice, slander, and filthy language from your lips. Do not lie to each other, since you have taken off your old self with its practices** (Col. 3:5-9, NIV).
+> Tötet nun eure Glieder, die auf Erden sind: **Unzucht [=Hurerei], Unreinigkeit, Leidenschaft, böse Lust und die Habsucht**, welche Götzendienst ist; um welcher Dinge willen der Zorn Gottes über die Kinder des Unglaubens kommt; in welchen auch ihr einst wandeltet, als ihr darin lebtet; **nun aber leget das alles ab, Zorn, Grimm, Bosheit, Lästerung, häßliche Redensarten aus eurem Munde. Lüget einander nicht an: da ihr ja den alten Menschen mit seinen Handlungen ausgezogen** (Kol 3,5-9; Schlachterbibel 1951)
 
-> It is God's will that you should be sanctified: that you should **avoid sexual immorality;** that each of you should **learn to control his own body in a way that is holy and honorable,** not in passionate lust like the heathen, who do not know God; and that in this matter no one should wrong his brother or take advantage of him. The Lord will punish men for all such sins, as we have already told you and warned you. **For God did not call us to be impure, but to live a holy life. Therefore, he who rejects this instruction does not reject man but God, who gives you his Holy Spirit** (1 Thess. 4:3-8, NIV).
+> Denn das ist der Wille Gottes, eure Heiligung, daß ihr euch **der Unzucht enthaltet**; daß jeder von euch wisse, **sein eigenes Gefäß in Heiligung und Ehre zu besitzen**, nicht mit leidenschaftlicher Gier wie die Heiden, die Gott nicht kennen; daß niemand zuweit greife und seinen Bruder im Handel übervorteile; denn der Herr ist ein Rächer für das alles, wie wir euch zuvor gesagt und bezeugt haben. **Denn Gott hat uns nicht zur Unreinigkeit berufen, sondern zur Heiligung. Darum also, wer sich darüber hinwegsetzt, der verachtet nicht Menschen, sondern Gott, der auch seinen heiligen Geist in uns gegeben hat.** (1.Thes 4,3-8; Schlachterbibel 1951)
 
-Paul's personal behavior conformed to these passages, according to 1 Cor. 4:17\. What else did Paul say about his own behavior?
+Paul's personal behavior conformed to these passages, according to 1 Cor. 4:17\. Was sagte Paulus noch über sein eigenes Verhalten?
 
-> **Whatever you** have learned or received or **heard from me, or seen in me -- put it into practice. And the God of peace will be with you** (Phil. 4:9, NIV).
+> ​**was ihr auch** gelernet und empfangen und **gehöret und gesehen habt an mir, das thut; so wird der Gott des Friedens mit euch sein.** (Phil 4,9; Schlachter 1905)
 
-Ponder that statement! If the Philippian Christians would put _into practice_ what they had _heard_ and _seen_ in Paul as exemplary, the God of peace would be with them. **Could Paul have been that kind of example if he was _controlled_ by [**sin**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)**. Lightner wrote:
+Denke über diese Aussage nach! If the Philippian Christians would put _into practice_ what they had _heard_ and _seen_ in Paul as exemplary, the God of peace would be with them. **Could Paul have been that kind of example if he was _controlled_ by [**sin**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)**. Lightner schrieb:
 
-> Paul, for example, **often did what he didn't want to do** (Rom. 7:15).
+> Paulus, zum Beispiel, **tat oftmals was er nicht tun wollte** (Röm. 7,15).
 
-In contrast, Paul declared explicitly how he and his co-laborers behaved:
+Im Kontrast dazu gab Paulus explizit kund, wie er und seine Mitarbeiter sich verhielten/benahmen:
 
-> You are witnesses, and so is God, of how **holy, righteous and blameless we were among you who believed** (1 Thess. 2:10, NIV).
+> Des seid ihr Zeugen und Gott, wie **heilig und gerecht und unsträflich [=tadellos] wir bei euch, die ihr gläubig waret, gewesen sind.** (1.Thes 2,10; Luther 1545)
 
 What a refutation Paul's actual life was to the [**Once Saved Always Saved**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html) interpretation of Rom. 7:14-20.
 
-The Scriptures add to all of this by saying that Paul:
+Die Bibel add to all of this indem sie sagt, dass Paulus:
 
-- never used flattery nor put on a mask to cover up greed (1 Thess. 2:5);
+- nie Schmeichelworte oder einen Vorwand für Habsucht gebrauchte (1 Thess. 2,5);
 
-- put no stumbling block in anyone's path (2 Cor. 6:3);
+- niemandem Anstoss gab (/niemandem einen Stolperstein in dessen Weg legte) (2 Kor. 6,3);
 
 - was pure, patient, kind, had sincere love, truthful speech, etc. (2 Cor. 6:6,7);
 
-- hatte nur ein Ziel und das war Gott zu gefallen (2. Kor. 5,9);
+- nur ein Ziel hatte und das war Gott zu gefallen (2. Kor. 5,9);
 
-- fürchtete Gott (2. Kor. 5,11);
+- Gott fürchtete (2. Kor. 5,11);
 
-- riskierte sein Leben für den Namen des Herrn Jesus (Apg 15,26);
+- sein Leben riskierte für den Namen des Herrn Jesus (Apg 15,26);
 
-- fulfilled his duty to God in all good conscience (Acts 23:1);
+- seine Pflicht gegenüber Gott mit einem guten Gewissen erfüllte (Apg 23,1);
 
-- ran his race to win first prize (1 Cor. 9:24);
+- sein Rennen lief, um den ersten Preis zu gewinnen (1 Kor. 9,24);
 
-- did not seek his own good but the good of others for their salvation's sake (1 Cor. 10:24,32); etc.
+- nicht das Seine suchte, sondern das Wohl anderer um ihrer Errettung willen (1 Kor. 10,24,32); etc.
 
 In another concise summary of his own life, Paul said that he conducted himself in the _holiness and sincerity_ that are from God:
 
-> Now this is our boast: Our conscience testifies that **we have conducted ourselves** in the world, and especially in our relations with you, in the **holiness and sincerity** that are from God. We have done so not according to worldly wisdom but **according to God's grace** (2 Cor. 1:12, NIV).
+> Denn unser Ruhm ist der: das Zeugnis unsers Gewissens, dass wir **in Einfalt** _[Anmerkung: dies ist dasselbe wie Aufrichtigkeit, Ehrlichkeit, Schlichtheit, Lauterkeit (in d. Gesinnung), Redlichkeit, Geradheit.]_ **und göttlicher Lauterkeit**, nicht in fleischlicher Weisheit, sondern **in göttlicher Gnade** **gewandelt haben** in der Welt, allermeist aber bei euch. (2.Kor 1,12; Schlachter 1905)
 
-Is it possible for Paul's words, _I am unspiritual sold as a slave to sin_ (Rom. 7:14), to refer to himself in light of all of these passages about his own behavior? Never!
+Ist es möglich, dass sich Paulus' Worte _ich aber bin fleischlich, unter die Sünde verkauft_ (Röm7,14), auf ihn selbst beziehen im Lichte von allen diesen Passagen über sein eigenes Verhalten? Niemals!
 
 Besides Paul's holy and zealous lifestyle, we know the OSAS interpretation of Rom. 7:14-20 is wrong in yet another way! Let's focus our attention in upon verses 18 and 19:
 
@@ -118,23 +118,23 @@ Paul elaborates on the Christian's [**freedom from sin**](http://gesundelehre.tk
 
 > **And having been set free from sin,** you became slaves of righteousness (Rom. 6:18, NKJV).
 
-Before salvation, however, a person is _powerless:_
+Vor der Errettung ist eine Person jedoch _kraftlos/schwach:_
 
-> You see, at just the right time, when we were still **powerless,** Christ died for the ungodly (Rom. 5:6, NIV).
+> Denn Christus ist, da wir noch **schwach** waren, zur rechten Zeit für Gottlose gestorben. (Röm 5,6; Schlachter 1905)
 
-An unsaved person is without spiritual power, being under the control of his [**sinful nature**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sinful-nature.htm) (Rom. 7:5) and the evil one (1 Jn. 5:19), but after [**salvation**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html), one is freed from the power of Satan (Acts 26:18) and sin (Rom. 6:18; Jn. 8:36) to live a holy life (2 Tim. 1:9).
+Eine nicht erlöste Person ist ohne geistliche Kraft, being unter der Kontrolle ihrer [**sündhaften Natur**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sinful-nature.htm) (Rom. 7:5) and the evil one (1 Jn. 5:19), aber nach der [**Errettung**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html), ist man frei von der Macht Satans (Apg 26:18) und der Sünde (Röm. 6,18; Joh. 8,36) um ein heiliges Leben zu leben (2 Tim. 1:9).
 
 Furthermore, if we focus our attention in upon Rom. 7:18, we clearly see that Paul wrote in that passage that _nothing good lives in me._ Could Paul have written that from his own [**Christian**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian.html) perspective?
 
-**Isn't it true that God lives in all Christians (2 Cor. 6:16) and God is _good_ (Mk. 10:18)? Since that is true, and Paul was a Christian when he wrote his epistles, then it is impossible for Paul to have written _nothing good lives in me_ from the perspective of a Christian!**
+**Ist es nicht wahr, dass Gott in allen Christen lebt (2. Kor 6,16) und Gott _gut_ ist (Mk. 10,18)? Weil das wahr ist, und Paulus ein Christ war, als er seine Briefe schrieb, daher ist es unmöglich für Paulus _nichts Gutes lebt in mir_ aus der Perspektive eines Christen geschrieben zu haben!**
 
-What then was Paul referring to when he used the singular pronouns _I_ and _me_ in Rom. 7:14-20?
+Worauf bezog sich Paulus dann, als er die Singular-Pronomen _Ich_ und _mir_ in Röm. 7,14-20 gebrauchte?
 
 **Rom. 7:17 clearly shows the _sinful nature_ is the _I_ and _me_ that Paul wrote of:**
 
 > I know that nothing good lives in **me, that is, in my sinful nature.** For I have the desire to do what is good, but I cannot carry it out (Rom. 7:18 NIV).
 
-**In other words, the _sinful nature_ is personified in Rom. 7:14-20 just like _wisdom_ is in Proverbs 8!** So, Paul was not writing of himself or _the normal Christian life,_ but of the _sinful nature_ in this much-disputed passage.
+**Mit andern Worten, die _sündhafte Natur_ ist personifiziert in Röm 7,14-20 genau wie _Weisheit_ in Sprüche 8!** Paulus schrieb also nicht von sich selbst oder _dem normalen christlichen Leben,_ sondern von der _sündhaften Natur_ in dieser fest umstrittenen Passage.
 
 
 <a name="worst%20of%20sinners"></a>
@@ -164,7 +164,7 @@ With these verses in mind, how could the real freedom in Christ message, coupled
 
 - **[Lebe Heilig und Halte Dich Selbst Rein](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
  **PO Box 265**  
