@@ -1,7 +1,8 @@
-<!--t Rückfälliger: Gott will dich zurück! - in Arbeit (0% übersetzt) t-->
-<!--d Rückfälliger: Gott will dich zurück! - in Arbeit (0% übersetzt) d-->
+<!--t Rückfälliger: Gott will dich zurück! - in Arbeit (10% übersetzt) t-->
+<!--d Rückfälliger: Gott will dich zurück! - in Arbeit (10% übersetzt) d-->
 
 Rückfälliger: Gott will dich zurück!
+<!-- todo: * and _ are not correct - *'s are missing -->
 
 - - - 
 - - -
@@ -25,50 +26,46 @@ Quelle: [www.evangelicaloutreach.org/backslider.htm](http://gesundelehre.tk/forw
 <big>**Backslider, God Wants You Back!**</big>
 
 
-<big>**[PRINT: God Wants The Backsliders To Return](../../files/pictures/backslider.pdf)** (pdf)</big>
+<big>**[DRUCKE: Gott Will Dass Die Rückfälligen Zurückkehren](../../files/pictures/backslider.pdf)** (pdf)</big>
 
-![backslider](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/images/evangelical-outreach-backslider.jpg)
+![rückfälliger](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/images/evangelical-outreach-backslider.jpg)
 
-![backslider](../../files/pictures/006.gif)
+![rückfälliger](../../files/pictures/006.gif)
 
-**<big><big>[What Everyone Should Know About God's MERCY](#backslider mercy)</big></big>**
+**<big><big>[Was Jeder Wissen Sollte Über Gottes BARMHERZIGKEIT](#backslider%20mercy)</big></big>**
 
 **A _backslider_ in the Bible is a person who once had salvation, but has since turned away from the Lord Jesus to the point that he is now spiritually _lost_ and _dead_ again, just like he was before becoming saved.**
 
-[![backslider return to salvation](../../files/pictures/i-was-saved-again-click-here.jpg "backslider return to salvation")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/i-was-saved-again.htm)
+[![rückfälliger kehre zurück zur Errettung](../../files/pictures/i-was-saved-again-click-here.jpg "backslider return to salvation")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/i-was-saved-again.htm)
 
-> But **those who turn to crooked ways** the LORD will **banish with the evildoers.** (Psa 125:5)
-
-
+> > **Die aber abweichen auf ihre krummen Wege**, wird der HERR **wegtreiben mit den Übeltätern.** ...  (Ps 125,5a; Luther 1545)
 
 > A man who strays from the path of understanding **comes to rest in the company of the dead.** (Prov 21:16)
 
-<big>**[Little Known Truth About Eternal Sin](#backslidereternalsin)**</big>
+<big>**[Wenig Bekannte Wahrheit Über Ewige Sünde/Ewige Strafe](#backslidereternalsin)**</big>
 
 <big>**[Here Is A Backslider's Prayer](#backslidersprayer)**</big>
 
-In the KJV, the only time the word _backslider_ is found is in Proverbs:
+In der King James Bibel [engl. Äquivalent etwa zur Luther1545) wird das Wort _Rückfälliger_ allein ein Mal in den Sprüchen gefunden:
 
 > The **backslider** in heart shall be filled with his own ways... (Prov. 14:14).
 
 
-## Backslider, Backsliding and Backslidden
+## Rückfälliger, Zurückfallen, Zurückgefallen
 
-Ezekiel and Peter give valuable details about those who are _backslidden_ and what occurred when they turned to evil:
+Hesekiel und Petrus geben wertvolle Details über jene, welche _rückfällig_ wurden und was geschah, als sie sich dem Bösen zuwandten:
 
-> If a righteous man turns from his righteousness and does evil, he will **[die](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.htm)** for it. (Ezek 33:18)
+> Wenn der Gerechte von seiner Gerechtigkeit absteht und Unrecht tut, so muß er deshalb **[sterben](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.htm)**; (Hes 33,18; Schlachterbibel 1951)
 
-> If they have escaped the corruption of the world by knowing our Lord and Savior Jesus Christ and are **again entangled in it and overcome, they are worse off at the end than they were at the beginning.**
+[![Rückfälliger Gott will dich zurück](../../files/pictures/backslider-saved-again-spiritual-death-eternal-security-click.jpg "rückfälliger, Gott will dich zurück")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.htm)
 
-[![Backslider God wants you back](../../files/pictures/backslider-saved-again-spiritual-death-eternal-security-click.jpg "backslider, God wants you back")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.htm)
+> Denn wenn sie durch die Erkenntnis des Herrn und Retters Jesus Christus den Befleckungen der Welt entflohen sind, **aber wieder darin verstrickt und überwunden werden, so ist der letzte Zustand für sie schlimmer als der erste. 21 Denn es wäre für sie besser, daß sie den Weg der Gerechtigkeit nie erkannt hätten, als daß sie, nachdem sie ihn erkannt haben, wieder umkehren, hinweg von dem ihnen überlieferten heiligen Gebot**. Doch es ist ihnen ergangen nach dem wahren Sprichwort: »Der Hund **kehrt wieder um** zu dem, was er erbrochen hat, und die gewaschene Sau zum Wälzen im Schlamm.« (2.Petr 2,20-22; Schlachter2000)
 
-**It would have been better for them not to have known the way of righteousness, than to have known it and then to turn their backs on the sacred command that was passed on to them.** Of them the proverbs are true: "A dog **returns** to its vomit," and, "A sow that is washed **goes back** to her wallowing in the mud." (2 Pet 2:20-22)
-
-The Bible is filled with examples of people, named and unnamed, who turned away from God temporarily or permanently. Some returned to salvation, like **[King David](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/king-david-sinned.htm)** and Peter, while others never came back to God, like Kings Saul and **[Solomon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/solomons-apostasy.htm).**
+Die Bibel ist voll von Beispielen von Leuten, namentlich genannt oder ungenannt, die sich von Gott temporär/vorübergehend oder permanent abwendeten. Einige kehrten zur Errettung zurück, wie **[König David](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/king-david-sinned.htm)** und Petrus, während andere niemals zu Gott zurückkamen, wie König Saul und **[Salomo](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/solomons-apostasy.htm).**
 
 A common contact that our ministry receives is from the grieving _backslider_, who wants to come back to God, but isn't sure that he can. **Some _backsliders_ think they sinned too much and too grievously while others think they committed _eternal sin_ and therefore can't get forgiven.** There is, perhaps, no more downcast person to communicate with than a _repentant backslider_ who isn't sure he can come back to God and find forgiveness, though he desperately wants it!
 
-[![backslider backsliding backslidden](..7..7files/pictures/backslider-future-sins-eternal-security-joseph-prince-charles-stanley.jpg "The backslider is like a pig in the mud.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/expository-2peter2.htm)
+[![rückfälliger rückfallend zurückgefallen](..7..7files/pictures/backslider-future-sins-eternal-security-joseph-prince-charles-stanley.jpg "The backslider is like a pig in the mud.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/expository-2peter2.htm)
 
 Years ago, when I was pastoring, I knew a _backslider_ who fell into sexual immorality. Over the next couple days that same _backslider_ lost nearly 10 pounds and was actually, on occasions, beating his own head against the wall in regret over his sin and foolishness. (He wrongly thought, as a _backslider_, he could not repent and was doomed to **[hell](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.htm)** with no possible hope of ever getting saved again.) What finally helped that _backslider_ to see that he could come back to God, in spite of his wicked actions, were the examples of King David and the Apostle Peter. **Since God took these men back after they backslid, why should he not take him too, since he was deeply [repentant](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.htm) and resolved to never commit that sin again.**
 
@@ -77,13 +74,11 @@ Other examples of grieving _backsliders_ would vary from people crying to simply
 <big>**[LISTEN TO: _Almost A Backslider_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/AlmostBackslider.mp3)** (mp3)</big>
 
 
-## God's Truth About Backsliding
-
-> Jesus continued: "There was a man who had two sons. The younger one said to his father, 'Father, give me my share of the estate.' So he divided his property between them. Not long after that, the younger son got together all he had, set off for a distant country and there **squandered his wealth in wild living**. 
+## Gottes Wahrheit Bezüglich Rückfällig Werden
 
 [![Father welcoming the backslider back home.](../../files/pictures/prodigal.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.htm)
 
-After he had spent everything, there was a severe famine in that whole country, and he began to be in need. So he went and hired himself out to a citizen of that country, who sent him to his fields to feed pigs. He longed to fill his stomach with the pods that the pigs were eating, but no one gave him anything. **When he came to his senses,** he said, 'How many of my father's hired men have food to spare, and here I am starving to death! I will set out and go back to my father and say to him: Father, I have sinned against heaven and against you. I am no longer worthy to be called your son; make me like one of your hired men.' So he got up and went to his father. But while he was still a long way off, **his father saw him and was filled with compassion for him; he ran to his son, threw his arms around him and kissed him.** The son said to him, 'Father, I have sinned against heaven and against you. I am no longer worthy to be called your son.' But the father said to his servants, 'Quick! Bring the best robe and put it on him. Put a ring on his finger and sandals on his feet. Bring the fattened calf and kill it. Let's have a feast and celebrate. For this son of mine **was dead and is alive again; he was lost and is found.'** So they began to celebrate. Meanwhile, the older son was in the field. When he came near the house, he heard music and dancing. So he called one of the servants and asked him what was going on. 'Your brother has come,' he replied, 'and your father has killed the fattened calf because he has him back safe and sound.' The older brother became angry and refused to go in. So his father went out and pleaded with him. But he answered his father, 'Look! All these years I've been slaving for you and never disobeyed your orders. Yet you never gave me even a young goat so I could celebrate with my friends. But when this son of yours who has squandered your property with **prostitutes** comes home, you kill the fattened calf for him!' My son, the father said, 'you are always with me, and everything I have is yours. But we had to celebrate and be glad, because this brother of yours **was dead and is alive again; he was lost and is found.**'"
+> Jesus continued: "There was a man who had two sons. The younger one said to his father, 'Father, give me my share of the estate.' So he divided his property between them. Not long after that, the younger son got together all he had, set off for a distant country and there **squandered his wealth in wild living**. After he had spent everything, there was a severe famine in that whole country, and he began to be in need. So he went and hired himself out to a citizen of that country, who sent him to his fields to feed pigs. He longed to fill his stomach with the pods that the pigs were eating, but no one gave him anything. **When he came to his senses,** he said, 'How many of my father's hired men have food to spare, and here I am starving to death! I will set out and go back to my father and say to him: Father, I have sinned against heaven and against you. I am no longer worthy to be called your son; make me like one of your hired men.' So he got up and went to his father. But while he was still a long way off, **his father saw him and was filled with compassion for him; he ran to his son, threw his arms around him and kissed him.** The son said to him, 'Father, I have sinned against heaven and against you. I am no longer worthy to be called your son.' But the father said to his servants, 'Quick! Bring the best robe and put it on him. Put a ring on his finger and sandals on his feet. Bring the fattened calf and kill it. Let's have a feast and celebrate. For this son of mine **was dead and is alive again; he was lost and is found.'** So they began to celebrate. Meanwhile, the older son was in the field. When he came near the house, he heard music and dancing. So he called one of the servants and asked him what was going on. 'Your brother has come,' he replied, 'and your father has killed the fattened calf because he has him back safe and sound.' The older brother became angry and refused to go in. So his father went out and pleaded with him. But he answered his father, 'Look! All these years I've been slaving for you and never disobeyed your orders. Yet you never gave me even a young goat so I could celebrate with my friends. But when this son of yours who has squandered your property with **prostitutes** comes home, you kill the fattened calf for him!' My son, the father said, 'you are always with me, and everything I have is yours. But we had to celebrate and be glad, because this brother of yours **was dead and is alive again; he was lost and is found.**'"
 
 ## Restoring The _Backslider_ and _Backsliding_
 
@@ -150,39 +145,39 @@ Scripture shows that the _backslider_ is _wicked:_
 
 > For the director of music. Of David the servant of the LORD. An oracle is within my heart concerning the sinfulness of **the wicked:** There is no **[fear of God](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/fear-of-God.htm)** before his eyes. For in his own eyes he flatters himself too much to detect or hate his sin. The words of his mouth are wicked and deceitful; **he has ceased to be wise and to do good.** Even on his bed he plots evil; he commits himself to a sinful course and does not reject what is wrong (Psa 36:1-4).
 
-> Wisdom will save you from the ways of **wicked** men, from men whose words are perverse, **who leave the straight paths to walk in dark ways** (Prov 2:12,13).
+> dann wird die Vorsicht dich beschirmen, der Verstand wird dich behüten, um dich zu erretten von dem **bösen** Weg, von dem Menschen, der Verkehrtes spricht; von denen, **welche die richtigen Pfade verlassen, um auf den Wegen der Finsternis zu wandeln** (Sprüche 2,11-13; Schlachterbibel 1951)
 
 That fact is also a deathblow to the **[Charles Stanley eternal security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.htm)** teaching because **the _wicked_ are always unsaved people on the road to the fiery furnace:**
 
-> **Salvation is far from the wicked,** for they do not seek out your decrees (Psa 119:155).
+> **Das Heil ist fern von den Gottlosen**; denn sie fragen nicht nach deinen Satzungen. (Ps 119,155; Schlachterbibel 1951)
 > 
 > This is how it will be at the end of the age. The angels will come and separate the **wicked** from the righteous and **throw them into the fiery furnace, where there will be weeping and gnashing of teeth** (Mat 13:49,50).
 
-> You are not a God who takes pleasure in evil; **with you the wicked cannot dwell.** (Psa 5:4)
+> Denn du bist nicht ein Gott, dem Gesetzlosigkeit gefällt; **wer böse ist, darf nicht bei dir wohnen.** (Psalm 5,5; Schlachter2000)
 
 **NOTE: The _wicked_ of Psa. 5:4 will not dwell with God. That is the same exact Hebrew term for the _wicked_ in Prov. 2:12,13 showing backsliders are _lost and dead_, as the prodigal was before he repented and became _alive again_ (Lk. 15:24).**
 
-## How To Help A _Backslider_
+## Wie Einem _Rückfälligen_ Zu Helfen Ist
 
-**To help a backslider, show him how to become Biblically _wise._** To be a Biblically _wise_ person, one must put into _practice_ the **[word of God](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wordgod.htm)** and by doing such he is identified as a member of Jesus' spiritual family. Dear _backslider_, take to heart Jesus' teaching on this:
+**Um einem Rückfälligen zu helfen, zeige ihm wie man biblisch _weise_ wird.** Um eine biblisch _weise_ Person zu sein, muss man das **[Wort Gottes](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wordgod.htm)** in die Tat umsetzen/es tun und indem er solches tut, wird er als ein Mitglied von Jesu geistlicher Familie identifiziert. Lieber _Rückfälliger_, nimm Jesu Lehre bezüglich diesem Thema zu Herzen:
 
 > Therefore everyone who hears these words of mine and **puts them into practice** is like a **wise** man who built his house on the rock. The rain came down, the streams rose, and the winds blew and beat against that house; yet it did not fall, because it had its foundation on the rock. But everyone who hears these words of mine and does not put them into practice is like a **foolish** man who built his house on sand. The rain came down, the streams rose, and the winds blew and beat against that house, and it fell with a great crash (Mt. 7:24-27).
 
-> He replied, "**My mother and brothers are those who hear God's word and put it into practice**" (Luke 8:21).
+> Er aber antwortete und sprach zu ihnen: **Meine Mutter und meine Brüder sind die, welche das Wort Gottes hören und es thun!** (Lk 8,21; Schlachter 1905)
 
 Getting back to Psalm 36:3, to _**cease to be wise and to do good**_ shows that such a person was once God's child at a prior point in time, but since (as a _backslider_) has lost that spiritual identity and taken on a new identity - _wicked_. **In other words, when one turns to this degree he loses his salvation. The _backslider_ is no longer saved.** This is taught other times in the Bible:
 
-> But **those who turn to crooked ways the LORD** will banish with the evildoers (Psa 125:5).
+> **Die aber abweichen auf ihre krummen Wege**, wird der HERR **wegtreiben mit den Übeltätern.** ...  (Ps 125,5a; Luther 1545)
 > 
-> But rebels and sinners will both be broken, and **those who forsake the LORD will perish** (Isa 1:28).
+> aber der Zusammenbruch der Übertreter und Sünder kommt zumal, und **die den HERRN verlassen, kommen um.** (Jes 1,28; Schlachterbibel 1951)
 
 ## <a name="backslidereternalsin"></a>Eternal Sin and The Backslider
 
 [![](../../files/pictures/unforgivable-sin-click.jpg "unforgivable sin")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal_sin_blasphemy_of_Holy_Spirit.htm)
 
-Jesus was the only one who ever mentioned **[eternal sin](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal_sin_blasphemy_of_Holy_Spirit.htm)** and at the same time told us clearly what it is:
+Jesus war der einzige, der jemals **[ewige Sünde/Strafe](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal_sin_blasphemy_of_Holy_Spirit.htm)** erwähnte und uns gleichzeitig deutlich sagte, was solches ist:
 
-> But whoever blasphemes against the Holy Spirit will never be forgiven; he is guilty of an **eternal sin.** He said this because **they were saying, "He has an evil spirit"** (Mark 3:29,30).
+> wer aber wider den heiligen Geist lästert, der hat in Ewigkeit keine Vergebung, sondern er ist **ewiger Strafe** schuldig **Denn sie sagten: Er hat einen unreinen Geist.** (Markus 3,29-30; Schlachter 1905)
 
 If you read Mark 3:22 you will learn more about those who committed such a form of _blasphemy._ **They were saying that Jesus had a demon and by the power of the devil he was casting them out and performing his [miracles](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/miracles.htm).** This is what Jesus identified as _eternal sin._ It is **not** adultery, murder, disowning Jesus, or any other kind of sin. All of the latter can be forgiven, but not blasphemy of the Holy Spirit, also known as _eternal sin._ **Another sin that can't be forgiven is taking the _[mark of the beast](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/markbeast.htm),_ Rev. 14:9-12\.** (Eternal sin is apparently the type of sin those mentioned in **[Heb. 6:4-6](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hebrews.htm)** committed and, therefore, they could not be renewed again by repentance.)
 
@@ -190,29 +185,25 @@ So, _backslider_ return to God. Backsliders come back to Christ. **[Almighty God
 
 ![backslider or backsliding person repent and be forgiven](../../files/pictures/a-colorb.gif)
 
-**OTHER TOPICS:**
+**ANDERE THEMEN:**
 
-- **[The Plan Of Salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.htm)**
+- **[Der Plan Der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.htm)**
 
-- **[Twice Lost Always Lost Errors](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/twicelost.htm)**
+- **[Zweimal Verloren Immer Verloren Irrtümer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/twicelost.htm)**
 
-- **[Eternal (Unforgivable) Sin and Blasphemy of the Holy Spirit](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal_sin_blasphemy_of_Holy_Spirit.htm)**
+- **[Ewige (Unverzeihbare) Sünde und Läterung dse Heiligen Geistes](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal_sin_blasphemy_of_Holy_Spirit.htm)**
 
-- **[Find Peace With God](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/peace.htm)**
+- **[Finde Frieden Mit Gott](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/peace.htm)**
 
-- **[False Prophets and False Teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)**
+- **[Falsche Propheten und Falsche Lehrer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)**
 
-**[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.htm)**
+**[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.htm)**
 
-**[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org) Outreach**
-
-**PO Box 265**
-
+**[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org) Outreach**  
+**PO Box 265**  
 **Washington, PA 15301**
 
-
-**EvangelicalOutreach.org**
-
+**EvangelicalOutreach.org**  
 **EternalLifeBlog.com**
 
 
