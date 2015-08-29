@@ -1,6 +1,8 @@
 <!--t Backslider, God Wants You Back! t-->
 <!--d  d-->
 
+<!-- todo: * and _ are not correct - *'s are missing -->
+
 Source: [www.evangelicaloutreach.org/backslider.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/backslider.htm)
 
 # _Backslider_, God Wants _You_ Back!
@@ -24,7 +26,7 @@ Source: [www.evangelicaloutreach.org/backslider.htm](http://gesundelehre.tk/forw
 
 ![backslider](../../files/pictures/006.gif)
 
-**<big><big>[What Everyone Should Know About God's MERCY](#backslider mercy)</big></big>**
+**<big><big>[What Everyone Should Know About God's MERCY](#backslider%20mercy)</big></big>**
 
 **A _backslider_ in the Bible is a person who once had salvation, but has since turned away from the Lord Jesus to the point that he is now spiritually _lost_ and _dead_ again, just like he was before becoming saved.**
 
@@ -51,11 +53,9 @@ Ezekiel and Peter give valuable details about those who are _backslidden_ and wh
 
 > If a righteous man turns from his righteousness and does evil, he will **[die](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.htm)** for it. (Ezek 33:18)
 
-> If they have escaped the corruption of the world by knowing our Lord and Savior Jesus Christ and are **again entangled in it and overcome, they are worse off at the end than they were at the beginning.**
-
 [![Backslider God wants you back](../../files/pictures/backslider-saved-again-spiritual-death-eternal-security-click.jpg "backslider, God wants you back")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.htm)
 
-**It would have been better for them not to have known the way of righteousness, than to have known it and then to turn their backs on the sacred command that was passed on to them.** Of them the proverbs are true: "A dog **returns** to its vomit," and, "A sow that is washed **goes back** to her wallowing in the mud." (2 Pet 2:20-22)
+> If they have escaped the corruption of the world by knowing our Lord and Savior Jesus Christ and are **again entangled in it and overcome, they are worse off at the end than they were at the beginning. It would have been better for them not to have known the way of righteousness, than to have known it and then to turn their backs on the sacred command that was passed on to them.** Of them the proverbs are true: "A dog **returns** to its vomit," and, "A sow that is washed **goes back** to her wallowing in the mud." (2 Pet 2:20-22)
 
 The Bible is filled with examples of people, named and unnamed, who turned away from God temporarily or permanently. Some returned to salvation, like **[King David](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/king-david-sinned.htm)** and Peter, while others never came back to God, like Kings Saul and **[Solomon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/solomons-apostasy.htm).**
 
@@ -72,11 +72,9 @@ Other examples of grieving _backsliders_ would vary from people crying to simply
 
 ## God's Truth About Backsliding
 
-> Jesus continued: "There was a man who had two sons. The younger one said to his father, 'Father, give me my share of the estate.' So he divided his property between them. Not long after that, the younger son got together all he had, set off for a distant country and there **squandered his wealth in wild living**. 
-
 [![Father welcoming the backslider back home.](../../files/pictures/prodigal.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.htm)
 
-After he had spent everything, there was a severe famine in that whole country, and he began to be in need. So he went and hired himself out to a citizen of that country, who sent him to his fields to feed pigs. He longed to fill his stomach with the pods that the pigs were eating, but no one gave him anything. **When he came to his senses,** he said, 'How many of my father's hired men have food to spare, and here I am starving to death! I will set out and go back to my father and say to him: Father, I have sinned against heaven and against you. I am no longer worthy to be called your son; make me like one of your hired men.' So he got up and went to his father. But while he was still a long way off, **his father saw him and was filled with compassion for him; he ran to his son, threw his arms around him and kissed him.** The son said to him, 'Father, I have sinned against heaven and against you. I am no longer worthy to be called your son.' But the father said to his servants, 'Quick! Bring the best robe and put it on him. Put a ring on his finger and sandals on his feet. Bring the fattened calf and kill it. Let's have a feast and celebrate. For this son of mine **was dead and is alive again; he was lost and is found.'** So they began to celebrate. Meanwhile, the older son was in the field. When he came near the house, he heard music and dancing. So he called one of the servants and asked him what was going on. 'Your brother has come,' he replied, 'and your father has killed the fattened calf because he has him back safe and sound.' The older brother became angry and refused to go in. So his father went out and pleaded with him. But he answered his father, 'Look! All these years I've been slaving for you and never disobeyed your orders. Yet you never gave me even a young goat so I could celebrate with my friends. But when this son of yours who has squandered your property with **prostitutes** comes home, you kill the fattened calf for him!' My son, the father said, 'you are always with me, and everything I have is yours. But we had to celebrate and be glad, because this brother of yours **was dead and is alive again; he was lost and is found.**'"
+> Jesus continued: "There was a man who had two sons. The younger one said to his father, 'Father, give me my share of the estate.' So he divided his property between them. Not long after that, the younger son got together all he had, set off for a distant country and there **squandered his wealth in wild living**. After he had spent everything, there was a severe famine in that whole country, and he began to be in need. So he went and hired himself out to a citizen of that country, who sent him to his fields to feed pigs. He longed to fill his stomach with the pods that the pigs were eating, but no one gave him anything. **When he came to his senses,** he said, 'How many of my father's hired men have food to spare, and here I am starving to death! I will set out and go back to my father and say to him: Father, I have sinned against heaven and against you. I am no longer worthy to be called your son; make me like one of your hired men.' So he got up and went to his father. But while he was still a long way off, **his father saw him and was filled with compassion for him; he ran to his son, threw his arms around him and kissed him.** The son said to him, 'Father, I have sinned against heaven and against you. I am no longer worthy to be called your son.' But the father said to his servants, 'Quick! Bring the best robe and put it on him. Put a ring on his finger and sandals on his feet. Bring the fattened calf and kill it. Let's have a feast and celebrate. For this son of mine **was dead and is alive again; he was lost and is found.'** So they began to celebrate. Meanwhile, the older son was in the field. When he came near the house, he heard music and dancing. So he called one of the servants and asked him what was going on. 'Your brother has come,' he replied, 'and your father has killed the fattened calf because he has him back safe and sound.' The older brother became angry and refused to go in. So his father went out and pleaded with him. But he answered his father, 'Look! All these years I've been slaving for you and never disobeyed your orders. Yet you never gave me even a young goat so I could celebrate with my friends. But when this son of yours who has squandered your property with **prostitutes** comes home, you kill the fattened calf for him!' My son, the father said, 'you are always with me, and everything I have is yours. But we had to celebrate and be glad, because this brother of yours **was dead and is alive again; he was lost and is found.**'"
 
 ## Restoring The _Backslider_ and _Backsliding_
 
@@ -100,7 +98,7 @@ After he had spent everything, there was a severe famine in that whole country, 
 
 > I gave faithless Israel her **certificate of divorce** and sent her away because of all her adulteries. Yet I saw that her unfaithful sister Judah had no fear; she also went out and committed adultery. (Jer 3:8)
 
-## <a name="backslider mercy"></a>
+## <a name="backslider%20mercy"></a>
 _Mercy_ to the _Repentant Backslider_
 
 The fact that God **delights to show [mercy](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mercy.htm) to the _repentant_** _backslider_ is illustrated in Jesus' teaching, but also candidly declared in the following passage:
@@ -195,17 +193,13 @@ So, _backslider_ return to God. Backsliders come back to Christ. **[Almighty God
 
 - **[False Prophets and False Teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)**
 
-**[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.htm)**
+**[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.htm)**
 
-**[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org) Outreach**
-
-**PO Box 265**
-
+**[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org) Outreach**  
+**PO Box 265**  
 **Washington, PA 15301**
 
-
-**EvangelicalOutreach.org**
-
+**EvangelicalOutreach.org**  
 **EternalLifeBlog.com**
 
 
