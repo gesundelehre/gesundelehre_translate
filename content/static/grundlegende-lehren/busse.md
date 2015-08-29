@@ -1,4 +1,4 @@
-<!--t Von der wahren Busse - in Arbeit (0% übersetzt) t-->
+<!--t Von der wahren Busse - in Arbeit (20% übersetzt) t-->
 <!--d Von der wahren Busse d-->
 
 Lehre der Busse
@@ -8,109 +8,107 @@ Lehre der Busse
 
 # Nachfolgend die Übersetzung der Datei von [evangelicaloutreach.org/repentance.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-lehren/busse.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [www.evangelicaloutreach.org/repentance.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html)
+Quelle: [www.evangelicaloutreach.org/repentance.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html)
 
-# Biblical Repentance
+# Biblische Busse
 ### Dan Corner
 ![what is repentance](../../files/pictures/evangelical-what-is-repentance.jpg)
 
 **[The Dramatized Gospel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/gospel.html)**
 
-![what is repentance](../../files/pictures/a-colorb.gif)
+![was ist busse](../../files/pictures/a-colorb.gif)
 
 [![Bookmark and Share](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0) 
 <script type="text/javascript" src="http://s7.addthis.com/js/250/addthis_widget.js#username=xa-4ce723c86d857fe0"></script>
 
 
-## _What Is Repentance_ And The _Repentance Definition_ 
+## _Was ist Busse_ Und Die _Definition von Busse_
 
 
-**_What is repentance?_** There are different ideas in our day of what _repentance_ is and its role in [**salvation**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html). To have the truth about this important subject we must draw our doctrines from [**final authority**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) -- the Scriptures (2 Tim. 3:16,17). Is _repentance_ merely _changing your mind_ or is there much more involved? Could it be _turning from wickedness?_
+**_Was ist Busse?_** Es gibt heutzutage verschiedene Ideen was _Busse_ ist und welche Rolle sie in der [**Errettung**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html) spielt. Um die Wahrheit über dieses wichtige Thema herauszufinden, müssen wir unsere doctrines von der [**letztendlichen Autorität**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) ziehen -- der Bibel (2 Tim. 3,16-17). Ist _Busse_ lediglich _changing your mind_ oder ist viel mehr involviert? Könnte es _Abkehr von Bosheit sein?_
 
 [![repentance repent repenting](../../files/pictures/repentance-repent-repenting.jpg "REPENTANCE is a must for salvation.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/approaching-death.html)
 
-Let's take a look at the clearest and most accurate Biblical _definition of repentance_. Jesus' teaching about Jonah and the Ninevites quickly yields the true answer to the _repentance definition_ enigma: 
-> **The men of Nineveh** will stand up at the judgment with this generation and condemn it; for **they REPENTED** at the preaching of Jonah, and now one greater than Jonah is here (Mt. 12:41). 
+Let's take a look at the clearest and most accurate Biblical _definition of repentance_. Jesu Lehre über Jona und die Niniveiten quickly yields die wahre Antwort to the _repentance definition_ enigma: 
+> **Leute von Ninive** werden austreten im Gerichte wider dieses Geschlecht und werden es verdammen; denn **sie THATEN BUSSE** auf die Predigt Jonas hin. Und siehe, hier ist mehr denn Jonas! (Mt 12,41; Schlachter 1905)
 
-**So whatever the Ninevites did is what the Lord Jesus identified as _repentance in the Bible._** 
+**Was auch immer die Niniveiten also getan hatten ist was der Herr Jesus identifizierte als _Busse in der Bibel._**
 
-**[PROOF That Shame and Godly Sorrow Accompany Repentance](#what%20is%20repentance)** 
+**[BEWEIS Dass Scham und Traurigkeit nach Gott Busse begleiten](#what%20is%20repentance)** 
 
-To find out exactly what Jesus meant when he said, "**they repented**," let's review the account to which he was referring:
+Um genau herauszufinden, was Jesus meinte, als er sagte, "**sie taten Busse**", lass uns den Bericht prüfen, auf welchen er sich bezog:
 
-[![repentance in the bible](../../files/pictures/repentance.jpg "gospel of jesus christ")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html) 
+[![busse in der bibel](../../files/pictures/repentance.jpg "evangelium von jesus christus")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html) 
 
-> The Ninevites believed God. They declared a fast, and all of them, from the greatest to the least, put on sackcloth. When the news reached the king of Nineveh, he rose from his throne, took off his royal robes, covered himself with sackcloth and sat down in the dust. Then he issued a proclamation in Nineveh: "By the decree of the king and his nobles: Do not let any man or beast, herd or flock, taste anything; do not let them eat or drink. But let man and beast be covered with sackcloth. Let everyone **call urgently on God. Let them give up their evil ways and their violence.** Who knows? God may yet relent and with compassion turn from his fierce anger so that we will not perish." **When God saw what they did and how they TURNED FROM THEIR EVIL WAYS**, he had compassion and did not bring upon them the destruction he had threatened (Jonah 3:5-10). 
+> Und die Leute von Ninive glaubten Gott und riefen ein Fasten aus und legten Säcke an, vom Größten bis zum Kleinsten. Und das Wort gelangte bis zum König von Ninive; der stand von seinem Throne auf, legte seinen Mantel von sich, hüllte sich in einen Sack und setzte sich in die Asche. Und er ließ ausrufen und sagen zu Ninive: «Auf Befehl des Königs und seiner Großen: Menschen und Vieh, Rinder und Schafe sollen nichts genießen, sie sollen weder weiden noch Wasser trinken; sondern Menschen und Vieh sollen sich in Säcke hüllen und **mit Macht [=heftig] zu Gott rufen und sollen sich abwenden, ein jeder von seinem bösen Wege und von dem Unrecht, das an seinen Händen klebt!** Wer weiß, Gott könnte andern Sinnes werden, es sich gereuen lassen und abstehen von seinem grimmigen Zorn, so daß wir nicht untergehen!» **Da nun Gott ihre Taten sah, daß sie SICH ABWANDTEN VON IHREN BÖSEN WEGEN,** reute ihn das Übel, das er ihnen angedroht hatte, und er tat es nicht. (Jona 3,5-10; Schlachterbibel 1951)
 
 
-## The Real Repentance Definition 
-
+## Die Wahre Definition von Busse
 
 From the aforementioned, we can now conclude repentance in the bible occurred when the Ninevites **humbled themselves** and called urgently on God, **giving up and turning from their evil ways**. According to the ultimate authority, this constitutes "**repentance**," unlike what some in our day wrongly want us to believe--that it is simply "changing your mind." 
 
 
-## Repentance In The Bible
+## Busse In Der Bibel
 
-[![repentance prayer](../../files/pictures/prodigal.JPG)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.html)
+[![gebet der busse](../../files/pictures/prodigal.JPG)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.html)
 
-Another good example of _repentance of sin_ is Jesus' teaching of the [**prodigal son**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.html): 
-> When he **came to his senses**, he said, "How many of my father's hired men have food to spare, and here I am starving to death! I will set out and go back to my father and say to him: Father, **I have sinned against heaven and against you. I am no longer worthy to be called your son**; make me like one of your hired men." So he got up and went to his father ... The son said to him, "Father, I have sinned against heaven and against you. I am no longer worthy to be called your son" (Lk.15:17-21). 
+Ein weiteres gutes Beispiel von _Busse von Sünde_ ist Jesu Lehre vom [**verlorenen Sohn**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.html): 
+> Er **kam aber zu sich selbst** und sprach: Wie viele Tagelöhner meines Vaters haben Brot im Überfluß, ich aber verderbe hier vor Hunger! Ich will mich aufmachen und zu meinem Vater gehen und zu ihm sagen: Vater, **ich habe gesündigt gegen den Himmel und vor dir, ich bin nicht mehr wert, dein Sohn zu heißen**; mache mich zu einem deiner Tagelöhner! Und er machte sich auf und ging zu seinem Vater. Als er aber noch fern war, sah ihn sein Vater und hatte Erbarmen, lief, fiel ihm um den Hals und küßte ihn. Der Sohn aber sprach zu ihm: Vater, ich habe gesündigt gegen den Himmel und vor dir, ich bin nicht mehr wert, dein Sohn zu heißen! (Lk 15,17-21; Schlachterbibel 1951)
 
-Jesus declared the prodigal's humility, regret, acknowledgment of sin and return to the Father caused this son to become **alive again** from his _dead_ and _lost_ spiritual state: 
-> For this son of mine was **dead and is alive again**; he was **lost and is found**." So they began to celebrate (Lk. 15:24). 
+Jesus declared the prodigal's humility, regret, acknowledgment of sin and return to the Father verursachten, dass dieser Sohn **wieder lebendig** wurde von seinem _toten_ und _verlorenene_ geistlichen Status:
+> Denn dieser mein Sohn war **tot und ist wieder lebendig geworden**; er war **verloren und ist wiedergefunden worden**. Und sie fingen an, fröhlich zu sein. (Lk 15,24; Schlachterbibel 1951)
 
-This is obviously _spiritual_ life and death, since the prodigal was **not** affected physically by this _death_, nor was he geographically _lost_. 
+Dies ist offensichtlich _geistliches_ Leben und Tod, da der verlorene Sohn **nicht** physisch durch diesen _Tod_ beeinflusst worden war, auch war er nicht geografisch gesehen _verloren_.
 
 
-## Repentance of Sin For Salvation
+## Busse von Sünde Für Errettung
 
-[![what is repentance definition](../../files/pictures/RepentOrPerish.gif "what is repentance")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/holiness-preaching.html)
+[![was ist die definition von busse](../../files/pictures/RepentOrPerish.gif "was ist busse")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/holiness-preaching.html)
 
-Peter taught that repentance is the remedy to perishing: 
-> The Lord is not slow in keeping his promise, as some understand slowness. He is patient with you, **not wanting anyone to perish, but everyone to come to repentance** (2 Pet. 3:9). 
+Petrus lehrte, dass Busse das Gegenmittel/Heilmittel sei für verlorengehen/zugrunde gehen/umkommen:
+> Der Herr säumt nicht mit der Verheißung, wie etliche es für ein Säumen halten, sondern er ist langmütig gegen uns, **da er nicht will, daß jemand verloren gehe, sondern daß jedermann Raum zur Buße habe.** (2.Pet 3,9; Schlachterbibel 1951)
 
-According to 2 Peter 3:9, one either repents or perishes. Hence, repentance is a salvation issue. Not only was repentance [**John the Baptist's**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john_the_baptist.htm) message (Mt. 3:1,2), but Jesus' continued John's message after he was put in prison. There is no greater endorsement on the soundness of one's message than that of the Lord's: 
+Laut 2. Petrus 3,9 tut jemand entweder Busse oder er geht verloren/geht zugrunde/kommt um. Daher ist Busse eine Errettungs-Angelenheit. Busse war nicht nur die Botschaft von [**Johannes dem Täufer**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john_the_baptist.htm) (Mt. 3,1-2), sondern Jesus fuhr fort mit Johannes' Botschaft, nachdem er ins Gefängnis geworfen wurde. Es gibt keien grössere Bestätigung von der Zuverlässigkeit von jemandes Botschaft denn von jener vom Herrn: 
 > When Jesus heard that John had been put in prison, he returned to Galilee ... From that time on Jesus began to preach," **Repent, for the kingdom of heaven is near**" (Mt. 4:12,17). 
 
 
-## Other Biblical Examples Of Repentance
+## Weitere Biblische Beispiele Von Busse
 
 David's repentance after his adultery and murder included acknowledging his sin (2 Sam. 12:13). See his heart-felt, sincere prayer in Psa. 51. 
 
-[![repentance in the bible](../../files/pictures/repentance-in-the-bible.jpg "Repentance in the bible is more than a change of mind!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html)
+[![busse in der bibel](../../files/pictures/repentance-in-the-bible.jpg "Busse in der Bibel ist mehr als eine Änderung der Gesinnung!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html)
 
-On the other hand, Saul was more concerned with being honored before the people than exhibiting true humility and repentance over his disobedience: 
-> Saul replied, "I have sinned. But **please honor me before the elders of my people and before Israel**; come back with me, so that I may worship the LORD your God" (1 Sam. 15:30). 
+Andererseits war Saulus mehr beunruhigt darüber, dass er vor den Leuten geehrt war, als wahre Demut und Busse über seinen Ungehorsam zur Schau zu stellen: 
+> Er aber sprach: Ich habe gesündiget; **aber ehre mich doch jetzt vor den Ältesten meines Volks und vor Israel**; und kehre mit mir um, daß ich den HERRN, deinen Gott, anbete. (1.Sam 15,30; Luther 1545)
 
-Peter's reaction to his own sin (thrice denial of Jesus) was _**bitter weeping:**_ 
-> The Lord turned and looked straight at Peter. Then Peter remembered the word the Lord had spoken to him: "Before the rooster crows today, you will disown me three times." And **he went outside and wept bitterly** (Lk. 22:61,62).  
+Petrus' Reaktion auf seine eigene Sünde (dreimaliges Verleugnen von Jesus) war **_bitteres Weinen_**:
+> Und der HERR wandte sich und sah Petrus an. Und Petrus gedachte an des HERRN Wort, das er zu ihm gesagt hatte: Ehe denn der Hahn krähet, wirst du mich dreimal verleugnen. Und **Petrus ging hinaus und weinete bitterlich.** (Lk 22,61-62; Luther 1545)
 
-How wise to follow the advice of James, who preached true repentance and refuted the "holy laughter" movement of our day, with its false view of revival: 
-> Come near to God and he will come near to you. **Wash your hands**, you sinners, and **purify your hearts**, you double-minded. **Grieve, mourn and wail. Change your laughter to mourning and your joy to gloom. Humble yourselves before the Lord**, and he will lift you up (Jam. 4:8-10). 
+Es ist sehr weise, dem Ratschlag von Jakobus zu folgen, der wahre Busse predigte und die heutige "heiliges Gelächter"-Bewegung mit seiner falschen Sicht von Erweckung widerlegte:
+> ​... nahet euch zu Gott, so nahet er sich zu euch!​ **Reiniget die Hände**, ihr Sünder, und **machet eure Herzen keusch [reinigen]**, die ihr geteilten Herzens seid!​ **Fühlet euer Elend, trauert und heulet! Euer Lachen verkehre sich in Weinen und eure Freude in Traurigkeit! ​Demütiget euch vor dem Herrn,** so wird er euch erhöhen. (Jak 4,7b-10; Schlachter 1905)
 
+## Verse bezüglich Busse und Barmherzigkeit?
 
-## Scriptures On Repentance And Mercy?
+[![definition von busse](../../files/pictures/repentance-definition.jpg "Die Definition von Busse geoffenbart, indem man Schrift und Schrift miteinander vergleicht.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/americarepent.htm)
 
-[![repentance definition](../../files/pictures/repentance-definition.jpg "The repentance definition is revealed by comparing scripture to scripture.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/americarepent.htm)
+Um Vergebung und [**Barmherzigkeit**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mercy.htm) vom Herrn zu bekommen, riet Jesaja,
+> Der Gottlose **verlasse seinen Weg und der Übeltäter seine Gedanken und kehre um zum HERRN**, so wird er sich seiner erbarmen, und zu unserm Gott; denn er vergibt viel. (Jesaja 55,7; Schlachterbibel 1951)
 
-To obtain pardon and [**mercy**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mercy.htm) from the Lord, Isaiah advised, 
-> Let the wicked **forsake his way and the evil man his thoughts. Let him turn to the LORD**, and he will have mercy on him, and to our God, for he will freely pardon" (55:7). 
+**[Beachte, es heisst dass Gott "reich ist an Vergebung/viel vergibt", aber im Kontext ist das konditionell/bedingt durch das verlassen der bösen Wege und Gedanken und das Zuwenden dem Herrn zu.]**
 
-**[Notice it says God will "freely pardon," but in context it is conditional upon forsaking wicked ways and thoughts, and turning to the Lord.]** 
-
-The prophet Daniel was highly esteemed (Dan 9:23) and gave wise (though unheeded) advice to King Nebuchadnezzar: 
+Der Prophet Daniel war highly esteemed (Dan 9:23) and gave wise (though unheeded) advice to King Nebuchadnezzar: 
 > Therefore, O king, be pleased to accept my advice: **Renounce your sins by doing what is right, and your wickedness by being kind to the oppressed**. It may be that then your prosperity will continue (Dan. 4:27).  
 
 Nebuchadnezzar's son, Belshazzar, did not _humble_ himself either though he knew about God's judgment on his father, and he even set himself up against the Lord of heaven (Dan. 5:22,23). How much wiser he would have been to follow Daniel's own good example: 
 > **I prayed** to the LORD my God **and confessed** ... **we have sinned and done wrong. We have been wicked and have rebelled; we have turned away from your commands and laws** ... yet we have not **sought the favor of the LORD our God by turning from our sins and giving attention to your truth** (Dan. 9:4,5). 
 
-Jeremiah advised the officials and people to "**reform your ways and your actions and obey the LORD your God**" (Jer. 26:13).  
+Jeremia riet den Beamten [engl. officials] und den Leuten, **ihre Wege und ihre Taten zu bessern und der Stimme des Herrn ihres Gottes zu gehorchen** (Jer. 26:13).  
 
 Solomon prayed, "When the heavens are shut up and there is no rain because your people have sinned against you, and when they pray toward this place and **confess your name and turn from their sin** because you have afflicted them" (1 Ki. 8:35). He also knew the following about repentance: 
 > "And if they have a **change of heart** in the land where they are held captive, **and repent and plead with you** in the land of their captivity and say, **We have sinned, we have done wrong and acted wickedly**'; and if they **turn back to you with all their heart and soul** in the land of their captivity where they were taken, and pray toward the land you gave their fathers, toward the city you have chosen and toward the temple I have built for your Name" (2 Chron. 6:37,38). 
 
 
-## The Remedy Is Repentance
+## Das Heilmittel ist Busse
 
 In the book of Ezekiel, the Lord commanded a mark be put on the foreheads of "those who **grieve and lament over all the detestable things**" [sins] being done in the city (9:4) to protect them from being slaughtered (9:6). Sometime afterward, God had Ezekiel prophesy: 
 > "This is what the Sovereign LORD says: **Repent! Turn from your idols and renounce all your detestable practices!**" (14:6). 
@@ -119,29 +117,29 @@ Ezekiel taught "The soul who sins is the one who will die" (18:20). However, God
 > But if a **wicked man turns away from all the sins he has committed and keeps all my decrees and does what is just and right, he will surely live; he will not die.** None of the offenses he has committed will be remembered against him. **Because of the righteous things he has done, he will live**. Do I take any pleasure in the death of the wicked? declares the Sovereign LORD. Rather, **am I not pleased when they turn from their ways and live**? ... But if a wicked man turns away from the wickedness he has committed and does what is just and right, he will save his life. Because he **considers all the offenses he has committed and turns away from them**, he will surely live; he will not die ... **Repent! Turn away from all your offenses; then sin will not be your downfall. Rid yourselves of all the offenses you have committed, and get a new heart and a new spirit**. Why will you die, O house of Israel? (Ezek. 18:21-23, 27, 28,30,31). 
 
 There is not a Christian who ever lived that was not tempted to sin, but the Holy Spirit provided a relevant, comforting truth to the Corinthian Christians which extends to us today: 
-> No [**temptation**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sudden-temptation.htm) has seized you except what is common to man. And God is faithful; **he will not let you be tempted beyond what you can bear**. But when you are tempted, he will also provide a way out so that **you can stand up under it** (1 Cor. 10:13). 
+> Es hat euch bisher nur menschliche [**Versuchung**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sudden-temptation.htm) betroffen: Gott aber ist treu, **der wird euch nicht versucht werden lassen über euer Vermögen**, sondern wird zugleich mit der Versuchung auch den Ausgang schaffen, **dass ihr sie ertragen könnt.** (1.Kor 10,13; Schlachter 1905)
 
-All will be tempted but no one has to yield to the temptation. How else can we avoid sin? The Apostle Paul gave us insight which can be a safeguard for our souls: 
-> Those who live according to the sinful nature have their minds set on what that nature desires; but those who live in accordance with the Spirit have their minds set on what the Spirit desires. **The mind of sinful man is death, but the mind controlled by the Spirit is life and peace** (Rom 8:5,6) 
+Alle werden versucht werden, aber niemand muss der Versuchung nachgeben. Wie sonst könnten wir Sünde vermeiden?Der Apostel Paulus gave us insight which can be a safeguard für unsere Seelen:
+> Denn die nach dem Fleische leben, sinnen auf das, was des Fleisches ist, die aber nach dem Geiste leben, auf das, was des Geistes ist. **Denn die Gesinnung des Fleisches ist Tod, die Gesinnung des Geistes aber Leben und Friede** (Röm 8,5-6; Schlachterbibel 1951)
 
 
-## Conditional Forgiveness
+## Bedingte/Konditionale Vergebung
 
 Many popular teachers in our day wrongly proclaim that all the Christian's sins--past, present and future--have already been forgiven. In contrast, the Bible cites conditions to being forgiven after one has experienced true regeneration: 
-> **IF we confess our sins**, he is faithful and just and will forgive us our sins and purify us from all unrighteousness (1 Jn. 1:9). 
+> **WENN wir aber unsere Sünden bekennen**, so ist er treu und gerecht, daß er uns die Sünden vergibt und uns reinigt von aller Ungerechtigeit. (1.Joh 1,9; Schlachterbibel 1951)
 
 The saved Apostle John included himself here by using the pronoun "we." This confession of sin to God must also be combined with a willingness to renounce those sins: 
-> **He who conceals his sins does not prosper, but whoever confesses and renounces them finds mercy** (Prov.28:13). 
+> **Wer seine Missetaten [=Sünden] verheimlicht, dem wird es nicht gelingen; wer sie aber bekennt und läßt, der wird Barmherzigkeit erlangen.** (Sprüche 28,13; Schlachterbibel 1951)
 
-The Lord Jesus gave another startling condition to receiving forgiveness that few in our day are willing to preach: 
-> For **if you forgive** men when they sin against you, **your heavenly Father will also forgive you**. But **<u>if you do not forgive men their sins, your Father will not forgive your sins</u>** (Mt. 6:14,15). 
+Der Herr Jesus gab eine weitere aufschreckende Bedingung, um Vergebung zu erlangen welche heutzutage wenige bereit sind zu predigen:
+> Denn **wenn ihr den Menschen ihre Fehler vergebet**, **so wird euer himmlischer Vater euch auch vergeben.** **<u>Wenn ihr aber den Menschen ihre Fehler nicht vergebet, so wird euch euer Vater eure Fehler auch nicht vergeben.</u>** (Mt 6,14-15; Schlachter 1905)
 
-Jesus is directing this teaching to his own disciples who came to him (5:1,2). Notice also in Mt. 6:14,15 that Jesus told them "your Father" will not forgive your sins if you do not forgive men their sins. He can't be speaking to unsaved people since they do not have God as their spiritual Father. 
+Jesus richtete diese Lehre an seine eigenen Jünger, die zu ihm kamen (5,1-2). Beachte auch in Mt. 6,14-15 dass Jesus ihnen sage "euer Vater" wird eure Sünden nicht vergeben, wenn ihr Menschen ihre Sünden nicht vergebt. Er kann nicht zu ungeretteten Leuten sprechen, da jene Gott nicht als ihren geistlichen Vater haben.
 
-King David wrote, "Blessed is he whose transgressions are forgiven, whose sins are covered" (Psa. 32:1) and told how he obtained forgiveness: 
+König David schrieb, "Blessed is he whose transgressions are forgiven, whose sins are covered" (Psa. 32:1) and told how he obtained forgiveness: 
 > Then **I acknowledged my sin to you and did not cover up my iniquity**. I said, "I will **confess my transgressions to the LORD**"--and you forgave the guilt of my sin (Psa. 32:5). 
 
-Forgiveness didn't come automatically, as evidenced by the above verse. David had to **do** something to obtain his forgiveness. Perhaps John had this and similar verses in mind when he wrote 1 Jn. 1:9. 
+Vergebung kommt nicht automatisch, wie durch den obigen Vers bewiesen. David musste etwas **tun**, um Vergebung zu bekommen. Johannes hatte vielleicht diesen und ähnliche Verse vor Augen, als er 1. Joh 1,9 schrieb.
 
 The Sovereign God's counsel through Isaiah was to: 
 > ... **wash and make yourselves clean**. Take your evil deeds out of my sight! **Stop doing wrong, learn to do right!** Seek justice, encourage the oppressed. Defend the cause of the fatherless, plead the case of the widow. "Come now, let us reason together," says the LORD. "Though your sins are like scarlet, they shall be as white as snow; though they are red as crimson, they shall be like wool" (1:16-18). 
@@ -185,7 +183,7 @@ While we were unsaved, we bore fruit for death (Rom. 7:5). But now we must produ
 Jesus sets us free from the [**slavery to sin**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html) (Jn. 8:34-36) but after initial salvation, Paul taught Christians to be persistent about seeking immortality, to continue by the Spirit and to put sin to death in order to live: 
 > To those who **by persistence in doing good seek glory, honor and immortality, he will give eternal life** (Rom. 2:7). 
 
-> For **if you live according to the sinful nature, you will die; but if by the Spirit you put to death the misdeeds of the body, you will live** (Rom. 8:13). 
+> Denn **wenn ihr nach dem Fleische lebet, so müsst ihr sterben; wenn ihr aber durch den Geist die Geschäfte des Leibes tötet, so werdet ihr leben.** (Röm 8,13; Schlachter 1905)
 
 Human responsibility and free will are also clear from Paul's advice to Pastor Timothy not to "**share in the sins of others. [**Keep yourself pure**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html)**" (1 Tim. 5:22). 
 
@@ -197,22 +195,21 @@ James taught what kind of religion is acceptable to God and what the Christians 
 These are all true grace teachings. The problem, then, lies with those who have a distorted view of grace. 
 
 
-## Search Your Heart And Rid Yourself 
-
+## Erforsche Dein Herz und Säubere [engl. Rid] Dich Selbst
 
 Following the advice of the Psalms can be of great benefit to those who desire to maintain a godly walk before the Lord: 
 > In your anger do not sin; **when you are on your beds, search your hearts and be silent** (Psa. 4:4). 
 
-> **I confess my iniquity; I am troubled by my sin** (Psa. 38:18). 
+> **​Denn ich bekenne meine Schuld und bin bekümmert wegen meiner Sünde.** (Ps 38,18; Schlachterbibel 1951)
 
-> I have **considered my ways and have turned my steps to your statutes** (Psa. 119:59). 
+> Ich habe **meine Wege überdacht, und meine Füße gekehrt zu deinen Zeugnissen.** (Ps 119,59; elb1905)
 
-> **Search me, O God, and know my heart; test me and know my anxious thoughts. See if there is any offensive way in me, and lead me in the way everlasting** (Psa. 139:23,24). 
+> **Erforsche mich, o Gott, und erkenne mein Herz; prüfe mich und erkenne, wie ich es meine; und siehe, ob ich auf bösem Wege bin, und leite mich auf ewigem Wege!** (Ps 139,23-24; Schlachterbibel 1951)
 
 These types of prayers will help us to keep a pure heart, which is vital since those are the ones who will stand in God's holy place (Psa. 24:3,4). "Holding on to faith and a good conscience" will keep us from becoming spiritual shipwrecks (1 Tim. 1:19). 
 
 Peter and Paul gave us other important safeguards and commands: 
-> Therefore, **rid yourselves of all malice and all deceit, hypocrisy, envy, and slander of every kind**. Like newborn babies, crave pure spiritual milk, so that by it you may grow up in your salvation (1 Pet. 2:1,2). 
+> So **leget nun ab alle Bosheit und allen Betrug und Heuchelei und Neid und alles Afterreden [=Verleumdungen]**; und seid gierig nach der vernünftigen lautern Milch als die jetzt gebornen Kindlein, auf daß ihr durch dieselbige zunehmet, (1.Pet 2,1-2; Luther 1545)
 
 > **Whoever would love life** and see good days **must keep his tongue from evil and his lips from deceitful speech. He must turn from evil and do good; he must seek [**peace**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/peace.htm) and pursue it** (1 Pet. 3:10,11). 
 
@@ -225,9 +222,9 @@ To rid yourself of sin in order to return to God has long been a Biblical comman
 
 > **Rid yourselves of all the offenses you have committed, and get a new heart and a new spirit**. Why will you die, O house of Israel? (Ezek. 18:31). 
 
-<a name="what%20is%20repentance"></a>
-## True Repentance Includes Godly Sorrow And Shame 
 
+<a name="what%20is%20repentance"></a>
+## Wahre Busse Beinhaltet Traurigkeit Nach Gott Und Scham
 
 True repentance also manifests itself in sorrow, shame over sinful acts committed and an earnest desire to make things right: 
 > When you were slaves to sin, you were free from the control of righteousness. What benefit did you reap at that time from **the things you are now ashamed of**? Those things result in death! But now that you have been set free from sin and have become slaves to God, the benefit you reap leads to holiness, and the result is eternal life (Rom. 6:20-22). 
@@ -249,45 +246,43 @@ A good checkpoint of your heart condition, then, is: do you fear God and hate yo
 **Two clear examples of a _repentance prayer_ is found in Jer. 3:23-35 and Luke 18:13,14.** In the latter, we read the sincere and humble prayer which brought justification to a tax collector (a wicked sinner): 
 > "...Surely the **idolatrous commotion on the hills and mountains is a deception;** surely in the LORD our God is the salvation of Israel. From our youth **shameful gods** have consumed the fruits of our fathers' labor-- their flocks and herds, their sons and daughters. Let us lie down in **our shame, and let our disgrace cover us. We have sinned against the LORD our God, both we and our fathers; from our youth till this day we have not obeyed the LORD our God.**" (Jer 3:23-25)
 
-> "But the tax collector stood at a distance. He would not even look up to heaven, but beat his breast and said, **'God, have mercy on me, a sinner.'** "I tell you that this man, rather than the other, went home justified before God. For everyone who exalts himself will be humbled, and he who humbles himself will be exalted." (Luke 18:14) 
+> "Und der Zöllner stand von ferne, wagte nicht einmal seine Augen zum Himmel zu erheben, sondern schlug an seine Brust und sprach: **O Gott, sei mir Sünder gnädig!** Ich sage euch, dieser ging gerechtfertigt in sein Haus hinab, eher als jener; denn wer sich selbst erhöht, der wird erniedrigt werden, und wer sich selbst erniedrigt, der wird erhöht werden." (Lk 18,13-14; Schlachterbibel 1951)
 
 **The _repentance prayer_ of that humble and sincere tax collector (_God have mercy on me a sinner)_ is also a [backsliders prayer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/backslider.html)** 
 
-[**Find Out WHY Those In Hebrews 6:4-6 Couldn't Be Renewed Again Through Repentance**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hebrews.htm) 
+[**Finde Heraus, WARUM Jene In Hebräer 6,4-6 Nicht Erneuert Werden Konnten Durch Busse**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hebrews.htm) 
 
 
-## Repentance From Dead Works
-
+## Busse Von Toten Werken
 
 As previously mentioned, Heb. 6:1 declares there are acts that lead to death, but what are they? Sins such as listed in 1 Cor. 6:9,10, Eph. 5:5,6, Gal. 5:19-21 and Rev. 21:8 give us insight into things from which one must repent, since those who do themwill **not** inherit the kingdom: 
 > <u>Do you not know that **the unrighteous will not inherit the kingdom of God?** Do not be deceived; neither fornicators, nor idolaters, nor adulterers, nor effeminate, nor homosexuals, nor thieves, nor the covetous, nor [**drunkards**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/drunk.html), nor revilers, nor swindlers, will inherit the kingdom of God</u>. (1 Cor. 6:9,10, NASB) . 
 
 > For of this **you can be sure: No immoral, impure or greedy person--such a man is an idolater--has any inheritance in the kingdom of Christ and of God. Let no one deceive you with empty words, for because of such things God's wrath comes on those who are disobedient** (Eph. 5:5,6). 
 
-> The acts of the sinful nature are obvious: **sexual immorality, impurity and debauchery; idolatry and witchcraft; hatred, discord, jealousy, fits of rage, selfish ambition, dissensions, factions and envy; drunkenness, orgies, and the like. I warn you, as I did before, that those who live like this will not inherit the kingdom of God** (Gal. 5:19-21). 
+> Offenbar sind aber die Werke des Fleisches, welche sind: **Ehebruch, Unzucht, Unreinigkeit, Ausschweifung; Götzendienst, Zauberei, Feindschaft, Hader, Eifersucht, Zorn, Ehrgeiz, Zwietracht, Spaltungen, Neid, Mord; Trunkenheit, Gelage und dergleichen, wovon ich euch voraussage, wie ich schon zuvor gesagt habe, daß die, welche solches tun, das Reich Gottes nicht ererben werden.** (Gal 5,19-21; Schlachterbibel 1951)
 
-> But **the cowardly, the unbelieving, the vile, the murderers, the sexually immoral, those who practice [**magic arts**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html), the idolaters and all liars--their place will be in the fiery lake of burning sulfur**. This is the second death (Rev. 21:8). 
+> **Den Feiglingen aber und Ungläubigen und Greulichen und Mördern und Unzüchtigen und [Zauberern](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html) und Götzendienern und allen Lügnern wird ihr Teil sein in dem See, der von Feuer und Schwefel brennt;** das ist der zweite Tod. (Off 21,8; Schlachterbibel 1951)
 
 What hope does the unfortunate Christian have who would fall into such sins after initial salvation? These abominations must be confessed and forsaken with forgiveness being sought from God. Jesus taught that the prodigal became **alive again** after a complete break from being with the prostitutes (Lk. 15:24,32). The same can be stated regarding David after he humbly sought the Lord's forgiveness from his sexual sin and murder (Psa. 51). Was David saved all during his detestable sin before he repented? Not according to the [**Sovereign God**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sovereignty-of-god.html), who spoke Rev. 21:8 from his own throne after the infinite work of the Lord Jesus was completed. God made no exception for anyone, including a man who wrote part of the Bible. Thank God David repented before he died. Many don't. Ezekiel explains what happened spiritually to [**King David**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/king-david-sinned.html) during that dark time of his life: 
-> "But **if a righteous man turns from his righteousness and commits sin and does the same detestable things the wicked man does, will he live? None of the righteous things he has done will be remembered. Because of the unfaithfulness he is guilty of and because of the sins he has committed, he will die**" (Ezek. 18:24). 
+> "**Wenn dagegen der Gerechte sich von seiner Gerechtigkeit abwendet und Unrecht tut und nach allen Greueln des Gottlosen handelt, sollte er leben? Nein, sondern es soll aller seiner Gerechtigkeit, die er getan hat, nicht gedacht werden; in seiner Übertretung, mit der er sich vergangen, und in seiner Sünde, mit der er sich versündigt hat, soll er sterben! (Hes 18,24; Schlachterbibel**" 1951)
 
-> ... "The righteousness of the righteous man will not save him when he disobeys, and the wickedness of the wicked man will not cause him to fall when he turns from it. **The righteous man, if he sins, will not be allowed to live because of his former righteousness." If I tell the righteous man that he will surely live, but then he trusts in his righteousness and does evil, none of the righteous things he has done will be remembered; he will die for the evil he has done** (Ezek. 33:12,13). 
+> Und du, Menschensohn, sage zu den Kindern deines Volkes: Den Gerechten wird seine Gerechtigkeit nicht erretten am Tage, da er sich versündigt; und den Gottlosen wird seine Gottlosigkeit nicht fällen am Tage, da er sich von seinem gottlosen Wesen abwendet, **so wenig als den Gerechten seine Gerechtigkeit am Leben erhalten wird, wenn er sündigt. Wenn ich vom Gerechten sage: «Er soll sicherlich leben!» und er verläßt sich auf seine Gerechtigkeit und tut Unrecht, so soll aller seiner Gerechtigkeit nicht mehr gedacht werden; sondern um seiner Bosheit willen, die er getan hat, soll er sterben.** (Hes 33,12-13; Schlachterbibel 1951)
 
 Similar to what Jesus taught about the prodigal, Paul told the Roman Christians: 
-> For **if you live according to the sinful nature, you will die; but if by the Spirit you put to death the misdeeds of the body, you will live** (Rom 8:13) 
+> Denn **wenn ihr nach dem Fleische lebet, so müsst ihr sterben; wenn ihr aber durch den Geist die Geschäfte des Leibes tötet, so werdet ihr leben.** (Röm 8,13; Schlachter 1905)
 
 Those who are spiritual can help to restore the [**backsliding**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/backslider.html) to salvation: 
-> My brothers, if one of you should wander from the truth and someone should bring him back, remember this: **Whoever turns a sinner from the error of his way will save him from death and cover over a multitude of sins**. (Jam. 5:19,20) 
+> ​Meine Brüder, wenn jemand unter euch von der Wahrheit abirrt, und es bekehrt ihn einer, ​der soll wissen, dass, **wer einen Sünder von seinem Irrweg bekehrt hat, seine Seele vom Tode retten und eine Menge Sünden bedecken wird.** (Jak 5,19-20; Schlachter 1905)
 
-> **Brothers, if someone is caught in a sin, you who are spiritual should restore him gently**. But watch yourself, or you also may be tempted. (Gal. 6:1) 
+> **Brüder, wenn auch ein Mensch von einem Fehltritt übereilt würde, so helfet ihr, die ihr geistlich seid, einem solchen im Geiste der Sanftmut wieder zurecht;** und sieh dabei auf dich selbst, daß du nicht auch versucht werdest! (Gal 6,1; Schlachterbibel 1951)
 
 > If anyone sees his brother commit a sin that does not lead to death, **he should pray and God will give him life. I refer to those whose sin does not lead to death**. There is a sin that leads to death. I am not saying that he should pray about that. All wrongdoing is sin, and there is sin that does not lead to death (1 Jn. 5:16,17). 
 
 
-## Repentance and Forgiveness For a Thief Includes Restitution
+## Busse und Vergebugn Für einen Dieb Beinhaltet Entschädigung
 
-
-Thieves must give back what they stole: 
+Diebe müssen zurückgeben, was sie gestohlen hatten:
 > **A thief must certainly make restitution**, but if he has nothing, he must be sold to pay for his theft. If the stolen animal is found alive in his possession--whether ox or donkey or sheep--**he must pay back double**. If a man grazes his livestock in a field or vineyard and lets them stray and they graze in another man's field, **he must make restitution** from the best of his own field or vineyard. If a fire breaks out and spreads into thornbushes so that it burns shocks of grain or standing grain or the whole field, the one who started the fire **must make restitution**. If a man gives his neighbor silver or goods for safekeeping and they are stolen from the neighbor's house, the thief, if he is caught, **must pay back double** .... In all cases of illegal possession ... **The one whom the judges declare guilty must pay back double to his neighbor** .... But **if the animal was stolen from the neighbor, he must make restitution** to the owner ... If a man borrows an animal from his neighbor and it is injured or dies while the owner is not present, **he must make restitution** .... If a man seduces a virgin who is not pledged to be married and sleeps with her, **he must pay the bride-price**, and she shall be his wife. If her father absolutely refuses to give her to him, **he must still pay the bride-price for virgins** (Exo. 22:3-17). 
 
 Does restitution apply to us under the New Covenant? Yes! At Zacchaeus' willingness to make restitution to others that he cheated, Jesus declared this showed that salvation had come to him: 
@@ -297,7 +292,6 @@ But in the case of the dying, repentant thief on the cross next to Jesus, he cou
 
 
 ## Repentance Definition Summarizing List
-
 
 Though not an exhaustive listing, we have seen the following truths showing the _meaning of repent_, as taught in the Bible: 
 
