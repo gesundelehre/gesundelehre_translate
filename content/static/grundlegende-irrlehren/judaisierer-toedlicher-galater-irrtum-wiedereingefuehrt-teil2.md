@@ -43,7 +43,7 @@ Dear friend, do you believe **_it is not the natural children who are God’s ch
 
 The Jews magnified _circumcision_, but not the right kind—**circumcision of the heart.** All who receive _circumcision of the heart_ are **the real Jews** and **heirs of God’s promise—_not_ the natural children, unless they also received circumcision of the _heart_**:
 
-> Understand, then, that **those who believe are children of Abraham** (Gal. 3:7).
+> Dann nehmt zur Kenntnis: **Die, die aus Glauben sind, diese sind Söhne Abrahams.** (Gal 3,7; Jantzen-NT)
 
 In the New Testament, unlike in the Old Testament, **any person can be Abraham’s child, without circumcision, and by [_faith_ in Christ Jesus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html). This vital Christian concept is not apparent in the Torah as it is in Paul’s epistles. _The Scriptural emphasis for Christians should, therefore, be in the New Testament where we will learn what the Lord and his apostles taught:_**
 
@@ -117,15 +117,15 @@ There have been many important changes from Moses day compared to the New Testam
 
 - In the Old Testament certain foods were considered _clean_ or _unclean_, but not anymore (Lev. 11:47 cf. Mark 7:15-19)
 
-- In the Old Testament, one could become _unclean_ by touching a dead body, but not anymore (Num. 11:19 cf. Mk. 7:20-23)
+- Im Alten Testamen, konnte man _unrein_ werden, indem man einen toten Körper berührten, aber nun nicht mehr (Num. 11:19 cf. Mk. 7:20-23)
 
-- In the Old Testament a **[false prophet](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)** was put to death, but not in our day (Deut. 18:20 cf. Mt. 24:10,11)
+- Im Alten Testament wurde ein **[falscher Prophet](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)** hingerichtet, aber heutzutage nicht mehr (Deut. 18:20 cf. Mt. 24:10,11)
 
-- In the Old Testament a _blasphemer_ was stoned to death, but not in our day (Ex. 24:23)
+- Im Alten Testament wurde ein _Gottesläserer_ zu Tode gesteinigt, aber heutzutage nicht mehr (Ex. 24:23)
 
-- In the Old Testament a Saturday Sabbath breaker was _stoned to death_, but not in our day (Num. 15:32-36)
+- Im Alten Testament wurde ein Sabbatbrecher _zu Tode gesteinigt_ aber heutzutage nicht mehr (Num. 15:32-36)
 
-- In the Old Testament _the whole assembly_ was to stone to death a Saturday Sabbath breaker, but not in our day (Num. 15:36; Joshua 7:25)
+- Im Alten Testament musste _die gesamte Versammlung_ einen Samstags Sabbat Brecher zu Tode steinigen, aber heutzutage nicht mehr (Num. 15:36; Joshua 7:25)
 
 - In the Old Testament the _Sabbath_ was Saturday and always the special week day of rest, but now we have a choice of a particular day to set aside to honor God (Dt. 5:12-15 cf. Rom. 14:5,6)
 

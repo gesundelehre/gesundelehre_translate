@@ -14,25 +14,25 @@ Source: [www.evangelicaloutreach.org/spiritism.htm](http://gesundelehre.tk/forwa
 
 **[Letter from (and response to) a Brazilian Spiritist](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritist.html)**
 
-![witchcraft spiritism](../../files/pictures/009.gif)
+![hexerei spiritismus](../../files/pictures/009.gif)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 ## ALL Forms of Spiritism and Witchcraft Are Forbidden By God
 
-[![witchcraft](../../files/pictures/witchcraft.jpg)](../../files/pictures/witchcraft.pdf)
+[![hexerei](../../files/pictures/witchcraft.jpg)](../../files/pictures/witchcraft.pdf)
 
 [![psychic and christian](../../files/pictures/psychic-and-christian.jpg "This is an informative printout on witchcraft.")](../../files/pictures/psychic-and-christian.pdf)
 
 [![Witchcraft](../../files/pictures/Witch.png "Witches do not look like this picture.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ouija2.html)
 
-**Beware of all forms of witchcraft and spiritism! Do NOT consult witches, wizards, sorcerers, fortune tellers, mediums, diviners and necromancers! Have nothing to do with palmistry, tea leaf reading, Tarot card reading, crystal reading, [**Ouija**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ouija2.html) boards, astrology, horoscopes or black magic in any form!** "Why?" you may ask. **Because ALL of these are condemned by the Bible! They are not good, but evil, according to the Creator of this universe. You will become spiritually defiled by just seeking out such!**
+**Hüte dich vor allen Formen von Hexerei und Spiritismus! Konsultiere KEINE Hexen, Zauberer, Magier, Kartenleger, Medien, Hellseher und Geisterbeschwörer(Totenbefrager)! Habe nichts zu tun mit Handlinienlesen, Kaffesatzlesen, Tarotkarten lesen, Kristallesen, [**Ouija**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ouija2.html) Brettern, Astrologie, Horoskope oder schwarzer Magie in jeglicher Form!** "Warum?" Wirst du vielleicht fragen. **Weil ALLE diese von der Bibel verurteilt/verdammt werden! Sie sind nicht gut, sondern böse laut dem dem Schöpfer dieses Universums. Du wirst geistlich verschmutzt, indem du solches konsultierst!**
 
-## Did You Know This About _Spiritism_
+## Wusstest Du Dies Über _Spiritismus_
 
 (1) **To consult mediums or seek out spiritists is to become defiled by them!**
 
-> "Do not turn to mediums or seek out spiritists, for you will be defiled by them. I am the LORD your God" (Lev.19:31).
+> "Ihr sollt euch nicht an die Totenbeschwörer wenden, noch an die Zeichendeuter; ihr sollt sie nicht fragen, auf daß ihr durch sie nicht verunreinigt werdet; denn ich, der HERR, bin euer Gott." (3. Mose 19,31; Schlachterbibel 1951)
 
 ## [The Woes of Witchcraft - A Personal Testimony](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/witchcraftwoes.html)
 
@@ -40,52 +40,52 @@ Source: [www.evangelicaloutreach.org/spiritism.htm](http://gesundelehre.tk/forwa
 
 (2) **God is AGAINST anyone who follows after spiritists or mediums, and they will be cut off.**
 
-> "I will set my face against the person who turns to mediums and spiritists to prostitute himself by following them, and I will cut him off from his people" (Lev. 20:6).
+> Auch wenn sich eine Seele zu den Totenbeschwörern und Zeichendeutern wendet und ihnen nachbuhlt [=nachhuren], so will ich mein Angesicht wider diese Seele richten und sie aus der Mitte ihres Volkes ausrotten." (3. Mose 20,6; Schlachterbibel 1951)
 
-## [Click For Proof That Repentant Sorcerers Burned Their Sorcery Scrolls](#spiritism)
+## [Klicke Für Den Beweis Dafür, Dass Bussfertige Magier Ihre Zauberbücher Verbrannten](#spiritism)
 
-(3) **ALL who practice sorcery, witchcraft and the like are "detestable" to the Lord, according to Scripture.**
+(3) **ALLE die Magie, Zauberei und ähnliches praktizieren sind dem Herrn laut der Bibel ein Greuel**
 
 > "Let no one be found among you who sacrifices his son or daughter in the fire, who practices divination or sorcery, interprets omens, engages in witchcraft, or casts spells, or who is a medium or spiritist or who consults the dead. **Anyone who does these things is detestable to the LORD** ..." (Deut. 18:10-12).
 
 > "They sacrificed their sons and daughters in the fire. They practiced divination and sorcery and sold themselves to do evil in the eyes of the LORD, provoking him to anger. So the LORD was very angry with Israel and removed them from his presence ..." (2 Kings 17:17,18).
 
-![Witchcraft "Witchcraft is not something to play with!"](../../files/pictures/WitchPot.png)
+![Hexerei "Hexerei ist nichts womit man spielt!"](../../files/pictures/WitchPot.png)
 
 (4) Ahaziah sought to know the future about his own injury and he died because he consulted a forbidden source, which was Baal-Zebub (2 Kings 1:2 cf. v. 16). **Learn from his example and seek only the truth stated in the Bible regarding future things.**
 
-[![witchcraft](../../files/pictures/wiccan-rede-and-ye-harm-none-do-what-thou-will-biblical-replacement.jpg "Witchcraft is occultic and condemned by the word of God!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html)
+[![hexerei](../../files/pictures/wiccan-rede-and-ye-harm-none-do-what-thou-will-biblical-replacement.jpg "Hexerei ist okkult und wird durch das Wort Gottes verdammt/verurteilt!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html)
 
-(5) The Apostle Paul cast a fortune telling demon out of a girl by saying,
+(5) Der Apostel Paulus trieb einen weissagenden/wahrsagenden Dämon aus einem Mädchen aus, indem er sagte:
 
-> "In the name of Jesus Christ I command you to come out of her" (Acts 16:16-18).
+> "... Ich gebiete dir in dem Namen Jesu Christi, von ihr auszufahren! ..." (Apg 16,16-18).
 
-**When the demon departed, her ability to foretell the future was also gone!**
+**Als der Dämon ausfuhr, war ihre Fähigkeit die Zukunft vorherzusagen auch gegangen!**
 
 (6) **To consult a medium for guidance is to show yourself unfaithful to God:**
 
 > "Saul died because he was unfaithful to the LORD; he did not keep the word of the LORD and even consulted a medium for guidance" (1 Chron. 10:13).
 
-(7) **[The rich man could not communicate with his brothers after death, nor could Lazarus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/luke16.htm) (Lk.16:19-31). Don't be deceived by mediums and seances that give a different impression.**
+(7) **[Der reiche Mann konnte nach dem Tod nicht mit seinen Brüdern kommunizieren, noch konnte Lazarus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/luke16.htm) (Lk.16,19-31). Werde nicht durch Medien und Seancen irregeführt/getäuscht, welche dir einen anderen Eindruck geben.**
 
 (8) A sorcerer opposed the Apostle Paul and Barnabas from preaching the Word of God to a man who wanted to hear it. Paul, filled with the Holy Spirit, said to the sorcerer,
 
 > "You are a child of the devil and an enemy of everything that is right! You are full of all kinds of deceit and trickery. Will you never stop perverting the right ways of the Lord? Now the hand of the Lord is against you. You are going to be blind, and for a time you will be unable to see the light of the sun" (Acts 13:6-11).
 
-## [Johanna Michaelsen Thought She Was A _Christian Spirit Medium_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johanna-michaelsen-beautiful-side-of-evil.htm)
+## [Johanna Michaelsen Dache Sie Wäre Ein _christliches Geister Medium_ gewesen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johanna-michaelsen-beautiful-side-of-evil.htm)
 
 <a name="spiritism"></a>
-(9) **Ex-sorcerers at Ephesus who converted to Christianity publicly burned their scrolls (Acts 19:18,19). This is how they proved their repentance (Acts 26:20) in first-century Christianity.**
+(9) **Ehemalige Zauberer zu Ephesus die zum Christentum konvertierten verbrannten iihre Zauberbücher öffentlich (Apg19,18-19). Dies ist wie sie im Christentum des ersten Jahrhunderts ihre Busse bewiesen (Apg 26,20).**
 
 > "Many of those who believed now came and openly confessed their evil deeds. **A number who had practiced sorcery brought their scrolls together and burned them publicly.** When they calculated the value of the scrolls, the total came to fifty thousand drachmas" (Acts 19:18,19).
 
-(10) "But the cowardly, the unbelieving, the vile, the murderers, the sexually immoral, **those who practice magic arts**, the idolaters and all liars -- **their place will be in the fiery lake of burning sulfur**. This is the second death" (Rev. 21:8). See also Rev. 22:15\. The only hope such people have is to turn from their evil ways.
+(10) "Den Feiglingen aber und Ungläubigen und Greulichen und Mördern und Unzüchtigen und **Zauberern** und Götzendienern und allen Lügnern **wird ihr Teil sein in dem See, der von Feuer und Schwefel brennt**; das ist der zweite Tod." (Off 21,8; Schlachterbibel 1951) Siehe auch Off 22,15. Die einzige Hoffnung für solche Leute ist, sich von ihren bösen Wegen abzuwenden.
 
 Manasseh was an Old Testament example of a person who "practiced sorcery, divination and witchcraft," yet he got saved and proved his repentance by his deeds (2 Chron. 33:1-20). Simon is a New Testament example of a sorcerer who got saved at the point of Acts 8:9-<u>13</u>, yet later his heart was not right before God (Acts 8:20,21).
 
-## [Read An Email From a Brazilian Spiritist and Christian Response](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritist.html)
+## [Lies Eine Email Von einem brasilianischen Spiritisten und eine christliche Antwort](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritist.html)
 
-(11) **Don't be deceived by mediums and spiritists, even though some can perform [miracles](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/miracles.html) (Exo. 7:11). They are not speaking or acting in accord to Scripture and therefore have "no light of dawn."**
+(11) **Wer't be deceived by mediums and spiritists, even though some can perform [miracles](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/miracles.html) (Exo. 7:11). They are not speaking or acting in accord to Scripture and therefore have "no light of dawn."**
 
 > "When men tell you to consult mediums and spiritists, who whisper and mutter, should not a people inquire of their God? Why consult the dead on behalf of the living? **To the law and to the testimony! If they do not speak according to this word, they have no light of dawn" (Isa. 8:19,20)**.
 

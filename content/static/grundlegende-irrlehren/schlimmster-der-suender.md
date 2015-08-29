@@ -1,5 +1,5 @@
-<!--t Schlimmster Der Sünder (Römer 7,14-20) - in Arbeit (50% übersetzt) t-->
-<!--d Schlimmster Der Sünder (Römer 7,14-20) - in Arbeit (50% übersetzt) d-->
+<!--t Schlimmster Der Sünder (Römer 7,14-20) - in Arbeit (70% übersetzt) t-->
+<!--d Schlimmster Der Sünder (Römer 7,14-20) - in Arbeit (70% übersetzt) d-->
 
 Schlimmster Der Sünder (Römer 7,14-20)
 
@@ -28,15 +28,15 @@ Source:[www.evangelicaloutreach.org/worst-of-sinners.htm](http://gesundelehre.tk
 
 **Ob du es glaubst oder nicht, die Theologie einiger has labeled the Apostle Paulus als den _schlimmsten der Sünder!_ Schockierend, aber wahr! Dieses _Schlimmster der Sünder_ label wurde manchmal auch schon mit Römer 7,14-20 verbunden:**
 
-[![schlimmster der sünder](../../files/pictures/paul-was-a-false-apostle-worst-of-sinners-lie.jpg "Paul was NOT the worst of sinners as a Christian!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)
+[![schlimmster der sünder](../../files/pictures/paul-was-a-false-apostle-worst-of-sinners-lie.jpg "Paulus war NICHT der schlimmste der Sünder als Christ!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)
 
-> We know that the law is spiritual; but **I am unspiritual, sold as a slave to sin.** I do not understand what I do. For what I want to do I do not do, but what I hate I do. And if I do what I do not want to do, I agree that the law is good. As it is, it is no longer I myself who do it, but it is sin living in me. **I know that nothing good lives in me, that is, in my sinful nature.** For I have the desire to do what is good, but I cannot carry it out. For what I do is not the good I want to do; no, **the evil I do not want to do -- this I keep on doing.** Now if I do what I do not want to do, it is no longer I who do it, but it is sin living in me that does it (NIV).
+> Denn wir wissen, dass das Gesetz geistlich ist; **ich aber bin fleischlich, unter die Sünde verkauft.** Denn was ich vollbringe, billige ich nicht; denn ich thue nicht, was ich will, sondern was ich hasse, das übe ich aus. Wenn ich aber das nicht will, was ich thue, so stimme ich dem Gesetze bei, dass es trefflich sei. Nun aber vollbringe nicht mehr ich dasselbe, sondern die Sünde, die in mir wohnt. **Denn ich weiss, dass in mir, das ist in meinem Fleische, nichts Gutes wohnt**; Wollen habe ich wohl, aber Vollbringen das Gute finde ich nicht! Denn nicht das Gute thue ich, das ich will, **sondern das Böse, das ich nicht will, übe ich aus.** Wenn ich aber das thue, was ich nicht will, so vollbringe nicht mehr ich dasselbe, sondern die Sünde, die in mir wohnt. (Rom 7:14-20; Schlachter 1905)
 
 ## [Hier Ist Der Beweis Dafür, Dass Der _Schlimmste Der Sünder_ Vers Falsch Angewandt Wurde](#worst%20of%20sinners)
 
 ## Könnte _Unaufhörlich BÖSES Tun_ Das Normale Christliche Leben Sein?
 
-Some have erroneously alluded to that Roman's passage by saying it's _normal Christian living_ and the like:
+Einige haben irrtümlicherweise auf diesen Abschnitt im Römerbrief hingewiesen, indem sie sagten es sei das _normale christliche Leben_ und ähnliches:
 
 > Paulus spricht von von [sic] dem normalen christlichen Leben. ([**Robert Morey**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/morey.html))
 
@@ -46,7 +46,7 @@ Diese Passage aus dem Römerbrief falsch auf Paulus anwendend, schrieben Gromack
 
 > Paulus sagte, dass er "unter Sünde verkauft" war (Röm7,14). **Sünde besass und kontrollierte ihn; er war dessen Sklave.**
 
-> Romans 7 is the classic text describing the believer's struggle with his sinful flesh. Note that while **Paul acknowledged his own disobedience** ....
+> Romans 7 ist der klassische Text, der den Kampf des Gläubigen mit seinem sündhaften Fleisch beschreibt. Beachte dass während **Paulus seinen eigenen Ungehorsam anerkannte/bestätigte/eingestand [engl. acknowledged]** ....
 
 **Denk daran, wir sollten immer Schrift mit Schrift vergleichen, wenn wir die [Bibel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) studieren**.
 
@@ -108,15 +108,14 @@ In another concise summary of his own life, Paul said that he conducted himself 
 
 Ist es möglich, dass sich Paulus' Worte _ich aber bin fleischlich, unter die Sünde verkauft_ (Röm7,14), auf ihn selbst beziehen im Lichte von allen diesen Passagen über sein eigenes Verhalten? Niemals!
 
-Besides Paul's holy and zealous lifestyle, we know the OSAS interpretation of Rom. 7:14-20 is wrong in yet another way! Let's focus our attention in upon verses 18 and 19:
-
+Besides Paul's holy and zealous lifestyle, we know the OSAS interpretation of Rom. 7:14-20 is wrong in yet another way! Lass uns unsere Aufmerksamkeit auf Verse 18 und 19 richten:
 > ... For I have the desire to do what is good, **but I cannot carry it out.** For what I do is not the good I want to do; no, **the evil I do not want to do -- this I keep on doing** (Rom. 7:18,19, NIV).
 
-In other words, the spiritual power is missing to live a holy life [**free from sin's bondage**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/slave.htm), according to those verses. Is it possible that Paul is speaking of himself or _the normal Christian life_ by writing such? If so, then how did Paul live such a consistently holy life?
+Mit anderen Worten, laut diesen Versen fehlt die geistliche Kraft, um ein heiliges Leben [**frei von der Sklaverei der Sünde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/slave.htm), zu leben. Ist es möglich, dass Paulus von sich selber oder _dem normalen christlichen Leben_ spricht, indem er solches schreibt? Wenn ja, wie konnte dann Paulus ein so konsequent heiliges Leben führen?
 
-Paul elaborates on the Christian's [**freedom from sin**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html):
+Paulus elaborates on the Christian's [**freedom from sin**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html):
 
-> **And having been set free from sin,** you became slaves of righteousness (Rom. 6:18, NKJV).
+> **Denn nun ihr frei geworden seid von der Sünde**, seid ihr Knechte der Gerechtigkeit geworden. (Rom 6:18; Luther 1912)
 
 Vor der Errettung ist eine Person jedoch _kraftlos/schwach:_
 
@@ -124,13 +123,13 @@ Vor der Errettung ist eine Person jedoch _kraftlos/schwach:_
 
 Eine nicht erlöste Person ist ohne geistliche Kraft, being unter der Kontrolle ihrer [**sündhaften Natur**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sinful-nature.htm) (Rom. 7:5) and the evil one (1 Jn. 5:19), aber nach der [**Errettung**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html), ist man frei von der Macht Satans (Apg 26:18) und der Sünde (Röm. 6,18; Joh. 8,36) um ein heiliges Leben zu leben (2 Tim. 1:9).
 
-Furthermore, if we focus our attention in upon Rom. 7:18, we clearly see that Paul wrote in that passage that _nothing good lives in me._ Could Paul have written that from his own [**Christian**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian.html) perspective?
+Des Weiteren, wenn wir unsere Aufmerksamkeit auf Röm 7,18 richten, so sehen wir klar, dass Paulus in dieser Passage schrieb, dass _in mir/ihm nichts gutes wohnt._ Könnte Paulus solches von seiner eigenen [**christlichen**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian.html) Perspektive geschrieben haben?
 
 **Ist es nicht wahr, dass Gott in allen Christen lebt (2. Kor 6,16) und Gott _gut_ ist (Mk. 10,18)? Weil das wahr ist, und Paulus ein Christ war, als er seine Briefe schrieb, daher ist es unmöglich für Paulus _nichts Gutes lebt in mir_ aus der Perspektive eines Christen geschrieben zu haben!**
 
 Worauf bezog sich Paulus dann, als er die Singular-Pronomen _Ich_ und _mir_ in Röm. 7,14-20 gebrauchte?
 
-**Rom. 7:17 clearly shows the _sinful nature_ is the _I_ and _me_ that Paul wrote of:**
+**Röm. 7,17 zeigt klar, dass die _sünfhafte Natur_ das _ich_ und _mir_ ist wovon Paulus schrieb:**
 
 > I know that nothing good lives in **me, that is, in my sinful nature.** For I have the desire to do what is good, but I cannot carry it out (Rom. 7:18 NIV).
 
@@ -146,11 +145,11 @@ Worauf bezog sich Paulus dann, als er die Singular-Pronomen _Ich_ und _mir_ in R
 
 Finally, how could Paul have stated, "I have fought the good fight, I have finished the race, I have kept the faith" (2 Tim. 4:7) at the very end of his life, if he was owned and controlled by sin as the _worst of sinners?_ Since the Christian battle, in part, is against sin (Heb. 12:4), Paul fought this fight against sin also in his own life and came out as an **[overcomer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/he-who-overcomes.html). He was not the _worst sinner of all time_ as he has been slandered by some!**
 
-## [The _Image Of A Christian_ Has Been Smeared](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/image-of-a-christian.htm)
+## [Das _Bild Eines Christen_ Wurde Beschmiert](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/image-of-a-christian.htm)
 
-## Christ's Slave or _Worst of Sinners_
+## Christ's Slave or _Schlimmster der Sünder_
 
-The Christian is _free,_ but at the same time, he is **_Christ's slave_** (1 Cor. 7:22) and a _[**slave to righteousness**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/slave.htm)_ (Rom. 6:18)! As freed people, we are to be living for Jesus and his cause (2 Cor. 5:15). In fact, service to God is an immediate responsibility after turning from our idols that kept us in spiritual darkness and [**death**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html) (1 Thess. 1:9 cf. Jonah 2:8).
+Der Christ ist _frei,_ doch gleichzeitig ist er **_Christi Sklave_** (1 Kor. 7,22) und ein [**_Sklave der Gerechtigkeit_**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/slave.htm) (Röm. 6,18)! Als befreite Leute müssen wir für Jesus and his cause leben (2 Kor. 5,15). Tatsächlich ist Dienst für Gott eine unverzügliche Verantwortung nach dem Abwenden von unseren Götzen, die uns in geistlicher Finsternis und [**Tod**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html) hielten. (1 Thess. 1,9 cf. Jonah 2,8).
 
 With these verses in mind, how could the real freedom in Christ message, coupled with the [**true grace**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/true-grace-false-grace.html) message, added to the proper interpretation of Romans 7, dismiss lukewarm, unholy, worldly, entertainment-seeking, amusement-seeking, pleasure-seeking "servants" who have very little or no fear of God as _normal?_ **To misapply the _worst of sinners_ label to Paul as a Christian, is to do much damage to the _Christian image_ and what it means to be a [believer in Jesus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html).**
 
@@ -158,7 +157,7 @@ With these verses in mind, how could the real freedom in Christ message, coupled
 
 **ANDERE THEMEN:**
 
-- **[Skull And Crossbones Awards For False Prophets And False Teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Skull_And_Crossbones.html)**
+- **[Skull And Crossbones Awards Für Falsche Propheten Und Falsche Lehrer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Skull_And_Crossbones.html)**
 
 - **[Plan Der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
 
