@@ -1,5 +1,5 @@
-<!--t Ewige Sicherheit Fördert Suizid, Teil 1 - in Arbeit (30% übersetzt) t-->
-<!--d Ewige Sicherheit Fördert Suizid, Teil 1 - in Arbeit (30% übersetzt) d-->
+<!--t Ewige Sicherheit Fördert Suizid, Teil 1 - in Arbeit (90% übersetzt) t-->
+<!--d Ewige Sicherheit Fördert Suizid, Teil 1 - in Arbeit (90% übersetzt) d-->
 
 Ewige Sicherheit Fördert Suizid, Teil 1
 
@@ -19,25 +19,21 @@ Nachfolgend ist eine wirkliche Erfahrung, die in einer Kirche geschaf welche _Gn
 
 Obwohl das Folgende Zeugnis/Erfahrung innerhalb einer Southern Baptist -Gemeinde stattfand, bitte denke nicht, dass dasselbe nicht geschieht oder geschah in weiteren calvinistischen Kirchen wie auch **[John MacArthur's](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/John-MacArthur.html)** welcher an allen 5 Punkte von **[John Calvin's](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/johncalvin.html)** Irrlehren festhält. Die Wahrheit ist: ALLE Kirchen, Gruppen, Dienste, etc,. welche verleugnen, dass eine gerechte Person geistlich sterben können aufgrund eines Mordaktes (was **[Suizid](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/suicide.html)** ist) sind lehrmässig falsch und GEFÄHRLICH FÜR DEINE SEELE.
 
-Hopefully, the person who sent this in, and all others who attend such a congregation, will leave _immediately_ and stop sharing in its **_wicked work_** (2 John 9-11). God bless you.
+Hoffentlich werden die Person, die dies eingesandt hat und alle andern, welche solch eine Versammlung/Gemeinde besuchen _unverzüglich_ weggehen und aufhören dieser **_bösen Werke_** teilhaftig zu sein (2 John 9-11). Gott segne dich.
 
 ************
 
-Hello, I am __________ and I spoke with you on the phone about **two _suicides_** that happened in my church. I attend a **Southern Baptist Church ....  I have only one complaint.** His [pastor’s] belief on suicide is that there is nothing you can do to separate yourself from the love of God. I beg to differ with him on that subject as _the devil found a way to be separated himself from God by choosing against him._
+Hall, Ich bin __________ und ich sprach mit Ihnen am Telefon über **zwei _Suizide_** welche in meiner Kirche geschahen. Ich besuche eine **Southern Baptist Church ....  Ich habe lediglich eine Beschwerde.** Sein [des Pastors] Glaube bezüglich Suizid ist, dass es nichts gibt, was man tun könnte, um sich selbst von Gottes Liebe zu trennen. Ich bitte, mich von ihm in diesem Punkt/Thema zu unterscheiden, da _der Teufel einen Weg fand, sich selbst von Gott zu separieren/trennen indem er sich gegen ihn entschied._
 
-![suicide](../../files/pictures/wishdead.jpg)
+![Suizid](../../files/pictures/wishdead.jpg)
 
-As I told you on the phone, **we had a young man in our church who said he was saved and that he believed if he committed suicide that he loved Jesus and he was sure he would still be saved when he died.** We had a Sunday school teacher saying, “Nothing we do could separate us from the love of God, **not even suicide.”** I stood up along with only one other sister and challenged that statement with the fact that if we continue in our sin we are not saved at all. He came unglued, along with the young man I mentioned earlier. **This same young man drove his truck into a pole, up at Mt. _________ a month or so later.** This made huge waves in our church. It was sad to go through.
+Wie ich Ihnen am Telefon mitteilte, **hatten wir einen jungen Mann in unserer Kirche, der sagte er wäre gerettet und dass er glaubte wenn er Suizid beginge dass er Jesus liebte und er war sich sicher, dass er trotzdem gerettet wäre, wenn er sterben würde.** Wir hatten einen Sonntagsschullehrer der sagte "Nichts was wir tun könnte uns von der Liebe Gottes trennen, **nicht einmal Suizid."** Ich stand auf zusammen mit nur einer anderen Schwester und challenged diese Aussage mit der Tatsache, dass wenn wir in Sünde fortfahren, dass wir dann überhaupt nicht gerettet sind. Er verlor die Kontrolle, zusammen mit dem jungen Mann, welchen ich vorher erwähnte. **Derselbe junge Mann fuhr etwa einen Monat später seinen Lastwagen/Wagen in einen Pfosten, auf dem Berg _________ .** Dies made huge waves in unserer Kirche. Es war traurig to go through.
 
-The pastor and this Sunday school teacher told the four children left behind, and our whole congregation, that **their dad was now in heaven.** I was sick to my stomach as I do not believe that you can kill yourself, leave four grieving children, a grieving mother, and all his so called friends behind, and still be in heaven. It was like slapping God in the face or so he tried too. I believe he is in hell no matter how bad I wish I didn’t believe that.
-
-
+Der Pastor und dieser Sonntagsschullehrer erzählten den vier zurückgebliebenen Kindern und unserer ganzen Versammlung, dass **ihr Papa nun im Himmel sei.** Mir wurde schlecht, da ich nicht glaube, dass man sich selbst ermorden kann, vier grieving Kinder, eine grieving Mutter, und alle seine sogenannten Freunde zurücklassend und dennoch im Himmel zu sein. Es war wie wenn er versuchte, Gott ins Gesicht zu schlagen oder so. Ich glaube er ist in der Hölle egal wie fest ich wünschte, dass ich solches nicht glauben würde.
 
 **<u>Ungefähr drei Monate später entschied des Pastors eigener Enkel, sich selbst zu töten.</u> Dieselbe Lüge wurde erzählt: Er ist nun im Himmel.**
 
-
-
-I am appalled that a church would lead anyone to believe that you would still be saved even if you kill yourself. If for no other reason you would not want to start a mass suicide plan on your congregation. This is also one of the reasons that I do not believe it is from God to pull something like that as **I am certain this is not the God of the Bible. Honestly, who’s voice does it sound like?**
+Ich bin entsetzt davon, dass eine Kirche irgendjemanden dazu bringen würde zu glauben, dass man immer noch gerettet sein würde, auch wenn man sich selbst ermorden würde. If for no other reason you would not want to start a mass suicide plan on your congregation. This is also one of the reasons that I do not believe it is from God to pull something like that as **Ich bin gewiss dies ist nicht der GOtt der Bibel. Jetzt mal ehrlich, nach wessen Stimme hört sich das an?**
 
 Hochachtungsvoll,
 
