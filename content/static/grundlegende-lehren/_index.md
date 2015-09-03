@@ -1,5 +1,7 @@
 ﻿<!--t > Grundlegende Lehren t-->
+
 <!--d  d-->
+
 
 Diese Seite dient als grobe Übersicht wichtigsten Lehren.  
 Für weitere Informationen, siehe Links innerhalb der betreffenden Absätze.
