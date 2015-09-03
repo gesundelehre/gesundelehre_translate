@@ -15,19 +15,19 @@ Quelle: [www.evangelicaloutreach.org/reincarnation.htm](http://gesundelehre.tk/f
 
 ### Dan Corner
 
-![](../../files/pictures/reincarnation-is-a-lie.jpg)
+![](../files/pictures/reincarnation-is-a-lie.jpg)
 
-<big><big>**[Reinkarnation](../../files/pictures/reincarnation.pdf)** (Gratis Evangeliums Traktat pdf, legal-landscape)</big></big>
+<big><big>**[Reinkarnation](../files/pictures/reincarnation.pdf)** (Gratis Evangeliums Traktat pdf, legal-landscape)</big></big>
 
 
-![Reinkarnation](../../files/pictures/a-colorb.gif)
+![Reinkarnation](../files/pictures/a-colorb.gif)
 
 [![Reinkarnation](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)<span style="font-size: 14pt">
 
 
 ## Die Bibel Beweist, Dass Reinkarnation Eine Lüge Ist
 
-[![Reinkarnation lüge](../../files/pictures/reincarnation-lie.jpg "Reinkarnation ist eine lüge")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html)
+[![Reinkarnation lüge](../files/pictures/reincarnation-lie.jpg "Reinkarnation ist eine lüge")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html)
 
 Der einzige weg, wie wir can correctly learn über das Leben nach dem Tod, inklusive das Thema der _Reinkarnation_, ist, die Bibel heranzuziehen. Sie alleine ist die einzige die durch **[Gott den Allmächtigen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/almighty.html)** inspiriert wurde. Kein anderes Buch is das erwiesene Wort Gottes, obwohl solche Behauptungen gemacht worden sind über die folgenden: **[Das Buch Mormon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html),** Quran (Koran), Bhagavad-Gita, Avesta, Angas, etc. Wenn die Beweise geprüft werden, so zeigen die Ergebnisse, dass **Reinkarnation eine Lüge ist.**
 
@@ -142,7 +142,7 @@ The only hope you have beyond the grave to find peace, joy and contentment in et
 
 Denke daran, **Reinkarnation** ist eine falsche Lehre. **Jesus lehre keine Reinkarnation.** Auch Paulus, Johannes, Jakobus etc. nicht. **Reinkarnation hat seine Wurzeln im Hinduismus und sovar einige [alien ufo](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/aliens-and-religion.html) Vorstellungen beinhalten umfassen _Reinkarnation!_**
 
-![Reinkarnation](../../files/pictures/a-colorb.gif)
+![Reinkarnation](../files/pictures/a-colorb.gif)
 
 **ANDERE THEMEN:**
 

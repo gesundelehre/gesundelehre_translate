@@ -25,14 +25,14 @@ Never Really Saved
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-![never really saved never saved](../../files/pictures/a-colorb.gif "never really saved never saved")
+![never really saved never saved](../files/pictures/a-colorb.gif "never really saved never saved")
 
 
 
 ## Is The Never Really Saved (Never Saved) Argument Valid and Consistent
 
 
-[![I NEVER KNEW YOU](../../files/pictures/magnifying_glass.png "I NEVER KNEW YOU")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html)
+[![I NEVER KNEW YOU](../files/pictures/magnifying_glass.png "I NEVER KNEW YOU")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html)
 
 **The _never really saved_ response comes from eternal security proponents when their doctrine is being exposed as a license to sin. For a person to say that a professing Christian was _never saved_ and always a false convert, if he turns away from God to sin, is fallacious in at least 7 different areas. If you are a Christian, carefully ponder the following so you can help others see the _dangerous folly_ of the _never saved_ declaration.**
 
@@ -41,7 +41,7 @@ Never Really Saved
 
 For one to say a professing Christian who turns away from God to sin was _never saved_ is also to deny that **we can _know_ who is saved and who is not by their present tense behavior. Such is clearly _unscriptural_:**
 
-[![never really saved never saved](../../files/pictures/never-saved-david-adultery-murder.jpg "never really saved never saved")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)
+[![never really saved never saved](../files/pictures/never-saved-david-adultery-murder.jpg "never really saved never saved")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)
 
 > **This is how we know who the children of God are and who the children of the devil are:** Anyone who does not do what is right **is not a child of God; nor is anyone who** does not love his brother. (1 John 3:10)
 
@@ -79,7 +79,7 @@ To say a professing Christian who turns away from God to wickedness was _never s
 
 ## Implies You Can Never Know Who Is Really Saved
 
-[![never saved to begin with](../../files/pictures/C341Pic7(72).gif "never saved to begin with")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)
+[![never saved to begin with](../files/pictures/C341Pic7(72).gif "never saved to begin with")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)
 
 **To say a professing Christian who turns away from God to wickedness was _never saved_ is also to teach you can never know if anyone is a Christian brother or sister, including _the preacher himself who taught you this never really saved absurdity. Maybe he is just a false convert too._**
 
@@ -139,7 +139,7 @@ Please consider getting our 801 page book refuting eternal security entitled, **
 
 **_The Believer’s Conditional Security_ is the most exhaustive and comprehensive refutation to eternal security ever written. [Remember the _never really saved (never saved)_ argument is not solidly based on Scripture, neither is it consistent!]**
 
-![never really saved never saved](../../files/pictures/a-colorb.gif "never really saved never saved")
+![never really saved never saved](../files/pictures/a-colorb.gif "never really saved never saved")
 
 - **[Eternal Security or Conditional Security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)**
 

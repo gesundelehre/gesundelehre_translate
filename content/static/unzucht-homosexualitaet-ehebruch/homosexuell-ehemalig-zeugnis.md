@@ -15,14 +15,14 @@ Quelle: [www.evangelicaloutreach.org/homosexual.htm](http://gesundelehre.tk/forw
 
 ### S. G. S.
 
-![homosexuell](../../files/pictures/a-colorb.gif)
+![homosexuell](../files/pictures/a-colorb.gif)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 
 ## One Thing Bugged Me, Homosexualität
 
-[![homosexual](../../files/pictures/lost-soul-eternal-fire.jpg "lost soul in hell")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/new-creation.html)
+[![homosexual](../files/pictures/lost-soul-eternal-fire_de.jpg "lost soul in hell")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/new-creation.html)
 
 I was born in a "Christian" family. **We were Christians only to the extent of going to church once a week and praying before meals.** My mom abused me when I was very little and my dad was not around very much. He was in the military and when my dad was around, sometimes he would say things that hurt me. I got so depressed when I was little that  [**<u>I've thought of suicides many time</u>**](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/suicide.html)  and even got to the point where I took a knife and put it on my wrist, but God always prevented that by putting encouraging thoughts in my mind. One thing bugged me, **homosexuality. As I grew older, the desires got stronger.** At first, I tried to deny those desires. I tried to repress it but it made me a terrible person. I had to wear a mask everyday and it was wearing me out. I became a bitter and angry person. **I also prayed for God to remove it but nothing happened. So, one day I got sick of all that, I decided to just accept homosexuality because I felt like I can't change myself, in spite of my many attempts. I could stay *clean* for 3-6 months without homosexuality but always got back to the old lifestyle. When I decided to just enjoy homosexuality, I said goodbye to God.** I still didn't hate God, I just felt like I was unworthy for Him. So, I might as well go to hell. I was "ready" to go to hell... but later I found out God wasn't ready for that! My lowest point was last year... I did shameful things that I don't even want to mention now, and **during those "godless" and lust indulging years, I knew God was calling me many times but I hardened my heart towards Him each time.** I wanted God to just go away, so I can enjoy homosexuality. But last year, I felt so depraved and lost. **I hit rock bottom.[<u>I was always lusting over porn or someone</u>](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/lust.html)**. It was very hard for me to have a decent talk with my parents. Somehow I always got angry when talking to them. I was always bored, never really at peace. I have become the worst I've ever been and I realized this, and yet **I couldn't change it. It was like[<u>I was being controlled</u>](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/sin.html)**. So, one day I started thinking about my life because I felt like I was not going anywhere (more like I didn't know where I was going, I was lost!) and I felt like I have been a total waste. I didn't want to spend my life like this. Remember I have forgotten about God completely, so I didn't even think of going back to Him. Until He started to approach me. He reminded me of His blessings in my life and suddenly it hit I'm not worthless!
 
@@ -38,7 +38,7 @@ And after that prayer, I felt totally different. First thing I noticed was that 
 
 ## [Ted Haggard's Homosexualität Aufgedeckt](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/haggard.htm)
 
-![homosexuell](../../files/pictures/a-colorb.gif)
+![homosexuell](../files/pictures/a-colorb.gif)
 
 - **Lies Andere [Zeugnisse Von Veränderten Leben](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/paul.html)**
 

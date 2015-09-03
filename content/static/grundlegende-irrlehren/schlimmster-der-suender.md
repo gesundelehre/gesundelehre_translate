@@ -18,7 +18,7 @@ Source:[www.evangelicaloutreach.org/worst-of-sinners.htm](http://gesundelehre.tk
 <iframe width="480" height="360" src="http://www.youtube.com/embed/_oYPnwcdtAQ?rel=0" frameborder="0" allowfullscreen=""></iframe>
 **<big><big>Worst of Sinners | Slave to Sin</big></big>**
 
-![schlimmster der Sünder](../../files/pictures/021.gif)
+![schlimmster der Sünder](../files/pictures/021.gif)
 
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
@@ -28,7 +28,7 @@ Source:[www.evangelicaloutreach.org/worst-of-sinners.htm](http://gesundelehre.tk
 
 **Ob du es glaubst oder nicht, die Theologie einiger has labeled the Apostle Paulus als den _schlimmsten der Sünder!_ Schockierend, aber wahr! Dieses _Schlimmster der Sünder_ label wurde manchmal auch schon mit Römer 7,14-20 verbunden:**
 
-[![schlimmster der sünder](../../files/pictures/paul-was-a-false-apostle-worst-of-sinners-lie.jpg "Paulus war NICHT der schlimmste der Sünder als Christ!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)
+[![schlimmster der sünder](../files/pictures/paul-was-a-false-apostle-worst-of-sinners-lie.jpg "Paulus war NICHT der schlimmste der Sünder als Christ!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)
 
 > Denn wir wissen, dass das Gesetz geistlich ist; **ich aber bin fleischlich, unter die Sünde verkauft.** Denn was ich vollbringe, billige ich nicht; denn ich thue nicht, was ich will, sondern was ich hasse, das übe ich aus. Wenn ich aber das nicht will, was ich thue, so stimme ich dem Gesetze bei, dass es trefflich sei. Nun aber vollbringe nicht mehr ich dasselbe, sondern die Sünde, die in mir wohnt. **Denn ich weiss, dass in mir, das ist in meinem Fleische, nichts Gutes wohnt**; Wollen habe ich wohl, aber Vollbringen das Gute finde ich nicht! Denn nicht das Gute thue ich, das ich will, **sondern das Böse, das ich nicht will, übe ich aus.** Wenn ich aber das thue, was ich nicht will, so vollbringe nicht mehr ich dasselbe, sondern die Sünde, die in mir wohnt. (Rom 7:14-20; Schlachter 1905)
 
@@ -50,7 +50,7 @@ Diese Passage aus dem Römerbrief falsch auf Paulus anwendend, schrieben Gromack
 
 **Denk daran, wir sollten immer Schrift mit Schrift vergleichen, wenn wir die [Bibel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) studieren**.
 
-[![schlimmster der sünder](../../files/pictures/man-in-hell-because-of-eternal-security.jpg "Kirchengänger in Hölle, der dachte wenn Paulus der Schlimmste der Sünder war, so könnte er auch sündhaft und ein Christ sein aufgrund von ewiger Sicherheit.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternaltorment.html)
+[![schlimmster der sünder](../files/pictures/man-in-hell-because-of-eternal-security.jpg "Kirchengänger in Hölle, der dachte wenn Paulus der Schlimmste der Sünder war, so könnte er auch sündhaft und ein Christ sein aufgrund von ewiger Sicherheit.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternaltorment.html)
 
 **If this is done, it will become apparent that Paul didn't _keep on doing_ (Rom. 7:19) sinful things, as he frequently taught against; neither was he _unspiritual_ (v. 14).** Let's journey around the New Testament to learn more about Rom. 7:14-20.
 
@@ -153,7 +153,7 @@ Der Christ ist _frei,_ doch gleichzeitig ist er **_Christi Sklave_** (1 Kor. 7,2
 
 With these verses in mind, how could the real freedom in Christ message, coupled with the [**true grace**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/true-grace-false-grace.html) message, added to the proper interpretation of Romans 7, dismiss lukewarm, unholy, worldly, entertainment-seeking, amusement-seeking, pleasure-seeking "servants" who have very little or no fear of God as _normal?_ **To misapply the _worst of sinners_ label to Paul as a Christian, is to do much damage to the _Christian image_ and what it means to be a [believer in Jesus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html).**
 
-**![Schlimmster Der Sünder](../../files/pictures/a-colorb.gif)**
+**![Schlimmster Der Sünder](../files/pictures/a-colorb.gif)**
 
 **ANDERE THEMEN:**
 

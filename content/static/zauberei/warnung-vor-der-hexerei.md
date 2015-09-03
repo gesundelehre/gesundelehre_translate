@@ -17,7 +17,7 @@ Quelle: [www.evangelicaloutreach.org/witchcraftwoes.htm](http://gesundelehre.tk/
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-![testimony of a former witch](../../files/pictures/a-colorb.gif)
+![testimony of a former witch](../files/pictures/a-colorb.gif)
 
 ## Vom Ouija Brett und Hexerei zu JESUS
 
@@ -25,7 +25,7 @@ It was a warm sunny day ... My husband ... was occupying the free-speech area wh
 
 ## [Read Email From a Spiritist and Christian Response Back](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritist.html)
 
-[![Witchcraft is condemned by the Scriptures](../../files/pictures//witch2.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritist.html)
+[![Witchcraft is condemned by the Scriptures](../files/pictures//witch2.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritist.html)
 
 Oh, when I saw this, my heart started pounding, and I knew that the Lord wanted me to say something. I opened up my Bible to Deut. 18 (see footnote at the end) and loudly proclaimed how abominable these psychics are to a Holy and Righteous God.
 
@@ -35,7 +35,7 @@ One of the psychics got up in my face and opposed me. After a few more moments e
 
 ## Dabbling Into the Occult
 
-[![witchcraft ouija board](../../files/pictures/ouija-board-witchcraft-spiritism.jpg "Witchcraft opens one up to DEMONIC ACTIVITY")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ouija2.html)
+[![witchcraft ouija board](../files/pictures/ouija-board-witchcraft-spiritism.jpg "Witchcraft opens one up to DEMONIC ACTIVITY")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ouija2.html)
 
 I was born and raised in ... I had no Christian background or knowledge of the Bible. ... is mainly a Roman Catholic country, though many of these **[Catholic Churches](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)** are a mixture of voodoo and Catholicism.
 
@@ -95,7 +95,7 @@ God has given me a wonderful husband and has put us in the ministry ... trying t
 > Isa 47:12-14
 >  "Stand now with thine **enchantments,** and with the multitude of thy **sorceries,** wherein thou hast laboured from thy youth; if so be thou shalt be able to profit, if so be thou mayest prevail. Thou art wearied in the multitude of thy counsels. Let now the **astrologers,** the **stargazers,** the **monthly prognosticators**, stand up, and save thee from these things that shall come upon thee. Behold, <u>they shall be as stubble</u>; the <u>fire shall burn them</u>; they shall not deliver themselves from the power of the flame."
 
-![zeugnis einer ehemaligen hexe](../../files/pictures/a-colorb.gif)
+![zeugnis einer ehemaligen hexe](../files/pictures/a-colorb.gif)
 
 - **[Evangeliumstraktate Und Wie Man Sie Für Evangelisation Gebrauchen Kann](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tracts.htm)**
 

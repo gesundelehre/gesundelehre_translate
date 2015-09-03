@@ -50,7 +50,7 @@ Source: [www.evangelicaloutreach.org/calvinismrefuted.html](http://gesundelehre.
 [![Bookmark and Share](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0) 
 <script type="text/javascript" src="http://s7.addthis.com/js/250/addthis_widget.js#username=xa-4ce723c86d857fe0"></script>
 
-![Calvinismus widerlegt](../../files/pictures/a-colorb.gif "Calvinismus refuted")
+![Calvinismus widerlegt](../files/pictures/a-colorb.gif "Calvinismus refuted")
 
 
 
@@ -61,11 +61,11 @@ Source: [www.evangelicaloutreach.org/calvinismrefuted.html](http://gesundelehre.
 
 **_Calvinism_ is a popular present day counterfeit theology which began with John Calvin (1509-1564). [John Calvin](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johncalvin.html) got his doctrines from Augustine of Hippo** (354-430), the same man **[Roman Catholicism](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)** exalts and claims as one of their own.
 
-[![what is Calvinismus HERETIC John Calvin burned Michael Servetus at the stake!](../../files/pictures/CalvinBurnedServetus.JPG "HERETIC John Calvin burned Michael Servetus at the stake!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johncalvin.html)
+[![what is Calvinismus HERETIC John Calvin burned Michael Servetus at the stake!](../files/pictures/CalvinBurnedServetus.JPG "HERETIC John Calvin burned Michael Servetus at the stake!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johncalvin.html)
 
 (See **[Augustine's Prayer To Mary For Salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/augustineprayer.htm)**.)
 
-[![What is Calvinismus HERESY of Calvinismus Summarized](../../files/pictures/calvinism-summary.jpg "the HERESY of Calvinismus Summarized")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/augustineprayer.htm) 
+[![What is Calvinismus HERESY of Calvinismus Summarized](../files/pictures/calvinism-summary.jpg "the HERESY of Calvinismus Summarized")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/augustineprayer.htm) 
 
 Die 5 Hauptpunkte des Calvinismus, which sets Calvinismus apart, are: **T**otal Depravity, **U**nconditional Election, **L**imited Atonement, **I**rresistible Grace and **P**erseverance of the Saints. **Those points are also referred to as _TULIP - Calvinism's definition._** If **[one point of Calvinismus is wrong, all five points are wrong](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hangorfall.htm)**, according to one of Calvinism's own theologians! That is how closely they are all interlinked. 
 
@@ -73,11 +73,11 @@ Die 5 Hauptpunkte des Calvinismus, which sets Calvinismus apart, are: **T**otal 
 
 **Reformierte Theologie_ (Calvinismus) basiert on man having KEINEN freien Willen and choice in his salvation. Salvation, laut einem Calvinist ist, is given only to the ones God sovereignly elects to salvation. Solche Leute (die Auserwählten) können die Errettung NICHT ausschlagen/ablehnen. Sie allein sind die alleinigen, für welche Jesus starb. (Laut ihnen starb Jesus nicht für alle Menschen.)**
 
- [![infant damnation What is calvinism](../../files/pictures/infant-damnation-what-is-calvinism.jpg "infant damnation is part of Calvinism")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johncalvin.html)
+ [![infant damnation What is calvinism](../files/pictures/infant-damnation-what-is-calvinism.jpg "infant damnation is part of Calvinism")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johncalvin.html)
 
 **The elect can NOT lose their salvation, regardless how vile they afterwards act. NO sin of omission or commission can possibly imperil that salvation.** The examples they cite for such are [**King David**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/king-david-sinned.html), [**Solomon**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/solomons-apostasy.html) and Peter, which means **(according to Calvinism) a person with salvation (a Christian) can commit adultery and murder like David, turn his heart to idolatry like Solomon, and disown Jesus three times like Peter yet remain saved.** 
 
-[![what is Calvinismus unconditional election](../../files/pictures/no-unconditional-election-calvinism-refuted.jpg "NO unconditional election")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wayne.htm)
+[![what is Calvinismus unconditional election](../files/pictures/no-unconditional-election-calvinism-refuted.jpg "NO unconditional election")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wayne.htm)
 
 **We can also add to that list with [John Calvin himself, who burned Michael Servetus at the stake with green wood](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/michael-servetus.html) and never repented of his murderous, cruel and non-Christian behavior! Calvinisten think [John Calvin](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johncalvin.html) is in heaven now.** 
 
@@ -85,7 +85,7 @@ Die 5 Hauptpunkte des Calvinismus, which sets Calvinismus apart, are: **T**otal 
 
 Calvinismus denies a **[righteous person will die spiritually (lose salvation) by turning to evil](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)**. The last point of Calvinismus commonly called _eternal security_ or _once saved always saved_ by many (or the **[Perseverance of the Saints](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/perseverance-of-the-saints.htm)** by strict Calvinisten) is the most DEADLY and the most tightly embraced point of Calvinism. Some who embrace eternal security deny being even a one point Calvinist, like Dave Hunt, thereby causing unneeded confusion.
 
-[![horrible decree Calvinismus refuted](../../files/pictures/horrible-decree.jpg "horrible decree Calvinismus refuted")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eandes.htm)
+[![horrible decree Calvinismus refuted](../files/pictures/horrible-decree.jpg "horrible decree Calvinismus refuted")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eandes.htm)
 
 The teaching of once saved always saved (or **[Eternal Security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)**) has people thinking they are irrevocably bound for heaven because of a past point of regeneration in spite of the present sins they are currently committing, even if those sins are adultery, drunkenness, theft, lying, murder, slander, idolatry, etc. Their _Reformed Tradition_ has sadly nullified the word of God (1 Cor. 6:9,10; Eph. 5:5-7; Gal. 5:19-21; Rev. 21:8; etc.)! 
 
@@ -93,18 +93,18 @@ The teaching of once saved always saved (or **[Eternal Security](http://gesundel
 <a name="what%20is%20calvinism"></a>
 ## Lehren Der Gnade / Gnadenlehren (Doctrines Of Grace) <!-- /*TODO: check if correct translated*/ -->
 
-[![heretic john calvin murders michael servetus](../../files/pictures/heretic-john-calvin-murders-servetus-click.jpg "heretic john calvin murders michael servetus")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/michael-servetus.html)
+[![heretic john calvin murders michael servetus](../files/pictures/heretic-john-calvin-murders-servetus-click.jpg "heretic john calvin murders michael servetus")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/michael-servetus.html)
 
 The _doctrines of Calvinism_ are sometimes referred to as the _**doctrines of grace** _and have made powerful inroads into the apostate church. Though popular, **all points of Calvinismus are unscriptural, even if the popular cigar smoking [ Charles Spurgeon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spurgeon.html) was a Calvinist, who is called the _Prince of Preachers_ by the uninformed and because of publisher's propaganda.** Various other exalted Calvinisten, past and present (like Theodore Beza, George Whitefield, John Knox, John Bunyan, William Carey, John Piper and **[John MacArthur](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/John-MacArthur.html)**) are also responsible for the spread of Calvinism, which has smeared the **[holy image of a Christian](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/image-of-a-christian.htm)** -- but camouflaged under their **[never really saved](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/neversavedargument.htm)** argument, but lucidly revealed under their version of the **[sin unto death](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sinuntodeath.html)**.
 
-[![OSAS people never say david was never saved](../../files/pictures/never-saved-david-adultery-murder.jpg "OSAS people never say david was never saved")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html) 
+[![OSAS people never say david was never saved](../files/pictures/never-saved-david-adultery-murder.jpg "OSAS people never say david was never saved")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html) 
 
 
 ## [Aussage Eines Ehemaligen 5 Punkte Calvinisten](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/df-testimony.htm) 
 ## [LIES: Erwählung und Ewige Sicherheit - Falsche Reformierte Theologie](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wayne.htm) 
 **Die Wahrheit ist: Der Mensch hat einen _freien Willen_ beides vor und nach der anfänglichen [Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html). Eine gerettete Person kann irregeführt werden, sich dem Bösen zuwenden und [geistlich sterben](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html). Daher ist es des Menschen Verantwortung (NICHT Gottes) unter _Gnade_ to hold on (Rev. 3:11; 2:25; Heb. 3:6; etc.), unsere Lampen brennend zu halten (Lk. 12:35), continue im Glauben (Col. 1:23) and endure hatred bis zum Ende um gerettet zu werden (Mt. 10:22; Heb. 3:14; Rev. 2:10,11). Jesu Schafe folgen ihm (John 10:27). Many have failed in that regard over the centuries (besides [König Salomo](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/solomons-apostasy.html) und der [Apostel Judas Ischariot](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/judas.html)) und konsequenterweise got back on the road zur Hölle again. Ein grosser Vorteil, um von der Strasse zur Hölle abzukommen ist es für den Rückfälligen, wenn er weiss, dass er _wieder_ auf der Strasse zur Hölle ist, und da dies rundweg von den Calvinisten verleugnet/verneint wird, werden weiterhin massenhaft Leute aufgrund dieser Lehre verderben!**
 
-![was ist Calvinismus](../../files/pictures/a-colorb.gif "what is Calvinism")
+![was ist Calvinismus](../files/pictures/a-colorb.gif "what is Calvinism")
 
 
 ## Wertvolle Ressourcen die Christen Helfen, SEELEN Zuliebe, Calvinismus (Reformierte Theologie) zu widerlegen
@@ -116,10 +116,10 @@ The _doctrines of Calvinism_ are sometimes referred to as the _**doctrines of gr
 Mark Driscoll vs Dan Corner Ewige Sicherheit Debatte
 [The Finished Work Of Christ](audio/The_Finished_Work_Of_Christ.mp3) (mp3)                              
 
-Click here to order [![This NO eternal security book is the dread of eternal security teachers](../../files/pictures/BIGBOOK.jpg "This NO eternal security book is the dread of eternal security teachers")
+Click here to order [![This NO eternal security book is the dread of eternal security teachers](../files/pictures/BIGBOOK.jpg "This NO eternal security book is the dread of eternal security teachers")
 **_The Believer's Conditional Security_**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html) book, the most exhaustive refutation to the teaching of eternal security (the fifth point of Calvinism) ever written! 
  
-**[![charles spurgeon defense of calvinism](../../files/pictures/charles-spurgeon-defense-of-calvinism-comment.jpg "Charles Spurgeon was a cigar smoking HERETIC!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spurgeon.html) [The Almost Debate With James White on Eternal Security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/Evangical62.rm) (mp3)** 
+**[![charles spurgeon defense of calvinism](../files/pictures/charles-spurgeon-defense-of-calvinism-comment.jpg "Charles Spurgeon was a cigar smoking HERETIC!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spurgeon.html) [The Almost Debate With James White on Eternal Security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/Evangical62.rm) (mp3)** 
 
 **[Almost Debate With James White Actual Debate Rules Signed By The Radio Hosts](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/airtimecontract.pdf)** 
 > Learn the truth about who is backing out of a debate on eternal security. Was it Dan Corner as James White has been saying or was it James White? Who is lying? 
@@ -131,7 +131,7 @@ Click here to order [![This NO eternal security book is the dread of eternal sec
 
 [**Ewige Sicherheit Debatte**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/MarkDriscoll.htm)
 
-![Copyrighted. False Teaching of Calvinismus Refuted what is calvinism](../../files/pictures/wolf.gif "Copyrighted. False Teaching of Calvinismus Refuted") 
+![Copyrighted. False Teaching of Calvinismus Refuted what is calvinism](../files/pictures/wolf.gif "Copyrighted. False Teaching of Calvinismus Refuted") 
 > Transcript, observations and comments for the Mark Driscoll vs. Dan Corner Eternal Security Debate. 
 
 [**Mark Driscoll Skull and Crossbones Award**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mark_driscoll.html) 
@@ -139,7 +139,7 @@ Click here to order [![This NO eternal security book is the dread of eternal sec
 
 [**Mark Driscoll Eternal Security Debate Observations Video**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/MarkDriscoll.htm)
 
-[![Augustine of Hippo John Calvin Calvinismus refuted](../../files/pictures/augustine.jpg "Augustine of Hippo prayed to Mary for his salvation!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/augustineprayer.htm) 
+[![Augustine of Hippo John Calvin Calvinismus refuted](../files/pictures/augustine.jpg "Augustine of Hippo prayed to Mary for his salvation!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/augustineprayer.htm) 
 > Watch video of observation regarding the Driscoll vs. Corner eternal security debate. 
 
 [**Dave Hunt Vs Dan Corner Eternal Security Debate**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/davehuntdebate.htm) 
@@ -156,17 +156,17 @@ Click here to order [![This NO eternal security book is the dread of eternal sec
 [**Calvinism's Clashing Messages**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/calvinismsdouble.htm) 
 > One of the most disheartening aspects about Calvinismus is how the proponents sometimes try to conceal what they actually believe, but readily teach the same at other times, under different circumstances. I have seen this over and over throughout the years regarding their fifth point: the perseverance of the saints. 
 
-[![what is Calvinismus sovereign God of Calvinism](../../files/pictures/sovereign-God.png "The sovereign God of Calvinismus is mythical")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sovereignty-of-god.html)
+[![what is Calvinismus sovereign God of Calvinism](../files/pictures/sovereign-God.png "The sovereign God of Calvinismus is mythical")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sovereignty-of-god.html)
 
 [**Skull and Crossbones Awards**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Skull_And_Crossbones.html) 
 > Dozens of DANGEROUS false teachers are listed here. Some are Reformed, others are not. 
 
-[![what is a calvinist](../../files/pictures/what-is-a-calvinist-click.png "Click here to print 'WHAT IS A CALVINIST' as a PDF to distribute to others.")](../../files/pictures/what-is-a-calvinist.pdf)
+[![what is a calvinist](../files/pictures/what-is-a-calvinist-click.png "Click here to print 'WHAT IS A CALVINIST' as a PDF to distribute to others.")](../files/pictures/what-is-a-calvinist.pdf)
 
 [**Election and Eternal Security**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eandes.htm) 
 > What does it take to disprove eternal security? Is it hard or impossible to disprove this teaching? Is one forced to logically consider the Calvinistic understanding of election to properly know about eternal security or not? 
 
-[**Entlarven and Widerlegen von Johannes Calvins Erwählung**](../../files/pictures/John-Calvins-Election.pdf)
+[**Entlarven and Widerlegen von Johannes Calvins Erwählung**](../files/pictures/John-Calvins-Election.pdf)
 >Ein guter Cartoon der Calvinismus widerlegt (pdf). 
 
 [**Erbsünde und Totale Verderbtheit Sind Falsch**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/original_sin.htm) 
@@ -177,9 +177,9 @@ Click here to order [![This NO eternal security book is the dread of eternal sec
 
 [**Das Nie Gerettet Argument Scrutinized**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/neversavedargument.htm) 
 
-![was ist Calvinismus und wie widerlegt man ihn](../../files/pictures/John-Calvins-Election.gif "what is Calvinismus and how to refute it") 
+![was ist Calvinismus und wie widerlegt man ihn](../files/pictures/John-Calvins-Election.gif "what is Calvinismus and how to refute it") 
 
-[**Johannes Calvins Erwählung/Auserwählung (Election)** ](../../files/pictures/John-Calvins-Election.pdf)**(pdf)**
+[**Johannes Calvins Erwählung/Auserwählung (Election)** ](../files/pictures/John-Calvins-Election.pdf)**(pdf)**
 > For a person to say that a professing Christian was never saved, if he turns away from God to sin, is fallacious in at least 7 different areas. If you are a Christian, carefully ponder the following so you can help others see the dangerous folly of such a declaration. 
 
 [**Hängen oder Fallen Alle Fünf Punkte des Calvinismus Zusammen?**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hangorfall.htm) 
@@ -187,14 +187,14 @@ Click here to order [![This NO eternal security book is the dread of eternal sec
 
 [**Augustine's Prayer To Mary For Salvation**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/augustineprayer.htm)
 
-[![mans free will in salvation calvinism](../../files/pictures/mans-free-will-in-salvation.jpg "Click here to print 'GOD WON'T VIOLATE MAN'S FREE WILL' as a PDF to distribute to others.")](../../files/pictures/mans-free-will-in-salvation.pdf)
+[![mans free will in salvation calvinism](../files/pictures/mans-free-will-in-salvation.jpg "Click here to print 'GOD WON'T VIOLATE MAN'S FREE WILL' as a PDF to distribute to others.")](../files/pictures/mans-free-will-in-salvation.pdf)
  
 >The Calvinisten exalt Augustine of Hippo as a great theologian. In fact, John Calvin systemized Augustine's doctrines and this is, to a large degree, the Calvinismus presented today. What a surprise it will be for many to read the following prayer from him, their real founder, to Mary for salvation. 
 
 [**Charles Spurgeon's Defense Of Calvinism: f Examined With Holy Scripture**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spurgeon.html) 
 >Charles Haddon Spurgeon (1834-1892) was a famous Baptist minister who, among other things, pastored the Metropolitan Tabernacle in London, smoked cigars and wrote a Defense Of Calvinism. That so-called "defense" has been examined and refuted! 
 
-[![what is calvinism](../../files/pictures/how-did-david-die.jpg "what is calvinism")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)
+[![what is calvinism](../files/pictures/how-did-david-die.jpg "what is calvinism")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)
 
 Spurgeons Verteidigung des Calvinismus Widerlegt [**mp3**](http://media10.cqservers.com/evangelicaloutreach.org/Supplemental Appendix L_32.mp3) 
 (From the [**audio book**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audiobook.htm) of _The Believer’s Conditional Security_) 
@@ -208,12 +208,12 @@ Spurgeons Verteidigung des Calvinismus Widerlegt [**mp3**](http://media10.cqserv
 [**Murderous John Calvin Sanitized!**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/calvin_servetus.htm) 
 >Since our book, "The Believer's Conditional Security" has exposed the John Calvin - Michael Servetus scandal, some dye-in-the-wool Calvinisten have futilely tried to protect their leader from the obvious by endeavoring to shift the blame away from Calvin and confusing the issue. They continue to maintain it was not John Calvin who was responsible for his inhumane unscriptural death! 
 
-[![john calvin](../../files/pictures/john-calvin-mary-baker-eddy-key.jpg "John Calvin is just like CULTIST Mary Baker Eddy!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johncalvin.html)
+[![john calvin](../files/pictures/john-calvin-mary-baker-eddy-key.jpg "John Calvin is just like CULTIST Mary Baker Eddy!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johncalvin.html)
 
 [**The Perseverance of The Saints Version of Eternal Security**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/perseverance-of-the-saints.htm) 
 >If one is acquainted with the various ways eternal security is presented, he will notice there are two versions of this false doctrine. The Reformed version that the Calvinisten embrace is called the Perseverance of the Saints. 
 
-[![what is Calvinismus Calvinismus election](../../files/pictures/calvinism-election-deception.jpg "Calvinismus election is false")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eandes.htm)
+[![what is Calvinismus Calvinismus election](../files/pictures/calvinism-election-deception.jpg "Calvinismus election is false")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eandes.htm)
 
 [**Is The Calvinismus of Our Day Different Than It Originally Was?**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/calvinismdifferent.htm) 
 
@@ -228,7 +228,7 @@ Spurgeons Verteidigung des Calvinismus Widerlegt [**mp3**](http://media10.cqserv
 [**How Should We Understand John 10:28?**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/John_1028.mp3) 
 >Short audio message on how one should understand John 10:28. 
 
-[![spiritual death die spiritually lose salvation](../../files/pictures/backslider-saved-again-spiritual-death-eternal-security-click.jpg "A Christian can die spiritually, spiritual death, lose salvation")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)
+[![spiritual death die spiritually lose salvation](../files/pictures/backslider-saved-again-spiritual-death-eternal-security_de.jpg "A Christian can die spiritually, spiritual death, lose salvation")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)
 
 [**Is Your Salvation So Secure That You Can Sit Back And Relax?**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/salvation-security.htm) 
 >Can the Christian now relax and do nothing as far as his salvation is concerned? Does salvation security exist to that degree? If not, then what should he do? Is there salvation maintenance under grace? Is doing anything a violation of Biblical grace? 
@@ -241,7 +241,7 @@ Spurgeons Verteidigung des Calvinismus Widerlegt [**mp3**](http://media10.cqserv
 >Eternal security teacher, Ray Comfort, is often held up as the standard on how to evangelize the unsaved. He has untold numbers using his unsound approach, but seemingly they are not aware of it. His primary approach is... 
 [**Examining Ray Comfort's True/False Conversion and Law-Preaching Evangelism (Audio)**](http://media10.cqservers.com/evangelicaloutreach.org/CornerOnComfort.wma) 
 
-[![John Calvin infant baptism](../../files/pictures/john-calvin-infant-baptism-calvinism-click.jpg "John Calvin taught infant baptism")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/infantbaptism.htm)
+[![John Calvin infant baptism](../files/pictures/john-calvin-infant-baptism-calvinism-click.jpg "John Calvin taught infant baptism")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/infantbaptism.htm)
 
 [**God's Sovereignty And Man's Free Will In Salvation**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Godswill.htm) 
 
@@ -265,9 +265,9 @@ Dan Corner Vs Jeff Oliver Of Truth Talk Live: [**Eternal Security Debate**](http
 Calvinist, [**Kent Hekel**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/kent-hekel.htm) erhält den Skull und Crossbones Award. Der Calvinist Kent Hekel ist extrem ketzerisch, aber declares Calvinism! He is refuted with Scripture. 
 
 
-Klicke hier umd das Buch [![eternal security book](../../files/pictures/BIGBOOK.jpg) **_The Believer's Conditional Security_**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html) zu bestellen - die gründlichste Widerlegung der Einmal-Gerettet-Immer-Gerettet-Lehre, die jemals geschrieben wurde! Klicke hier, um unser 230-seitiges Buch, [**_The Myth of Eternal Security_**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html) zu bestellen, welches _The Believer's Conditional Security_ ergänzt.
+Klicke hier umd das Buch [![eternal security book](../files/pictures/BIGBOOK.jpg) **_The Believer's Conditional Security_**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html) zu bestellen - die gründlichste Widerlegung der Einmal-Gerettet-Immer-Gerettet-Lehre, die jemals geschrieben wurde! Klicke hier, um unser 230-seitiges Buch, [**_The Myth of Eternal Security_**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html) zu bestellen, welches _The Believer's Conditional Security_ ergänzt.
 
-![Calvinismus is a LIE](../../files/pictures/a-colorb.gif)
+![Calvinismus is a LIE](../files/pictures/a-colorb.gif)
 
 
 ## Emails Regarding Calvinismus 
@@ -301,7 +301,7 @@ ___________________________________
 God bless you. Heb. 3:14. 
 
 
-![Calvinismus ist eine LÜGE](../../files/pictures/a-colorb.gif)
+![Calvinismus ist eine LÜGE](../files/pictures/a-colorb.gif)
 
 - [**Ewige Sicherheit oder Bedingte Sicherheit**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)
 
@@ -318,6 +318,7 @@ EternalLifeBlog.com
 
 - - -
 - - -
+<a name="haengen_oder_fallen"></a>
 
 # Nachfolgend die Übersetzung der Datei von [evangelicaloutreach.org/hangorfall.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hangorfall.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](/*TODO hangorfall auf github*/) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
@@ -326,15 +327,15 @@ Source: [www.evangelicaloutreach.org/hangorfall.htm](http://gesundelehre.tk/forw
 # _Hängen oder Fallen_ Alle Fünf Punkte Des Calvinismus _Zusammen_?
 
 ## Dan Corner
-![Fünf Punkte des Calvinismus](../../files/pictures/evangelical-five-points-of-calvinism.jpg)
+![Fünf Punkte des Calvinismus](../files/pictures/evangelical-five-points-of-calvinism.jpg)
 
-![Fünf Punkte des Calvinismus](../../files/pictures/006.gif)
+![Fünf Punkte des Calvinismus](../files/pictures/006.gif)
 
 ## ALLE Fünf Punkte des Calvinismus _FALLEN_
 
 **What about the _five points of Calvinism?_** It is very common to run into religious people who would identify themselves as four point Calvinisten, three point Calvinisten on down to one point Calvinisten. Such people reject one or more of the five points of Calvinism’s TULIP, but always seem to embrace the most deadly of the five—_the **[perseverance of the saints](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/perseverance-of-the-saints.htm)**_ (or _eternal security_). Wie logisch ist es für solche eine Person, die sich selbst einen _Calvinisten_ nennt, im Lichte der Theologie des **[Calvinismus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/calvinismrefuted.html** weniger als ein fünf Punkte Calvinist zu sein? 
 
-[![Fünf Punkte des Calvinismus](../../files/pictures/five-points-of-calvinism.jpg "Calvinism's doctrines of grace all stand or fall together!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/calvinismrefuted.html)
+[![Fünf Punkte des Calvinismus](../files/pictures/five-points-of-calvinism.jpg "Calvinism's doctrines of grace all stand or fall together!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/calvinismrefuted.html)
 
 Certainly, to the surprise of many, such is an **_inconsistency,_** according to one of their chief spokesmen, the deceased Dr. Edwin H. Palmer. Edwin H. Palmer graduated from Harvard, served in the Marines, then received both a Th.B and a Th.D in different Reformed seminaries. He was also an instructor of _Systematic Theology_ in a Reformed Seminary. Hence, Edwin H. Palmer is certainly qualified to comment on how the five points of Calvinismus are interrelated, since he understood his theology so well. Edwin H. Palmer, sagte das Folgende in Bezug auf den fünften Punkt des Calvinismus:
 
@@ -342,7 +343,7 @@ Certainly, to the surprise of many, such is an **_inconsistency,_** according to
 
 > **This is strictly a Reformed doctrine and hangs or falls together with the other four points** that we have been discussing. There are, however, Christians today who hold to the perseverance of the saints while at the same time rejecting the other four points. **We believe, however, and will try to show later on, that this is an inconsistency in their thinking**. (_The Five Points of Calvinism_, Moelker Printing Co. [Grand Rapids, Michigan], 1954 ed, p. 59.) 
 
-[![Fünf Punkte des Calvinismus](../../files/pictures/infant-damnation-what-is-calvinism.jpg "HERETIC John Calvin actually taught INFANT BAPTISM and INFANT DAMNATION without scriptural backing!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/calvin_servetus.htm)
+[![Fünf Punkte des Calvinismus](../files/pictures/infant-damnation-what-is-calvinism.jpg "HERETIC John Calvin actually taught INFANT BAPTISM and INFANT DAMNATION without scriptural backing!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/calvin_servetus.htm)
 
 In keeping with his expert opinion of this theology, Edwin H. Palmer went on to write about the perseverance of the saints: 
 > This doctrine also naturally **follows from the doctrine of the limited atonement** ... (ibid., p. 61). 
@@ -363,7 +364,7 @@ In 1980, the year of Edwin H. Palmer's death, an enlarged edition of this same b
 **Es sollte offensichtlich sein, dass jeder Calvinist, einschliesslich Fünf-Punkte-Calvinist Edwin H. Palmer, theologisch falsch liegt, da sie alle an diese mythischen Dogmen glauben!**
 
 
-![Fünf Punkte des Calvinismus](../../files/pictures/006.gif)
+![Fünf Punkte des Calvinismus](../files/pictures/006.gif)
 
 
 - **[Religiöse Verführung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/religious-deception.html)**

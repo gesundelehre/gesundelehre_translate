@@ -15,7 +15,7 @@ Quelle: [www.evangelicaloutreach.org/suicide-es.htm](http://gesundelehre.tk/forw
 
 (Only God Knows How Many Are Like The Woman Below!)
 
-![suicide and eternal security which is not eternal salvation](../../files/pictures/a-colorb.gif)
+![suicide and eternal security which is not eternal salvation](../files/pictures/a-colorb.gif)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
@@ -25,7 +25,7 @@ Quelle: [www.evangelicaloutreach.org/suicide-es.htm](http://gesundelehre.tk/forw
 
 **_Suicide_ is a terrible problem throughout the world. People commit suicide for various reasons, but certainly the ones who do don't realize the spiritual impact it will have on them to die in such a condition. [This page is provided primarily to STOP suicides from occurring.]**
 
-![A woman being set up for self murder](../../files/pictures/woman1.jpg)
+![A woman being set up for self murder](../files/pictures/woman1.jpg)
 
 I hate this miserable life. Nothing ever goes right.
  I'm about to get laid off, my marriage is falling apart, my health 
@@ -33,7 +33,7 @@ is failing, and I can't stand my kids.
 
 * * *
 
-![A woman voicing her deceptions](../../files/pictures/woman2.jpg)
+![A woman voicing her deceptions](../files/pictures/woman2.jpg)
 
 I thought when I got saved everything would be 
 smooth sailing. At least that's what they implied. Were they ever 
@@ -41,21 +41,21 @@ wrong!
 
 * * *
 
-![Now she is DANGEROUSLY thinking about suicide](../../files/pictures/woman3.jpg)
+![Now she is DANGEROUSLY thinking about suicide](../files/pictures/woman3.jpg)
 
 Life isn't worth living anymore. I think I'll kill myself 
 and go home to be with the Lord (that is, if **[eternal security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)** is true).
 
 * * *
 
-![Once saved always saved leads to suicide](../../files/pictures/woman4.jpg)
+![Once saved always saved leads to suicide](../files/pictures/woman4.jpg)
 
 If only I was sure I would go to Heaven, I would do it.
  But I heard one person once say I'd go to **[Hell](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html)** for murdering myself.
 
 * * *
 
-![She is still toying with the devil's thoughts about suicide](../../files/pictures/woman5.jpg)
+![She is still toying with the devil's thoughts about suicide](../files/pictures/woman5.jpg)
 
 So, why should I believe all those Bible verses he 
 quoted? All the big-name, popular teachers claim murderers go 
@@ -64,7 +64,7 @@ commit suicide?
 
 * * *
 
-![She doesn't know what eternal salvation is or about the heresy of eternal security](../../files/pictures/woman6.jpg)
+![She doesn't know what eternal salvation is or about the heresy of eternal security](../files/pictures/woman6.jpg)
 
 Aren't all my sins already forgiven - past, present 
 and future, like **[Charles Stanley](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/charles-stanley.html)** teaches? And [**suicide**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/suicide.html) is not the 
@@ -72,7 +72,7 @@ and future, like **[Charles Stanley](http://gesundelehre.tk/forwarder.php?url=ht
 
 * * *
 
-![Eternal security has convinced her to commit suicide](../../files/pictures/woman7.jpg)
+![Eternal security has convinced her to commit suicide](../files/pictures/woman7.jpg)
 
 That's the answer! Would those eternal security 
 teachers ever lead me wrong? I'll just ignore those legalistic Bible 
@@ -81,7 +81,7 @@ works! Where's my gun?
 
 * * *
 
-![suicide weapon](../../files/pictures/gun.jpg)
+![suicide weapon](../files/pictures/gun.jpg)
 
 # **<font color="magenta">STOP!</font>**
 
@@ -105,7 +105,7 @@ As 2+2=4, the teaching of eternal security leads to various forms of immorality.
 
 By the way, Samson didn't commit suicide and our **[future sins are not forgiven before we commit them](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/futuresins.html)**. Furthermore, though suicide is not the unpardonable sin, it doesn't have to be to damn one's eternal soul - his most valuable possession. SO DON'T BE DECEIVED BY THE **[ETERNAL SECURITY TEACHERS](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security-teachers.html)**.
 
-![suicide eternal security eternal salvation](../../files/pictures/a-colorb.gif)
+![suicide eternal security eternal salvation](../files/pictures/a-colorb.gif)
 
 **OTHER TOPICS:**
 

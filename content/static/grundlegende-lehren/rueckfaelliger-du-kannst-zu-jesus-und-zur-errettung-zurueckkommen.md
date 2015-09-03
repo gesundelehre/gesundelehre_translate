@@ -14,16 +14,16 @@ Quelle: [www.evangelicaloutreach.org/james51929.html](http://gesundelehre.tk/for
 
 ### Dan Corner
 
-![kehre zu Jesus zurück](../../files/pictures/evangelical-return-to-Jesus.jpg "kehre zu Jesus zurück")
+![kehre zu Jesus zurück](../files/pictures/evangelical-return-to-Jesus.jpg "kehre zu Jesus zurück")
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-![kehre zur errettung zurück und werde erneut gerettet](../../files/pictures/a-colorb.gif)
+![kehre zur errettung zurück und werde erneut gerettet](../files/pictures/a-colorb.gif)
 
 
 ## Ein Rückfälliger kann zu Jesus und zur Errettung zurückkommen
 
-[![rückfällige kehrt zu Jesus zurück errettung ohne ewige sicherheit](../../files/pictures/return-to-Jesus-no-eternal-security.jpg "Der Rückfällige kann zu Jesus und Errettung zurückkehren")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)
+[![rückfällige kehrt zu Jesus zurück errettung ohne ewige sicherheit](../files/pictures/return-to-Jesus-no-eternal-security_de.jpg "Der Rückfällige kann zu Jesus und Errettung zurückkehren")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)
 
 **Certainly one of the powerfully devastating passages to eternal security is the last two verses in the book of James. They show the righteous can die spiritually (and return to Jesus again for salvation). Sadly, too few people are aware of these verses and those who are probably first noticed them in their own personal Bible reading time and never heard them taught.** Here is what these important verses say:
 
@@ -32,15 +32,15 @@ Meine Brüder, wenn jemand unter euch <u>von der Wahrheit abirrt</u> und es beke
 Dieser Abschnitt erwähnt die Möglichkeit von _Brüdern_, von der Wahrheit abzuirren (oder **[zurückzufallen/rückfällig zu werden](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/backslider.html)**) und was die Effekte von dieser Tat auf ihre _Seelen_ sein. First, wir wissen diejenigen die rückfällig werden waren vormals Christen. Es gibt verschiedenste Wege wie wir das wissen:
 
 <span class="inline-images">
-![kehre zur errettung zurück werde erneut gerettet](../../files/pictures/redball.gif "Rückfällige können zu Jesus und Errettzung zurückkehren") Sie werden _Brüder_ genannt in v.19, welches weiter erklärt wird in Jakobus 2,1 wo dieselben als an den Herrn Jesus _Gläubige_ identifiziert werden.
+![kehre zur errettung zurück werde erneut gerettet](../files/pictures/redball.gif "Rückfällige können zu Jesus und Errettzung zurückkehren") Sie werden _Brüder_ genannt in v.19, welches weiter erklärt wird in Jakobus 2,1 wo dieselben als an den Herrn Jesus _Gläubige_ identifiziert werden.
 </span>
 
 <span class="inline-images">
-![werde wieder errettet](../../files/pictures/redball.gif "Kehre zu Jesus und zur Errettung zurück")If the ones (the Christians) who stray are brought back to where they were before they strayed (or backslid), their _souls_ would be saved from death. This is crystal clear proof that he is writing about this horrible thing occurring to those **who had been genuinely saved**.
+![werde wieder errettet](../files/pictures/redball.gif "Kehre zu Jesus und zur Errettung zurück")If the ones (the Christians) who stray are brought back to where they were before they strayed (or backslid), their _souls_ would be saved from death. This is crystal clear proof that he is writing about this horrible thing occurring to those **who had been genuinely saved**.
 </span>
 
 <span class="inline-images">
-![werde nochmals gerettet](../../files/pictures/redball.gif "Rückfällige können nochmals gerettet werden")They would also stray from _truth._ Jesus identified himself by that term—_the truth_ (John 14:6). Hence, they would be straying from the Lord, Christianity and their own salvation.
+![werde nochmals gerettet](../files/pictures/redball.gif "Rückfällige können nochmals gerettet werden")They would also stray from _truth._ Jesus identified himself by that term—_the truth_ (John 14:6). Hence, they would be straying from the Lord, Christianity and their own salvation.
 </span>
 
 <big><big>**[PROOF That a Backslider Can Return To Jesus and Salvation](#return to Jesus)**</big></big> 
@@ -71,7 +71,7 @@ f) **We too can be used by God to bring a former Christian back to salvation aga
 
 (Bitte, bitte reiche diese wichtige Botschaft von Jakobus 5,19-20 an deine Familie, Freunde und Kontakte weiter. **Wertvolle Seelen könnten dadurch vor dem Feuerofen gerettet werden. Bist du gewillt, diese einfache Sache zu tun, um Rückfälligen zu Helfen, zu Jesus zurückzukommen?)**
 
-![kehre zu Jesus zurück Jakobus 51920](../../files/pictures/a-colorb.gif)
+![kehre zu Jesus zurück Jakobus 51920](../files/pictures/a-colorb.gif)
 
 - **[Skull and Crossbones Awards of False Prophets and False Teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Skull_And_Crossbones.html)**
 
@@ -85,7 +85,7 @@ f) **We too can be used by God to bring a former Christian back to salvation aga
 
 click the books!
 <span class="inline-images">
-[![ewige sicherheit widerlegt](../../files/pictures/BigBookFix.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/dan-corner-the-believers-conditional-security.html) [![bedingte sicherheti](../../files/pictures/mythFix.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/myth-of-eternal-security.htm)
+[![ewige sicherheit widerlegt](../files/pictures/BigBookFix.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/dan-corner-the-believers-conditional-security.html) [![bedingte sicherheti](../files/pictures/mythFix.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/myth-of-eternal-security.htm)
 </span>
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  

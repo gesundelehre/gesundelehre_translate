@@ -14,13 +14,13 @@ Quelle: [http://www.evangelicaloutreach.org/hebrews.htm](http://gesundelehre.tk/
 
 ### Dan Corner
 
-![apostasy in the church](../../files/pictures/a-colorb.gif)
+![apostasy in the church](../files/pictures/a-colorb.gif)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 ## APOSTASY In The Church
 
-[![apostasy in the church enemy of God](../../files/pictures/friend-of-the-world-enemy-of-god-click.jpg "IF you were once saved and now are a friend of the world you are an ENEMY of God again! You are an apostate!")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/enemies-of-God.html)
+[![apostasy in the church enemy of God](../files/pictures/friend-of-the-world-enemy-of-god_de.jpg "IF you were once saved and now are a friend of the world you are an ENEMY of God again! You are an apostate!")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/enemies-of-God.html)
 
 Below is our response to the following email regarding the two Hebrews chapters mentioned above. Since this subject surfaces frequently, there may also be some others who would be blessed to read this.
 
@@ -47,26 +47,26 @@ Heb. 6:4-9 reads:
 <a name="apostasy%20in%20the%20church"></a>
 **Five spiritual checkpoints are listed in this passage, before the _falling away_ mentioned in verse 6 can even apply.** Those checkpoints are:
 
-[![apostasy eternal sin](../../files/pictures/unforgivable-sin-click.jpg "ONLY eternal sin is not forgivable. ALL other sins are.")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/eternal_sin_blasphemy_of_Holy_Spirit.html)
+[![apostasy eternal sin](../files/pictures/unforgivable-sin-click.jpg "ONLY eternal sin is not forgivable. ALL other sins are.")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/eternal_sin_blasphemy_of_Holy_Spirit.html)
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) Have once been enlightened
+![apostasy](../files/pictures/redball.gif) Have once been enlightened
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) Have tasted of the heavenly gift
+![apostasy](../files/pictures/redball.gif) Have tasted of the heavenly gift
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) Have been made partakers of the Holy Spirit
+![apostasy](../files/pictures/redball.gif) Have been made partakers of the Holy Spirit
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) Have tasted the good word of God
+![apostasy](../files/pictures/redball.gif) Have tasted the good word of God
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) (Tasted) the powers of the age to come
+![apostasy](../files/pictures/redball.gif) (Tasted) the powers of the age to come
 </span>
 
 **Clearly, these checkpoints are the language of salvation,** especially _have been made **partakers** of the Holy Spirit_ (Heb. 6:4, NASB). This same word (metochos) translated _partakers_ is also found in the following verses:
@@ -122,51 +122,51 @@ Remember, Scripture explicitly shows it is possible to be saved more than once (
 Though we can't be certain, it appears Peter walked with Jesus for about three years during the Lord's earthly ministry. During those special years Peter experienced the following:
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) He had the unique privilege of being at the Mt. of Transfiguration where Moses and Elijah appeared and talked with Jesus. At this time, he heard the audible voice of God say, "This is my Son, whom I love; with him I am well pleased. Listen to him" (Mt. 17:1-6, NIV). 
+![apostasy](../files/pictures/redball.gif) He had the unique privilege of being at the Mt. of Transfiguration where Moses and Elijah appeared and talked with Jesus. At this time, he heard the audible voice of God say, "This is my Son, whom I love; with him I am well pleased. Listen to him" (Mt. 17:1-6, NIV). 
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) Peter was the only apostle of the Twelve to actually walk on the water for a time with Jesus (Mt. 14:29)!
+![apostasy](../files/pictures/redball.gif) Peter was the only apostle of the Twelve to actually walk on the water for a time with Jesus (Mt. 14:29)!
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) He was given powerful, spiritual authority to drive out demons and heal **every** disease and sickness (Mt. 10:1).
+![apostasy](../files/pictures/redball.gif) He was given powerful, spiritual authority to drive out demons and heal **every** disease and sickness (Mt. 10:1).
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) The Apostle Peter personally saw Jesus raise three different people from the dead (Lk. 7:14,15; 8:54,55; Jn. 11:43,44). 
+![apostasy](../files/pictures/redball.gif) The Apostle Peter personally saw Jesus raise three different people from the dead (Lk. 7:14,15; 8:54,55; Jn. 11:43,44). 
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) He also saw Jesus' power instantly heal a leper (Mt. 8:2,3), enable a paralytic to be healed (Mt. 9:2-7), the blind to see (Mk. 8:22-25), and the dumb to speak after a demon was driven out (Mt. 9:32,33). 
+![apostasy](../files/pictures/redball.gif) He also saw Jesus' power instantly heal a leper (Mt. 8:2,3), enable a paralytic to be healed (Mt. 9:2-7), the blind to see (Mk. 8:22-25), and the dumb to speak after a demon was driven out (Mt. 9:32,33). 
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) Peter was there when at least 2,000 demons inside a man were begging Jesus for permission to go inside pigs (Mk. 5:12,13). 
+![apostasy](../files/pictures/redball.gif) Peter was there when at least 2,000 demons inside a man were begging Jesus for permission to go inside pigs (Mk. 5:12,13). 
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) He witnessed Jesus calm the wind and the raging sea with his word (Mk. 4:39). 
+![apostasy](../files/pictures/redball.gif) He witnessed Jesus calm the wind and the raging sea with his word (Mk. 4:39). 
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) He saw Jesus multiply bread and fish to feed thousands of people on two different occasions (Mt. 16:9,10).
+![apostasy](../files/pictures/redball.gif) He saw Jesus multiply bread and fish to feed thousands of people on two different occasions (Mt. 16:9,10).
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) He also had unique and vital spiritual truth revealed to him about Jesus directly from the Father (Mt. 16:16,17). 
+![apostasy](../files/pictures/redball.gif) He also had unique and vital spiritual truth revealed to him about Jesus directly from the Father (Mt. 16:16,17). 
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) Peter heard the demons within people call Jesus the _Son of God_ (Mk. 3:11).
+![apostasy](../files/pictures/redball.gif) Peter heard the demons within people call Jesus the _Son of God_ (Mk. 3:11).
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) He heard Jesus silence those who tried to trap him (Lk. 20:20-26), perfectly answer and handle every trick question (Mt. 22:23-31) and remedy every problem that confronted them (Mt. 17:27; etc.).
+![apostasy](../files/pictures/redball.gif) He heard Jesus silence those who tried to trap him (Lk. 20:20-26), perfectly answer and handle every trick question (Mt. 22:23-31) and remedy every problem that confronted them (Mt. 17:27; etc.).
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) For years, Peter heard the greatest and wisest teacher who ever lived teach the most important truths with authority. 
+![apostasy](../files/pictures/redball.gif) For years, Peter heard the greatest and wisest teacher who ever lived teach the most important truths with authority. 
 </span>
 
 **After all these unique, spiritual privileges and opportunities, he _denied_ Christ three times. Yet the Apostle Peter, who already held the highest office in the church (1 Cor. 12:28), was not so mature spiritually that he could not return to Jesus!**
@@ -226,11 +226,11 @@ Let's answer by beginning with 6:9:
 The writer of Hebrews is contrasting two groups of people in 6:4-9:
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) Those who fell away and couldn't be renewed through **[Biblical repentance](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/repentance.html)**; and
+![apostasy](../files/pictures/redball.gif) Those who fell away and couldn't be renewed through **[Biblical repentance](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/repentance.html)**; and
 </span>
 
 <span class="inline-images">
-![apostasy](../../files/pictures/redball.gif) A group referred to in verse 9 as _beloved_ with a different standing before God - things that accompany _salvation_. The words _better things concerning you_ also indicate this. Note: verse 9 says **_salvation_**, not fellowship or rewards!
+![apostasy](../files/pictures/redball.gif) A group referred to in verse 9 as _beloved_ with a different standing before God - things that accompany _salvation_. The words _better things concerning you_ also indicate this. Note: verse 9 says **_salvation_**, not fellowship or rewards!
 </span>
 
 Heb. 10:26,27 parallel 6:9, in a negative sense, to show salvation is the subject:
@@ -265,7 +265,7 @@ The context of Jesus' teaching about **[eternal sin](http://gesundelehre.tk/forw
 
 **Jesus taught that _blasphemy against the Holy Spirit_ is directly related to saying that the Lord had an evil spirit by which he was driving out demons. Hence, a link seems to exist between eternal sin and _insulting the Spirit of grace_ (10:29). This explains why the ones referred to in Hebrews 6:4-6 could not be renewed unto salvation through repentance, that is, they committed eternal sin. Finally, the true [repentance definition](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/repentance.html) is to _turn from evil_ and nothing less.**
 
-![apostasy in the church](../../files/pictures/a-colorb.gif)
+![apostasy in the church](../files/pictures/a-colorb.gif)
 
 - **[Eternal Security or Conditional Security](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/eternal-security.html)**
 
@@ -282,6 +282,6 @@ The context of Jesus' teaching about **[eternal sin](http://gesundelehre.tk/forw
 
 
 
-<small>Click on the book</small>[![eternal security refuted](../../files/pictures/BigBookFix.jpg)](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/dan-corner-the-believers-conditional-security.html)
+<small>Click on the book</small>[![eternal security refuted](../files/pictures/BigBookFix.jpg)](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/dan-corner-the-believers-conditional-security.html)
 
 [Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/contact.html)

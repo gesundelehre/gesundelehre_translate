@@ -15,14 +15,14 @@ Source: [www.evangelicaloutreach.org/peace.htm](http://gesundelehre.tk/forwarder
 
 ### Dan Corner
 
-![Find Peace With God](../../files/pictures/evangelical-find-peace-with-God.jpg)
+![Find Peace With God](../files/pictures/evangelical-find-peace-with-God.jpg)
 
-<big><big>**[Find Peace With God](../../files/pictures/peace.pdf)** (pdf)
+<big><big>**[Find Peace With God](../files/pictures/peace.pdf)** (pdf)
 </big></big>
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-![find Peace with God](../../files/pictures/a-colorb.gif)
+![find Peace with God](../files/pictures/a-colorb.gif)
 
 
 
@@ -30,7 +30,7 @@ Source: [www.evangelicaloutreach.org/peace.htm](http://gesundelehre.tk/forwarder
 
 **To _find peace with God_ and maintain that peace with God should be our chief pursuit. Someone might object and say our chief pursuit in life should be to keep seeking _first_ the kingdom of God and his righteousness (Mt. 6:33, Greek tense). Actually each is saying the same, but in different words.** 
 
-[![find peace with God](../../files/pictures/peace-with-god.jpg "find peace with God")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/plan-of-salvation.html)
+[![find peace with God](../files/pictures/peace-with-god.jpg "find peace with God")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/plan-of-salvation.html)
 
 Many people are not even aware that they don’t have _peace_ with God and, therefore, would never desire to _seek/pursue_ such. Furthermore, the same don’t realize that **God has wrath for those who do wrong. Here are some precious truths about _peace_ with God to remember:**
 
@@ -42,7 +42,7 @@ Many people are not even aware that they don’t have _peace_ with God and, ther
 
 > For God was pleased to have all his fullness dwell in him, and through him to reconcile to himself all things, whether things on earth or things in heaven, by making **peace through his blood, shed on the cross** (Col. 1:19, 20).
 
-[![find peace with God blood of Jesus Christ](../../files/pictures/blood-of-Jesus-Christ-peace-with-God.jpg "The key to finding peace with God")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/jesusblood.html)
+[![find peace with God blood of Jesus Christ](../files/pictures/blood-of-Jesus-Christ-peace-with-God.jpg "The key to finding peace with God")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/jesusblood.html)
 
 <big>**[Everyone Should Know About Putting Forth EFFORT For _PEACE WITH GOD_](#find%20peace%20with%20God)**</big>
 
@@ -82,7 +82,7 @@ But now **he has reconciled you by Christ’s physical body** through death to p
 
 **Question: Do _you_ have _peace_ with God _now?_ If not, you can _find peace with God_ by turning from your sins that are robbing you of this (and dragging you to [hell](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/hell.html) at the same time). Make things right before God and man. Remember: _No sin_ is worth going to hell over regardless what it may be. Now that you know how to _find peace with God_ do it!**
 
-![find Peace with God](../../files/pictures/a-colorb.gif)
+![find Peace with God](../files/pictures/a-colorb.gif)
 
 **Other Topics:**
 

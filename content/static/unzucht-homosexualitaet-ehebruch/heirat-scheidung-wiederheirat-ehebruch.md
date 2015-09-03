@@ -24,21 +24,21 @@ Divorce, Remarriage and Adultery
 [![Bookmark and Share](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 <script type="text/javascript" src="http://s7.addthis.com/js/250/addthis_widget.js#username=xa-4ce723c86d857fe0"></script>
 
-![divorce remarriage adultery](../../files/pictures/evangelical-outreach-divorce-remarriage-adultery.jpg "divorce remarriage adultery")
+![divorce remarriage adultery](../files/pictures/evangelical-outreach-divorce-remarriage-adultery.jpg "divorce remarriage adultery")
 
 [![Adultery Divorce Remarriage](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0) 
 
-![Divorce Remarriage ADULTERY](../../files/pictures/021.gif)
+![Divorce Remarriage ADULTERY](../files/pictures/021.gif)
 ## There Is An Epidemic Of Divorce and Remarriage (Adultery) 
  
  
-[![Eternal Security or Once Saved Always Saved LIE](../../files/pictures/carnal-christians-osas.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antinomianism.htm) 
+[![Eternal Security or Once Saved Always Saved LIE](../files/pictures/carnal-christians-osas.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antinomianism.htm) 
 
 **[INTERNET POST BY UNKNOWN MAN Regarding *Divorce and Remarriage*]**  
 > I really need some input here. If a Christian man (me) *divorces* his wife due to incompatibility and neglect (and various other mental anguish associated with a marriage that could not/would not be fixed even with MUCH prayer), and has a significant female other who is also a Christian and *divorced* due to abuse and mental cruelty, can they (we) marry each other after being truly forgiven by God for divorcing our spouses? She and I are SO much in love and we want to serve the Lord together as husband and wife. We have read the Bible and seen prohibition of marriage of divorced people, but we know so many Christian couples who are both divorced and remarried and have good, solid marriages and serve the Lord well.  
 Thanks for your help. 
 
-[![divorce remarriage adultery](../../files/pictures/divorce-remarriage-adultery.jpg "divorce remarriage adultery")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance-from-remarriage-adultery.html)
+[![divorce remarriage adultery](../files/pictures/divorce-remarriage-adultery_de.jpg "divorce remarriage adultery")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance-from-remarriage-adultery.html)
  
 - - - - - - 
   
@@ -53,7 +53,7 @@ Thanks for your help.
  (1) To divorce over "incompatibility and neglect" is not a legitimate reason, according to the Word of God! Please note **Matt. 5:32**: 
  > "But I tell you that anyone who divorces his wife, except for marital unfaithfulness, causes her to commit adultery, and anyone who marries a woman so divorced commits adultery." 
  
- [![law of marriage](../../files/pictures/law-of-marriage.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance-from-remarriage-adultery.html)
+ [![law of marriage](../files/pictures/law-of-marriage_de.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance-from-remarriage-adultery.html)
 
 Similarly, Scripture states: 
  > "I tell you that anyone who divorces his wife, except for marital unfaithfulness, and marries another woman commits adultery" **(Matt. 19:9)**. 
@@ -66,7 +66,7 @@ Similarly, Scripture states:
 
 The aforementioned Scriptures about divorce and remarriage were given by the Lord Jesus. Clearly, he stated marital unfaithfulness (sexual immorality) is the only cause for a divorce [but the only example of such was when Joseph wrongly thought Mary was sexually immoral WHEN THEY WERE PLEDGED to be married and he was going to "divorce" (Mt. 1:19) her]! Hence, if one divorces his spouse for any other reason besides sexual immorality, regardless what that reason is, he is indicted by these verses!
 
-[![remarriage adultery](../../files/pictures/remarriages.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/apostatechurch.htm)
+[![remarriage adultery](../files/pictures/remarriages.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/apostatechurch.htm)
 
 **If such a person would then "marry" another, not only would he be committing adultery, but the person he "marries" would likewise be committing adultery! All people, who have never been married, need to know these facts before they consider marrying someone who might not be eligible for marriage again, namely a divorced person.**
 
@@ -74,7 +74,7 @@ When we consider passages like 1 Cor. 6:9,10 and Rev. 21:8, we can only conclude
 
 ## The Innocent Party In A *Divorce* 
 
-[![marriage annulment remarriage adultery](../../files/pictures/marriage-annulment-remarriage-adultery.jpg "The marriage annulment myth leads to remarriage adultery")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)
+[![marriage annulment remarriage adultery](../files/pictures/marriage-annulment-remarriage-adultery.jpg "The marriage annulment myth leads to remarriage adultery")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)
 
 On the other hand, Lk. 16:18 seems to teach that even **the [innocent party](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ab.htm) in an unscriptural divorce** that remarries becomes guilty of **adultery**: 
 > "Whosoever putteth away his wife, and marrieth another, committeth adultery: and **whosoever marrieth her that is put away from her husband committeth adultery** (KJV)."
@@ -95,7 +95,7 @@ But then on the other hand that same Greek word does **not** have to refer to _d
 
 ## Until Death Do We Part, Then Remarriage 
 
-[![divorce remarriage adultery what is a marriage](../../files/pictures/what-is-a-marriage.jpg "What is a marriage is defined by GOD, not the world!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)
+[![divorce remarriage adultery what is a marriage](../files/pictures/what-is-a-marriage.jpg "What is a marriage is defined by GOD, not the world!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)
 
 **The widow could also remarry, but only IF her spouse dies:**
 > "For example, by law **a married woman is bound to her husband as long as he is alive**, but **if her husband dies, she is released from the law of marriage**. So then, **if she marries another man while her husband is still alive, she is called an *adulteress*. But if her husband dies, she is released from that law and is not an *adulteress*, even though she marries another man"** (Rom. 7:2,3). 
@@ -111,7 +111,7 @@ But then on the other hand that same Greek word does **not** have to refer to _d
 <a name="divorceremarriageadultery"></a>
 ## The Adulterous and Divorced, Herodias 
 
-[![remarriage adultery return to first husband](../../files/pictures/remarriage-adultery-return-to-first-husband.png "Should she return to her first husband?")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christiansingles.html)
+[![remarriage adultery return to first husband](../files/pictures/remarriage-adultery-return-to-first-husband.png "Should she return to her first husband?")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christiansingles.html)
 
 (4) **Whose wife was Herodias**? Please consider the following passage from Mk. 6:17, 18: 
 > "For Herod himself had given orders to have John arrested, and he had him bound and put in prison. He did this because of Herodias, **his brother Philip's wife**, whom he had **married**. For John had been saying to Herod, 'It is not lawful for you to have your brother's wife.'" 

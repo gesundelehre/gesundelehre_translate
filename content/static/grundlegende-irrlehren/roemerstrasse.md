@@ -14,7 +14,7 @@ Quelle: [www.evangelicaloutreach.org/romans-road.htm](http://gesundelehre.tk/for
 
 ### Dan Corner
 
-<big><big>**[Romans Road To Salvation Unedited](../../files/pictures/Romans-Road.pdf)** (pdf Print Tract)</big></big>  
+<big><big>**[Romans Road To Salvation Unedited](../files/pictures/Romans-Road.pdf)** (pdf Print Tract)</big></big>  
 (print page one, flip paper, print page two, fold twice)
 
  <iframe width="480" height="360" src="http://www.youtube.com/embed/63-Q8-1cqGM" frameborder="0" allowfullscreen=""></iframe>
@@ -22,13 +22,13 @@ Quelle: [www.evangelicaloutreach.org/romans-road.htm](http://gesundelehre.tk/for
 
 <big>
 
-![romans road to salvation romans road scriptures](../../files/pictures/evangelical-romans-road-to-salvation-romans-road-scriptures.jpg)
+![romans road to salvation romans road scriptures](../files/pictures/evangelical-romans-road-to-salvation-romans-road-scriptures.jpg)
 
-![romans road to salvation romans road scriptures](../../files/pictures/line3.gif)
+![romans road to salvation romans road scriptures](../files/pictures/line3.gif)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-[![Copyrighted. Romans Road to salvation romans road scriptures](../../files/pictures/narrowpath.jpg "Hard is the road to life, which the common Roman's Road to salvation does NOT convey.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)
+[![Copyrighted. Romans Road to salvation romans road scriptures](../files/pictures/narrowpath.jpg "Hard is the road to life, which the common Roman's Road to salvation does NOT convey.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)
 
 ## What Is The _Romans Road to Salvation_
 
@@ -47,7 +47,7 @@ Quelle: [www.evangelicaloutreach.org/romans-road.htm](http://gesundelehre.tk/for
 
 Whoever established those five points as gospel keys for an unsaved person to become enlightened to **[salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)** omitted other critical passages, also from the book of Romans, which are vitally related to salvation. Diese/Solche sind:
 
-[![romans road to salvation](../../files/pictures/romans-road.jpg "The Romans Road to salvation needs to be changed!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)
+[![romans road to salvation](../files/pictures/romans-road.jpg "The Romans Road to salvation needs to be changed!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)
 
 > "To those who by **persistence in doing good** seek glory, honor and immortality, **he will give [eternal life](http://gesundelehre.tk/forwarder.php?url=http://www.eternallifeblog.com/)**" (Rom. 2:7).
 
@@ -55,7 +55,7 @@ Whoever established those five points as gospel keys for an unsaved person to be
 
 > "Nun sagst du aber: Die Zweige sind ausgebrochen worden, damit ich eingepfropft würde! Gut! **Um ihres Unglaubens willen sind sie ausgebrochen worden; du aber stehst durch den Glauben. Sei nicht stolz, sondern fürchte dich! Denn wenn Gott die natürlichen Zweige nicht verschont hat, so wird er wohl auch dich nicht verschonen.* So schaue nun die Güte und die Strenge Gottes; die Strenge an denen, die gefallen sind; **die Güte aber an dir, sofern du in der Güte bleibst, sonst wirst auch du abgehauen werden! Jene dagegen, wenn sie nicht im Unglauben verharren, sollen wieder eingepfropft werden**; denn Gott vermag sie wohl **wieder** einzupfropfen." (Röm. 11,19-23).
 
-[![romans road salvation](../../files/pictures/salvation-nearer-now.jpg "Why isn't Romans 13:11 included in the common Romans Road to salvation?")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html)
+[![romans road salvation](../files/pictures/salvation-nearer-now_de.jpg "Why isn't Romans 13:11 included in the common Romans Road to salvation?")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html)
 
 > And do this, understanding the present time. The hour has come for you to wake up from your slumber, because **our salvation is nearer now than when we first believed.** (Rom 13:11)
 
@@ -68,7 +68,7 @@ Furthermore, the "righteousness that comes by faith" (Rom. 9:30) is not mentione
 
 > "Was wollen wir nun sagen? That the Gentiles, who did not pursue righteousness, have obtained it, **a righteousness that is by faith**; but Israel, who pursued a law of righteousness, has not attained it. Why not? Because **they pursued it not by faith** but as it were by works. They stumbled over the 'stumbling stone.' As it is written: 'See, I lay in Zion a stone that causes men to stumble and a rock that makes them fall, and **the one who trusts in him** will never be put to shame.' Brothers, my heart's desire and prayer to God for the Israelites is that they may be saved. For I can testify about them that they are zealous for God, but their zeal **is not based on knowledge**. Since they did not know **the righteousness that comes from God and sought to establish their own, they did not submit to God's righteousness**. Christ is the end of the law so that there may be **righteousness for everyone who believes**" (Rom.9:30-10:4).
 
-[![romans road](../../files/pictures/romans2-7.jpg "Romans 2:7 should be included in the Romans Road.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternallife.html)
+[![romans road](../files/pictures/romans2-7_de.jpg "Romans 2:7 should be included in the Romans Road.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternallife.html)
 
 Now, if that important passage would be coupled with the aforementioned Rom.2:7; 8:13; 11:19-23 and 13:11, the _Romans Road_ would be a MUCH better presentation of the Gospel, as far as accuracy is concerned with its **[imputed righteousness](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/esimputedrighteousness.html)** and **[conditional security for the believer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)**. Beyond all of this, Rom. 3:21-24 adds to our understanding of righteousness:
 

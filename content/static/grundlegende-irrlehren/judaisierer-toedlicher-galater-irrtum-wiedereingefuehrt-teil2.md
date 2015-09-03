@@ -23,7 +23,7 @@ Dan Corner
 
 Continued From **[Deadly Galatianism Reintroduced I](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/galatianism.html)**
 
-![Messianic Jews](../../files/pictures/a-colorb.gif)
+![Messianic Jews](../files/pictures/a-colorb.gif)
 
 **At the very beginning of the New Testament the false concept that the sin-embracing Jews were _special_ in God’s eyes, because they were descendants of Abraham, was fiercely opposed. [John the Baptist](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john_the_baptist.htm)** was first to combat this faulty and deadly concept:
 
@@ -213,7 +213,7 @@ Sincere people who are trying to draw near to God need to desperately learn what
 
 **The Sacred Name, Yeshua, Messianic Jew and Hebraic Root Movement are not only lacking, but often spiritually wrong and dangerous. To be more precise, their emphasis on Old Testament practices has been detrimental to true Christians to the degree that certainly some have lost their salvation by trying to be justified by the law of Moses (Gal. 5:2-4).** This same type of problem existed in first-century Christianity and is now present again with us. God bless you.
 
-![Messianic Jews](../../files/pictures/a-colorb.gif)
+![Messianic Jews](../files/pictures/a-colorb.gif)
 
 **OTHER TOPICS:**
 

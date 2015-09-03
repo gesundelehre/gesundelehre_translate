@@ -14,7 +14,7 @@ Quelle: [www.evangelicaloutreach.org/saved_through_fire.htm](http://gesundelehre
 
 Dan Corner
 
-![saved so as by fire](../../files/pictures/evangelical-saved-so-as-by-fire.jpg)
+![saved so as by fire](../files/pictures/evangelical-saved-so-as-by-fire.jpg)
 
 <iframe width="315" height="237" src="http://www.youtube.com/embed/gNMtP7y3ZW4?rel=0" frameborder="0" allowfullscreen=""></iframe>  
 <big><big>**[Saved So As By Fire](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/Saved-So-As-By-Fire.mp3)** (mp3)</big></big>
@@ -23,7 +23,7 @@ Dan Corner
 
 [![saved so as by fire](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-![Saved so as by fire](../../files/pictures/a-colorb.gif)
+![Saved so as by fire](../files/pictures/a-colorb.gif)
 
 
 
@@ -31,7 +31,7 @@ Dan Corner
 
 **The _saved so as by fire_ (or _saved through fire_) argument is one of the primary arguments the eternal security teachers use to support the widespread belief that a saved person can be wicked, ungodly, vile, [unfruitful](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/fruit-or-fire.htm), negligent and the like, without losing [salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**.
 
-![saved through fire](../../files/pictures/saved-through-fire.jpg "saved through fire") 
+![saved through fire](../files/pictures/saved-through-fire.jpg "saved through fire") 
 
 They base their distortion upon 1 Cor. 3:11-15\. This is what that passage says:
 
@@ -98,7 +98,7 @@ This issue of _motives_ is also clearly shown at another time which is the only 
 
 The **[mythical god presented by the eternal security teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mythical-god.html)** could never destroy any Christian, who defiles his holy temple through the sins listed in 1 Cor. 6:9,10\. **The _saved so as by fire_ argument is bogus except that it reveals the license to sin used by eternal security proponents.**
 
-![Saved so as by fire](../../files/pictures/a-colorb.gif)
+![Saved so as by fire](../files/pictures/a-colorb.gif)
 
 - **[Eternal Security or Conditional Security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)**
 

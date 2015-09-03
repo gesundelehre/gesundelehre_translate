@@ -15,8 +15,8 @@ Source: [www.evangelicaloutreach.org/point-of-marriage.html](http://gesundelehre
 ### Dan Corner
 
 
-![point of marriage](../../files/pictures/evangelical-point-of-marriage.jpg)
-![Point Of Marriage](../../files/pictures/a-colorb.gif)
+![point of marriage](../files/pictures/evangelical-point-of-marriage.jpg)
+![Point Of Marriage](../files/pictures/a-colorb.gif)
 
 [![Point Of Marriage](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0) 
 <script type="text/javascript" src="http://s7.addthis.com/js/250/addthis_widget.js#username=xa-4ce723c86d857fe0"></script>
@@ -82,7 +82,7 @@ So Boaz took Ruth and **she became his <u>wife</u>. Then he went to her**, and t
 
 **Any form of adultery** (including pornography) will drag one to **_eternal fire_**, unless he repents (turns away from that sin) and gets forgiven. **This holds true even for people who were previously saved, as King David was, before he committed adultery and _[died spiritually](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)_ because of this sin (Ezek. 33:18; Rom. 8:13; Gal. 6:8,9; etc.). So, the point of sexual union is NOT the _point of marriage_, according to the Bible.** 
 
-![point of marraige 1 Cor. 6:16](../../files/pictures/a-colorb.gif)
+![point of marraige 1 Cor. 6:16](../files/pictures/a-colorb.gif)
 
 **ANDERE THEMEN:** 
 - **[Christliche Singles und Christian Dating](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christiansingles.html)**

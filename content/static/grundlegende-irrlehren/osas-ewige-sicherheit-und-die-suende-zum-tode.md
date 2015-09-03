@@ -20,9 +20,9 @@ Quelle: [www.evangelicaloutreach.org/sinuntodeath.htm](http://gesundelehre.tk/fo
 <iframe width="480" height="360" src="http://www.youtube.com/embed/4FYUYKVZNCs?rel=0" frameborder="0" allowfullscreen=""></iframe>
 **<big><big>Can The Righteous Sin Unto Death (Lose Salvation)?</big></big>**
 
-![sin unto death](../../files/pictures/evangelical-outreach-sin-unto-death.jpg "sin unto death")
+![sin unto death](../files/pictures/evangelical-outreach-sin-unto-death.jpg "sin unto death")
 
-![sin unto death](../../files/pictures/006.gif "sin unto death")
+![sin unto death](../files/pictures/006.gif "sin unto death")
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
@@ -32,7 +32,7 @@ Quelle: [www.evangelicaloutreach.org/sinuntodeath.htm](http://gesundelehre.tk/fo
 
 **The bogus _sin unto death_ understanding given by the eternal security teachers reveals their license to sin!**
 
-[![sin unto death](../../files/pictures/sin-unto-death-eternal-security.jpg "The OSAS version of the sin unto death is DEMONIC!")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/etlicense.html) 
+[![sin unto death](../files/pictures/sin-unto-death-eternal-security.jpg "The OSAS version of the sin unto death is DEMONIC!")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/etlicense.html) 
 
 **It is important to know about because you will probably never hear any eternal security teacher say outrightly their doctrine is a _license for immorality_. In fact, they will most often flatly deny this charge sometimes to the point of yelling _slander_.** However, there are still various ways these people teach this very thing they hate to be identified with. Again, this is through their twisted version of the _sin unto death_. The apostle John wrote of this sin:
 
@@ -135,7 +135,7 @@ Dear reader, if you think you can live in heinous sin, as Dave Hunt and D. James
 
 **Remember, if you are an [eternal security proponent](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/eternal-security.html) this information (really _sin unto death sermon_) exposes eternal security as a license to sin!**
 
-![sin unto death](../../files/pictures/006.gif "sin unto death")
+![sin unto death](../files/pictures/006.gif "sin unto death")
 
 <font color="purple">**OTHER SUBJECTS:**</font>
 
@@ -151,7 +151,7 @@ Dear reader, if you think you can live in heinous sin, as Dave Hunt and D. James
 
 - **[Prepare For Death](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/prepare-for-death.html)**
 
-**[![NO eternal security book](../../files/pictures/BigBook-2.jpg "NO eternal security book")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/evangelical-books.html)<font color="red"><small>**click the book 
+**[![NO eternal security book](../files/pictures/BigBook-2.jpg "NO eternal security book")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/evangelical-books.html)<font color="red"><small>**click the book 
 to order**</small></font>**
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/index.html) Outreach**  

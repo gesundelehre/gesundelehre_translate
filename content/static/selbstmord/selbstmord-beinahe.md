@@ -13,7 +13,7 @@ Quelle: [www.evangelicaloutreach.org/almost_suicide.htm](http://gesundelehre.tk/
 
 # Ewige Sicherheit Fördert Suizid (Mord), Teil 2
 
-### Sister Kaprice
+### Schwester Kaprice
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
@@ -22,7 +22,7 @@ Quelle: [www.evangelicaloutreach.org/almost_suicide.htm](http://gesundelehre.tk/
 
 Ich las gerade Ihr Schreiben bezüglich _Selbstmord._ Vor ein wenig mehr als vier Jahren, **glaubte ich an [ewige Sicherheit](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/eternal-security.html)**.
 
-[![Suizid](../../files/pictures/almost-suicide.jpg "Einmal Gerettet Immer Gerettet führt manchmal zu Suizid.")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/suicide-es.htm)
+[![Suizid](../files/pictures/almost-suicide.jpg "Einmal Gerettet Immer Gerettet führt manchmal zu Suizid.")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/suicide-es.htm)
 
 Dies war einfach die Art, wie ich erzogen wurde. Ich erinnere mich daran, dass ich täglich etwas tat, was dem Herrn nicht gefiel und ich kurz sagte, "tut mir leid Herr vergib mir" um es am nächsten Tag wieder zu tun und ich glaubte dass wenn ich einfach "tschuldigung" sagte, dass Gott dann mit mir zufrieden wäre.
 

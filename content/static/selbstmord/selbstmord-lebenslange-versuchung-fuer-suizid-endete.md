@@ -18,7 +18,7 @@ Quelle: [www.evangelicaloutreach.org/sj.htm](http://gesundelehre.tk/forwarder.ph
  including the author, ministry name and address at the end.
  Nothing may be removed from this page including links to other pages.]</small>
 
-![christliches Zeugnis](../../files/pictures/006.gif)
+![christliches Zeugnis](../files/pictures/006.gif)
 
 
 [![Lust](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)

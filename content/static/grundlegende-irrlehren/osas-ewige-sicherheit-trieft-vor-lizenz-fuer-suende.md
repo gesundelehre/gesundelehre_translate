@@ -16,9 +16,9 @@ Source: [www.evangelicaloutreach.org/etlicense.htm](http://gesundelehre.tk/forwa
 
 ### Dan Corner
 
-![once saved always saved license for immorality license to sin](../../files/pictures/evangelical-license-for-immorality.jpg "once saved always saved license for immorality license to sin")
+![once saved always saved license for immorality license to sin](../files/pictures/evangelical-license-for-immorality.jpg "once saved always saved license for immorality license to sin")
 
-![Eternal Security license for immorality license to sin](../../files/pictures/a-colorb.gif "Eternal Security license for immorality license to sin")
+![Eternal Security license for immorality license to sin](../files/pictures/a-colorb.gif "Eternal Security license for immorality license to sin")
 
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
@@ -30,7 +30,7 @@ Source: [www.evangelicaloutreach.org/etlicense.htm](http://gesundelehre.tk/forwa
 
 <big><big>**[Everyone Should Know The _License To Sin_ Implications of 1 Cor. 5:1-5](#license%20to%20sin)**</big></big>
 
-[![license to sin](../../files/pictures/never-saved-david-adultery-murder.jpg "A license to sin and salvation together does NOT exist!")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/eternal-security.html)
+[![license to sin](../files/pictures/never-saved-david-adultery-murder.jpg "A license to sin and salvation together does NOT exist!")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/eternal-security.html)
 
 ## The Prodigal
 
@@ -40,7 +40,7 @@ In the teaching of the **[Prodigal Son](http://gesundelehre.tk/forwarder.php?url
 
 > But we had to celebrate and be glad, because this brother of yours **was dead and is alive again; he was lost and is found.** (Luke 15:32)
 
-[![license to sin](../../files/pictures/license-to-sin.jpg "A license to sin = eternal security!")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/acid_test.html)
+[![license to sin](../files/pictures/license-to-sin.jpg "A license to sin = eternal security!")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/acid_test.html)
 
 It should be clear from these verses that the Prodigal’s spiritual condition went from **saved to lost** when sexually immoral **to saved again** when he **[repented](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/repentance.html)** to serve God. **The Father clearly stated the Prodigal was spiritually _dead_ and _lost_ when in wild living.** This is both clear and destructive to the doctrine of eternal security because the prodigal **_[died](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/spiritual-death.html)_ [ spiritually](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/spiritual-death.html)** through sin. **Hence, he was back on the road to _hell_ again.**
 
@@ -54,7 +54,7 @@ Obviously, the eternal security proponents deny that the prodigal _lost_ his sal
 
 If you have ever had much of a conversation with closed eternal security advocates, it is highly likely that they brought up Romans 7:14-25 and tried to apply that to the Apostle Paul **when a _Christian_.**
 
-[![license to sin](../../files/pictures/license-to-sin-and-sin.jpg "OSAS people most often deny their lince to sin.")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/practice-sin.htm)
+[![license to sin](../files/pictures/license-to-sin-and-sin.jpg "OSAS people most often deny their lince to sin.")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/practice-sin.htm)
 
 To do this is to ignore at least a dozen Scriptures which are as crystal clear as they come in showing **Paul lived a consistently holy and exemplary, self-denying Christian life.** Such relevant Scriptures are ignored and avoided when Romans 7:14-25 is cited as backing for their security in sin teaching of eternal security. (This automatically shows there is something very wrong in the **_heart_** of these teachers.)
 
@@ -78,7 +78,7 @@ Furthermore, Jesus spoke of religious people in Matthew 7:21-23 that were **cont
 
 In 1 Cor. 5:1-5 there was an unnamed sexually immoral man in the Corinthian congregation who was guilty of sexual sin **not even named among the pagans of Paul’s day—incest and adultery. The eternal security teachers argue from verse 5 that he had spiritual life while in unrepentant continuous sexual immorality. By doing that,** they are indirectly saying that **a Christian can live the same way and be _more_ sinfully wicked than pagans! At other times the eternal security teachers will say that not everyone in a particular church group is a _Christian_, but here they declare this incestuous wicked man was a Christian. Imagine that! What a _license to sin_ that is!**
 
-[![license to sin](../../files/pictures/sin-unto-death-eternal-security-click.jpg "The OSAS sin unto death is a definite license to sin.")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/sinuntodeath.html)
+[![license to sin](../files/pictures/sin-unto-death-eternal-security-click.jpg "The OSAS sin unto death is a definite license to sin.")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/sinuntodeath.html)
 
 **[There is another exception, which needs to be mentioned. The exception to this license to sin implication from 1 Cor.5:1-5 comes from [David Pawson](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/david_pawson.html), a teacher who rejects eternal security! NOTE: Though David Pawson rejects eternal security he is still teaching the same DEADLY WAY. [Robert Shank in _Life in The Son_](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/robert-shank.html) also taught a license to sin! [Jimmy Swaggart](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/jimmy-swaggart-study-in-the-word.htm) has his twist too. Swaggart rejects _unconditional eternal security_, but says he believes in _conditional eternal security_, which he teaches as NO SIN, regardless what it is, can negate a Christian's salvation! Hence, such teachers are no better than the open and bold once saved always saved teachers for they too are a snare to precious SOULS.]**
 
@@ -94,7 +94,7 @@ Hence, eternal security teachers are **guilty of teaching and defending a _licen
 
 **Eternal security teachers are dangerous people**  declaring _**demonic** teachings_ under the guise of _grace, God’s keeping power, God’s love, God’s faithfulness, etc. Their gospel is [**another gospel**](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/anothergospel.html) and a license for sin._ Dear reader, if you are a real Christian do **_not_** support their ministry and/or churches. If you do, you are part of the problem and partly responsible for all the **harm** they are doing with their _license to sin_ teachings.
 
-![Eternal Security License to sin](../../files/pictures/a-colorb.gif "Eternal Security License to sin")
+![Eternal Security License to sin](../files/pictures/a-colorb.gif "Eternal Security License to sin")
 
 - **[He Who Overcomes](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/he-who-overcomes.html)**
 

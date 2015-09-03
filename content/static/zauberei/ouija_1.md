@@ -15,13 +15,13 @@ Source: [www.evangelicaloutreach.org/ouija.htm](http://gesundelehre.tk/forwarder
 
 ## Dan Corner
 
-![Ouija Brett](../../files/pictures/a-colorb.gif)
+![Ouija Brett](../files/pictures/a-colorb.gif)
 
-![gefahren-des-ouija-brettes](../../files/pictures/evangelical-outreach-dangers-of-the-ouija-board.jpg)
+![gefahren-des-ouija-brettes](../files/pictures/evangelical-outreach-dangers-of-the-ouija-board.jpg)
 
 [![Ouija Board](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-![Die Kraft des Ouija Brettes ist nicht von Gott.](../../files/pictures/ouija-board.jpg)
+![Die Kraft des Ouija Brettes ist nicht von Gott.](../files/pictures/ouija-board.jpg)
 
 **Eines der Hauptwerkzeuge, welches in _divination_ ist das _Ouija Brett._** Obwohl Parker Brothers (jene die es herstellen) behaupten würden, dass jenes es lediglich ein Spiel und für _unterhaltungs_ Zwecke sei, **führt dieses okkulte Werkzeug zu spiritueller/geistlicher Finsternis. Ohne Frage ist es geistlich/spiritually _gefährlich!_**
 Es wird beschrieben as such:.... <big>[[**Lies Den Rest: Gefahren Des Ouija Brettes**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ouija2.html).]</big>

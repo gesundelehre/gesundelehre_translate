@@ -25,7 +25,7 @@ Hoffentlich werden die Person, die dies eingesandt hat und alle andern, welche s
 
 Hall, Ich bin __________ und ich sprach mit Ihnen am Telefon über **zwei _Suizide_** welche in meiner Kirche geschahen. Ich besuche eine **Southern Baptist Church ....  Ich habe lediglich eine Beschwerde.** Sein [des Pastors] Glaube bezüglich Suizid ist, dass es nichts gibt, was man tun könnte, um sich selbst von Gottes Liebe zu trennen. Ich bitte, mich von ihm in diesem Punkt/Thema zu unterscheiden, da _der Teufel einen Weg fand, sich selbst von Gott zu separieren/trennen indem er sich gegen ihn entschied._
 
-![Suizid](../../files/pictures/wishdead.jpg)
+![Suizid](../files/pictures/wishdead.jpg)
 
 Wie ich Ihnen am Telefon mitteilte, **hatten wir einen jungen Mann in unserer Kirche, der sagte er wäre gerettet und dass er glaubte wenn er Suizid beginge dass er Jesus liebte und er war sich sicher, dass er trotzdem gerettet wäre, wenn er sterben würde.** Wir hatten einen Sonntagsschullehrer der sagte "Nichts was wir tun könnte uns von der Liebe Gottes trennen, **nicht einmal Suizid."** Ich stand auf zusammen mit nur einer anderen Schwester und challenged diese Aussage mit der Tatsache, dass wenn wir in Sünde fortfahren, dass wir dann überhaupt nicht gerettet sind. Er verlor die Kontrolle, zusammen mit dem jungen Mann, welchen ich vorher erwähnte. **Derselbe junge Mann fuhr etwa einen Monat später seinen Lastwagen/Wagen in einen Pfosten, auf dem Berg _________ .** Dies made huge waves in unserer Kirche. Es war traurig to go through.
 

@@ -22,20 +22,20 @@ Quelle: [www.evangelicaloutreach.org/sin.htm](http://gesundelehre.tk/forwarder.p
 [![Bookmark and Share](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0) 
 <script type="text/javascript" src="http://s7.addthis.com/js/250/addthis_widget.js#username=xa-4ce723c86d857fe0"></script>
 
-![slave to sin](../../files/pictures/evangelical-slave-to-sin.jpg)
+![slave to sin](../files/pictures/evangelical-slave-to-sin.jpg)
 
-![SLAVE OF SIN POWER OF SIN SIN ADDICTIONS Slave to Sin](../../files/pictures/line2.gif)
+![SLAVE OF SIN POWER OF SIN SIN ADDICTIONS Slave to Sin](../files/pictures/line2.gif)
 
 ## Are YOU A _Slave To The Power Of Sin_
 
-[![cords of sin slave to sin](../../files/pictures/devil-battle.jpg "cords of sin slave to sin")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)
+[![cords of sin slave to sin](../files/pictures/devil-battle.jpg "cords of sin slave to sin")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)
 
 Throughout the Bible, one can read of man having the _rule_ over fish, birds, living creatures (Gen. 1:26) and people **ruling** over other people (1 Sam. 14:47; 2 Sam. 19:10), but then we come to other verses which show that **sins can _rule_ over people. _Sin has power_ to destroy, bind and control people:** 
 > Auch vor den **Übermütigen/Hochmutssünden** bewahre deinen Knecht, **daß sie nicht über mich herrschen**; dann werde ich unschuldig sein und frei bleiben von großer Missetat! ​Laß dir wohlgefallen die Rede meines Mundes und das Gespräch meines Herzens vor dir, HERR, mein Fels und mein Erlöser! (Ps. 19,13-14).
 
 > Mache meine Schritte fest durch dein Wort und **laß kein Unrecht über mich herrschen!** (Ps. 119,133).
 
-[![SLAVE OF SIN POWER OF SIN SIN ADDICTIONS Slave to Sin](../../files/pictures/no-secret-sins-sinful-temptations.jpg "God knows about SIN.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sexualtemptation.htm)
+[![SLAVE OF SIN POWER OF SIN SIN ADDICTIONS Slave to Sin](../files/pictures/no-secret-sins-sinful-temptations.jpg "God knows about SIN.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sexualtemptation.htm)
 
 The Hebrew word for _rule_ is _mashal_ and means: 
 > **to rule:**--(have, make to have) **dominion**, governor, X indeed, **reign**, (bear, cause to, have) **rule (-ing, -r), have power.** 
@@ -44,7 +44,7 @@ The Hebrew word for _rule_ is _mashal_ and means:
 
 ## Die Bösen/Boshaften Sind Sklaven Der Sünde
 
-[![sin is sin](../../files/pictures/sin-is-sin.jpg "sin is sin")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/james210.htm)
+[![sin is sin](../files/pictures/sin-is-sin.jpg "sin is sin")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/james210.htm)
 
 There are only two types of people, the _wicked_ (or lost) and the _righteous_ (or saved). Regarding the former, Proverbs 5:22 declares that they are _take_[n] (KJV) or _ensnared_ (NIV) by their sin. That word _ensnared_ in the Hebrew is _lakad_ and means: 
 > **to catch** (in a net, trap or pit); gen. **to capture** or occupy; also to choose (by lot); fig. to cohere:-- X at all, **catch** (self), **be frozen, be holden, stick together**, take. 
@@ -56,7 +56,7 @@ The Hebrew word for _cords_ means:
 > **a rope (as twisted)**, espec. a measuring line; by impl. a district or inheritance (as measured); or a **noose (as of cords)**; fig. a company (as if tied together); also a throe (espec. of parturition); also ruin:--band, coast, company, **cord**, country, destruction, line, lot, pain, pang, portion, region, **rope, snare,** sorrow, tackling.
 
 Other similar verses can also be cited:  
-[![bound to sin](../../files/pictures/chained-feet.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin-is-the-issue.htm) 
+[![bound to sin](../files/pictures/chained-feet.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin-is-the-issue.htm) 
 > ... the wicked are **ensnared** by the work of their hands (Psa. 9:16).
 
 > Do not make friends with a hot-tempered man, do not associate with one easily angered, or you may learn his ways and get yourself **ensnared** (Prov. 22:24,25).
@@ -176,7 +176,7 @@ May multitudes in our day become aware of the _freedom_ from sin's slavery found
 <a name="1"></a>
 (1) Though unclear, the _sacred command_ is probably stated at 1 John 3:23: "And this is his command: to believe in the name of his Son, Jesus Christ, and to love one another as he commanded us." 
 
-![Sin Addiction slave of sin](../../files/pictures/line2.gif)
+![Sin Addiction slave of sin](../files/pictures/line2.gif)
 
 **OTHER TOPICS:** 
 

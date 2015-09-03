@@ -14,17 +14,17 @@ Source: [www.evangelicaloutreach.org/spiritism.htm](http://gesundelehre.tk/forwa
 
 **[Letter from (and response to) a Brazilian Spiritist](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritist.html)**
 
-![hexerei spiritismus](../../files/pictures/009.gif)
+![hexerei spiritismus](../files/pictures/009.gif)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 ## ALL Forms of Spiritism and Witchcraft Are Forbidden By God
 
-[![hexerei](../../files/pictures/witchcraft.jpg)](../../files/pictures/witchcraft.pdf)
+[![hexerei](../files/pictures/witchcraft.jpg)](../files/pictures/witchcraft.pdf)
 
-[![psychic and christian](../../files/pictures/psychic-and-christian.jpg "This is an informative printout on witchcraft.")](../../files/pictures/psychic-and-christian.pdf)
+[![psychic and christian](../files/pictures/psychic-and-christian.jpg "This is an informative printout on witchcraft.")](../files/pictures/psychic-and-christian.pdf)
 
-[![Witchcraft](../../files/pictures/Witch.png "Witches do not look like this picture.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ouija2.html)
+[![Witchcraft](../files/pictures/Witch.png "Witches do not look like this picture.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ouija2.html)
 
 **Hüte dich vor allen Formen von Hexerei und Spiritismus! Konsultiere KEINE Hexen, Zauberer, Magier, Kartenleger, Medien, Hellseher und Geisterbeschwörer(Totenbefrager)! Habe nichts zu tun mit Handlinienlesen, Kaffesatzlesen, Tarotkarten lesen, Kristallesen, [**Ouija**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ouija2.html) Brettern, Astrologie, Horoskope oder schwarzer Magie in jeglicher Form!** "Warum?" Wirst du vielleicht fragen. **Weil ALLE diese von der Bibel verurteilt/verdammt werden! Sie sind nicht gut, sondern böse laut dem dem Schöpfer dieses Universums. Du wirst geistlich verschmutzt, indem du solches konsultierst!**
 
@@ -36,7 +36,7 @@ Source: [www.evangelicaloutreach.org/spiritism.htm](http://gesundelehre.tk/forwa
 
 ## [The Woes of Witchcraft - A Personal Testimony](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/witchcraftwoes.html)
 
-[![witchcraft](../../files/pictures/witchcraft-wiccan-rede.jpg "Witchcraft is a great way to ruin your life here and damn your soul after death!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/witchcraftwoes.html)
+[![witchcraft](../files/pictures/witchcraft-wiccan-rede.jpg "Witchcraft is a great way to ruin your life here and damn your soul after death!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/witchcraftwoes.html)
 
 (2) **God is AGAINST anyone who follows after spiritists or mediums, and they will be cut off.**
 
@@ -50,11 +50,11 @@ Source: [www.evangelicaloutreach.org/spiritism.htm](http://gesundelehre.tk/forwa
 
 > "They sacrificed their sons and daughters in the fire. They practiced divination and sorcery and sold themselves to do evil in the eyes of the LORD, provoking him to anger. So the LORD was very angry with Israel and removed them from his presence ..." (2 Kings 17:17,18).
 
-![Hexerei "Hexerei ist nichts womit man spielt!"](../../files/pictures/WitchPot.png)
+![Hexerei "Hexerei ist nichts womit man spielt!"](../files/pictures/WitchPot.png)
 
 (4) Ahaziah sought to know the future about his own injury and he died because he consulted a forbidden source, which was Baal-Zebub (2 Kings 1:2 cf. v. 16). **Learn from his example and seek only the truth stated in the Bible regarding future things.**
 
-[![hexerei](../../files/pictures/wiccan-rede-and-ye-harm-none-do-what-thou-will-biblical-replacement.jpg "Hexerei ist okkult und wird durch das Wort Gottes verdammt/verurteilt!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html)
+[![hexerei](../files/pictures/wiccan-rede-and-ye-harm-none-do-what-thou-will-biblical-replacement.jpg "Hexerei ist okkult und wird durch das Wort Gottes verdammt/verurteilt!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html)
 
 (5) Der Apostel Paulus trieb einen weissagenden/wahrsagenden Dämon aus einem Mädchen aus, indem er sagte:
 
@@ -95,7 +95,7 @@ Manasseh was an Old Testament example of a person who "practiced sorcery, divina
 
 (13) Jesus Christ died for you! No matter if you have or have not practiced sorcery or consulted a spiritist. Jesus Christ can and will save you from your **[sins](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)** and enable you able to enter heaven. **Jesus said, "If anyone would come after me, he must deny himself and take up his cross daily and follow me" (Lk. 9:23).** Ask Jesus to forgive you for all your past sins and accept Him as your Savior and Lord. Turn from all your sins. It's important that you tell someone verbally what you have done (Rom.10:9,10). Church membership, water baptism, good works, the **[Rosary](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/rosary.html)**, Mary, Sacraments and the Ten Commandments cannot save you. **Put all (100%) of your trust in Jesus. Prove your repentance by your deeds (Acts 26:20).** "So if the Son sets you free, you will be free indeed" (Jn. 8:36). The true [**plan of salvation**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html) is found in the Bible. **Read and obey the Holy Bible. YOUR ETERNAL DESTINY DEPENDS UPON THIS. Turn away from all forms of witchcraft and spiritism!**
 
-![witchcraft spiritism](../../files/pictures/009.gif)
+![witchcraft spiritism](../files/pictures/009.gif)
 
 - **[Come Out, In Jesus' Name (A True Story About Demonic Possession and Exorcism)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/demonic-possession.htm)**
 

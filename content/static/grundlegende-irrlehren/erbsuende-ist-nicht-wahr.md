@@ -15,9 +15,9 @@ Quelle: [www.evangelicaloutreach.org/original_sin.htm](http://gesundelehre.tk/fo
 
 ### **[Dan Corner](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/index.html)**
 
-![orinal sin total depravity](../../files/pictures/evangelical-original-sin-total-depravity.jpg)
+![orinal sin total depravity](../files/pictures/evangelical-original-sin-total-depravity.jpg)
 
-![Original Sin](../../files/pictures/a-colorb.gif)
+![Original Sin](../files/pictures/a-colorb.gif)
 
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
@@ -32,7 +32,7 @@ Quelle: [www.evangelicaloutreach.org/original_sin.htm](http://gesundelehre.tk/fo
 
 People are not born _sinners_. **Though it is not perfectly clear, there is a time period when a baby or very young person is protected from eternal damnation because of his own sins. That is when he becomes a _sinner._**
 
-![original sin](../../files/pictures/original-sin.jpg "original sin") 
+![original sin](../files/pictures/original-sin.jpg "original sin") 
 
 Why? Because their unbelief in Jesus and rebellion would not be _sin_ for them. If not true, then innocent babies and little children would all, with no exception, be damned to fiery torment upon their early premature death, which is unthinkable of the God of the Bible. Most importantly, here is specific Scriptural support:
 
@@ -66,7 +66,7 @@ The inventor of the doctrine of _original sin_ was [**<u>Augustine</u>**](http:/
 
 **_Once saved always saved_ is the monster heresy of our day in Bible believing circles, adversely affecting untold millions of precious eternal souls in various ways. It is boldly taught as grace, the gospel, foundational to Christianity and the atonement by the most popular preachers in our day such as Charles Stanley compared to almost no one trying to push original sin in that same way!** Eternal security must be [<u>**opposed by Christians and _not tolerated_**</u>](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/spiritual-treason.htm), as is often done. The first point of Calvinism (and the related _original sin)_ is so tiny and insignificant compared to the last point—it’s like comparing the proverbial _mole hill to a mountain._ Furthermore, one can preach the real gospel without opposing or even mentioning _original sin,_ which is shown repeatedly in Acts when the gospel was preached. Moreover, a [**<u>Christian is not a sinner</u>**](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/christiansinner.htm) A Christian is a _righteous_ person who is following Jesus ([**John 10:27**](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/john1028.html); Heb. 5:9) and putting into practice God's word (Luke 8:21; Mt. 7:21; etc.). **It should be clear that the Bible does not teach _original sin_ or the related [infant baptism](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/infantbaptism.htm) or [<u>baptismal regeneration</u>](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/baptism.html).**
 
-![Original Sin](../../files/pictures/a-colorb.gif)
+![Original Sin](../files/pictures/a-colorb.gif)
 
 - **[Charles Finney On True Repentance Is Unscriptural](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/charles-finney.html)**
 

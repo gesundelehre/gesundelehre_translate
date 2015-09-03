@@ -14,10 +14,10 @@ Quelle: [www.evangelicaloutreach.org/suicide.htm](http://gesundelehre.tk/forward
 
 Graphics copyright Evangelical Outreach
 
-![Suizid](../../files/pictures/023.gif)
+![Suizid](../files/pictures/023.gif)
 
 
-![Man WRONGLY thinking about suicide](../../files/pictures/pic10.jpg)
+![Man WRONGLY thinking about suicide](../files/pictures/pic10.jpg)
 
 ## STOP! Bringe Dich Selber NICHT Um!
 
@@ -28,7 +28,7 @@ Graphics copyright Evangelical Outreach
 
 Eine andere Studie ergab ein geringfügig tieferes Bild für 1993, besagte jedoch auch eine stetige Zunahme an Suiziden, ausgenommen für 1992:
 
-![Suizid ist Selbstmord](../../files/pictures/why.jpg)
+![Suizid ist Selbstmord](../files/pictures/why.jpg)
 
 >  1970 = 23,480 (männlich, 16,629; weiblich, 6,851)  
 >  1980 = 26,869 (männlich, 20,505; weiblich, 6,364)  
@@ -57,7 +57,7 @@ Die einzig zuverlässige Quelle, um die geistlichen Fakten über Leben nach dem 
 
 > Jeder, der seinen Bruder haßt, ist ein Totschläger; und ihr wisset, daß **kein Totschläger ewiges Leben bleibend in sich hat.** (1 Joh 3,15; Schlachter 1951) 
 
-![Suizid wird dich in die Hölle bringen. Tu es nicht!](../../files/pictures/eternalfire.gif)
+![Suizid wird dich in die Hölle bringen. Tu es nicht!](../files/pictures/eternalfire.gif)
 
 > Den Feiglingen aber und Ungläubigen und Greulichen und **Mördern** und Unzüchtigen und Zauberern und Götzendienern und allen Lügnern wird **ihr Teil sein in dem See, der von Feuer und Schwefel brennt; das ist der zweite Tod**. (Off 21,8; Schlachter 1951)
 
@@ -71,7 +71,7 @@ Einige haben versucht, die Sünde von Suizid (vorsätzlicher Selbst-Mord) mit de
 
 **Bitte beachte, dass _Mord_ (ungeachtet der Form) aus dem _Herzen_ kommt und ist laut dem Herrn keine geistige Krankheit!**
 
-![Zwei Personen im Feuer der Hölle. Eine davon war ein Selbstmordopfer.](../../files/pictures/pic11.jpg)
+![Zwei Personen im Feuer der Hölle. Eine davon war ein Selbstmordopfer.](../files/pictures/pic11.jpg)
 
 Solche Leute die dieser Versuchung nachgeben werden nicht in den Himmel kommen, da sie **Mord** begingen und nicht darüber Busse tun konnten!
 
@@ -86,7 +86,7 @@ GRAPHICS COPYRIGHT EVANGELICAL OUTREACH
 
 Der wahre Plan der Errettung ist Busse gegen Gott und Glaube an Jesus Christus (Apg. 20:21). Wir beweisen unsere Busse durch unsere Taten. (Apg. 26,20). Der Herr Jesus lehrte, dass der Weg zum Leben **"hart/schmal"** ist und nur ein **"paar"** ihn finden werden (Mt. 7,13-14). Viele werden gerettet doch fallen anschliessend wieder ab (Lk. 8,13; Jn. 6:66; 1 Tim. 1,19; etc.). Mit anderen WOrten, nach anfänglicher Errettung müssen wir bis zum **"Ende"** durchhalten, um ins Königreich Gottes zu kommen und dem Feuersee zu entkommen (Mt. 10,22; Heb. 3,14; Off. 2,10-11). Ewiges Leben kommt zum Bussfertigen in dem Moment wenn jener für die Errettung an Jesus glaubt (Joh. 3,16; 6,47; 1 Joh. 5,12-13), aber es gibt einen weiteren wichtigen Aspekt des ewigen Lebens wovon viele gänzlich nichts wissen heutzutage, aufgrund der falschen Lehre von ewiger Sicherheit. **Laut wahrer Gnadenlehre ist ewiges Leben auch eine HOFFNUNG (Titus 3,7), die noch zu ERNTEN ist (Gal. 6,8-9) im ZUKÜNFTIGEN ZEITALTER (Mk. 10,30) und nur für diejenigen, die AUSHARREN IM TUN DES GUTEN (Röm. 2,7) und NICHT MATT WERDEN UND AUFGEBEN (Gal. 6,9).**
 
-![suizid](../../files/pictures/023.gif)
+![suizid](../files/pictures/023.gif)
 
 - **[Suizid und Ewige Sicherheit](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/suicide-es.htm)**
 
@@ -98,7 +98,7 @@ Der wahre Plan der Errettung ist Busse gegen Gott und Glaube an Jesus Christus (
 
 
 
-<small>Klicke auf das Buch</small>[![ewige sicherheit buch](../../files/pictures/TBCS.jpg "ewige sicherheit buch")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html)
+<small>Klicke auf das Buch</small>[![ewige sicherheit buch](../files/pictures/TBCS.jpg "ewige sicherheit buch")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

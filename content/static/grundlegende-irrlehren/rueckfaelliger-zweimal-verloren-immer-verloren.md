@@ -16,14 +16,14 @@ Source: [www.evangelicaloutreach.org/twicelost.htm](http://gesundelehre.tk/forwa
 
 ![twice lost forever lost](../..7files/pictures/evangelical-twice-lost-forever-lost.jpg "Twice Lost Always Lost Errors")
 
-![twice lost forever lost](../../files/pictures/a-colorb.gif)
+![twice lost forever lost](../files/pictures/a-colorb.gif)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 
 ## Can A Backslider Get Saved Again
 
-[![twice lost always lost](../../files/pictures/twice-lost-always-lost-errors.jpg "Twice Lost Always Lost Errors")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal_sin_blasphemy_of_Holy_Spirit.html)
+[![twice lost always lost](../files/pictures/twice-lost-always-lost-errors.jpg "Twice Lost Always Lost Errors")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal_sin_blasphemy_of_Holy_Spirit.html)
 
 The following email came in concerning those who correctly teach a Christian can lose his salvation and rightly reject _[**eternal security**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)_, but also teach backsliders can never get their salvation back again! Perhaps some have never thought about the adverse ramifications of the _twice lost always lost_ teaching. Here is the actual email:
 
@@ -51,7 +51,7 @@ Heb. 6:4-6 is ONLY referring to people who committed _**[eternal sin](http://ges
 
 This brings up another issue, namely, for those who backslide, like the prodigal, and sincerely desire to return to God, but think they have been away from God too long or sinned too much. Such _repentant_ people are very distraught and tortured in their minds because they don't know the truth that they can indeed come back to salvation again and once more get off the road to hell. They can be _renewed again by repentance_. However, the _twice lost always lost_ teaching would horrendously deny this fact. Please consult our books and this other article for more information. Click **[Backslider, God Wants You Back](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/backslider.html).** GOD BLESS YOU.
 
-![twice lost forever lost](../../files/pictures/a-colorb.gif)
+![twice lost forever lost](../files/pictures/a-colorb.gif)
 
 - **[Skull And Crossbones Awards For False Prophets And False Teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Skull_And_Crossbones.html)**
 

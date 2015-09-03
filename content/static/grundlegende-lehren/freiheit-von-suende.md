@@ -24,19 +24,19 @@ BEFREIT Von *Abhängigkeiten Von Sünden*, Romans 6
  
  
  
-![Echte Erweckung](../../files/pictures/evangelical-sin-addiction.jpg)
+![Echte Erweckung](../files/pictures/evangelical-sin-addiction.jpg)
 
-![Abhängigkeit von Sünde](../../files/pictures/a-colorb.gif)
+![Abhängigkeit von Sünde](../files/pictures/a-colorb.gif)
 
 ## Does *Sin Addiction* Have You Bound 
 
-**The vast problem of _sin addiction_ and the spiritual remedy is not always taught in church!
+**The vast problem of _sin addiction_ and the spiritual remedy is not always taught in church!**
 
-[![Trunkenheit, betrunken, Alkoholiker, Alkoholismus](../../files/pictures/sin-addictions-pornography-drunkenness.jpg "Being a DRUNKARD is a spiritual issue and getting Biblically saved is the sure remedy.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/slave.htm)
+[![Trunkenheit, betrunken, Alkoholiker, Alkoholismus](../files/pictures/sin-addictions-pornography-drunkenness.jpg "Being a DRUNKARD is a spiritual issue and getting Biblically saved is the sure remedy.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/slave.htm)
 
-That is why we all need to search the pages of the Bible for ourselves to learn the vital truths of God, especially about _salvation._** In Bezug darauf, wenn es jemals ein Kapitel gab, *das den Christen beschreibt*, welches von den beliebten religiösen Leitern unserer Tage gehasst und gemieden wurde, so muss es Römer 6 sein. This is especially true among the eternal security proponents who want us to think:
+**That is why we all need to search the pages of the Bible for ourselves to learn the vital truths of God, especially about _salvation._** In Bezug darauf, wenn es jemals ein Kapitel gab, *das den Christen beschreibt*, welches von den beliebten religiösen Leitern unserer Tage gehasst und gemieden wurde, so muss es Römer 6 sein. This is especially true among the eternal security proponents who want us to think:
 
-[![sin addiction](../../files/pictures/sin-addiction.jpg "sin addiction")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html)
+[![sin addiction](../files/pictures/sin-addiction_de.jpg "sin addiction")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html)
 
 (1) we must **[sin](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)** all the time and (2) distort grace into something it isn't. They wrongly apply Romans 7:14-25 to the *Christian* and wickedly avoid Romans 6 or grossly distort it. ömer 6 ist ein von Abhängigkeiten von Sünden befreiter **_[Christ](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian.html)_** - nicht Römer 7,14-25,  wie die meisten fälschlicherweise gelehrt wurden. Das folgende ist *echte Gnaden-Lehre und zeigt, was wirklich zum Zeitpunkt der wahren Errettung passiert und was die **[neue Schöpfung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/new-creation.html)** ist:*
 
@@ -68,7 +68,7 @@ Jesu Tod und Auferstehung werden als _Analogie_ zitiert dafür, wie ein Christ S
 
 > So **soll nun die Sünde nicht herrschen in eurem sterblichen Leibe**, so daß ihr seinen Lüsten **[gehorchet](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/obey.html)**; (Röm 6,12)
 
-[![Slave der Sünde](../../files/pictures/devil-battle.jpg "slave to sin")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/slave.htm)
+[![Slave der Sünde](../files/pictures/devil-battle.jpg "slave to sin")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/slave.htm)
 
 Sin is _personified_ and clearly shown to want to _reign_ or control even people who were truly saved. It is, therefore, the Christian's choice and responsibility (not God's) to stop sin from reigning in his corruptible body he now has. Again, **the Christian's life is shown to be a fight against sin (Heb. 12:4)**. The false teachers who say, _sin is no longer the issue since Calvary_, miss a major part of the New Testament and dangerously distort grace, but that goes with tickling ears and deceiving people for the sake of popularity, money and avoiding persecution: 
 
@@ -87,7 +87,7 @@ Wenn eine Person Errettung will und die Freiheit von Sünde, welche dazu gehört
 
 > Da sprach Jesus zu den Juden, die an ihn gläubig geworden waren: Wenn ihr in meinem Worte bleibet, so seid ihr wahrhaftig meine Jünger, und ihr werdet die Wahrheit erkennen, und **die Wahrheit wird euch frei machen!** Sie antworteten ihm: Wir sind Abrahams Same und sind nie jemandes Knechte gewesen; wie sprichst du denn: Ihr sollt frei werden? Jesus antwortete ihnen: **Wahrlich, wahrlich, ich sage euch: Wer Sünde tut, ist der Sünde Knecht. Der Knecht aber bleibt nicht ewig im Hause; der Sohn bleibt ewig. Wird euch nun der Sohn frei machen, so seid ihr wirklich frei.** (Johannes 8:31-36; Schlachter1951)
 
-![sin addiction](../../files/pictures/SETFREE.jpg) 
+![sin addiction](../files/pictures/setfree_de.jpg) 
 
 Paulus lehrte dieselbe Wahrheit in Römer 6. **Jesus _befreit_ uns von der Sklaverei/Knechtschaft der Sünde durch sein Blut zum Zeitpunkt der** [**Busse**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html).
 
@@ -117,13 +117,13 @@ Dies ist einer der Beweise von Errettung durch Gnade - **eine Person ist beschä
  
 BEACHTE: Vers 23 erwähnt _Tod_ und _ewiges Leben_. Sie werden einander gegenüber / in Konstrast gestellt. A person is in one or the other depending upon his **_faith,_** which is manifested by _disobedience or obedience_. As sin leads to _death_, **_[holiness](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html) from being a slave to God leads to eternal life_**. Have you ever heard that taught before? That is also the truth that is concealed by spitting apart verses 22 and 23, but is connected with _salvation_ itself. **Bitte sage andern, wie man von sündhaften Abhängigkeiten frei werden kann.** Gott segne dich.
 
-![Abhängigkeit von Sünde](../../files/pictures/a-colorb.gif)
+![Abhängigkeit von Sünde](../files/pictures/a-colorb.gif)
 
 **ANDERE THEMEN:**
 
 - **[Ewige Sicherheit oder Bedingte Sicherheit](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)** 
 - **[YHWH (Yahweh) Der Killer Gott](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/killergod.html)** 
-- **[Jungfräulichkeit von Maria](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/virginity-of-mary.html)* * 
+- **[Jungfräulichkeit von Maria](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/virginity-of-mary.html)** 
 
 [**Kontaktiere Uns Oder Tritt Unserer Internetgemeinde Bei**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 

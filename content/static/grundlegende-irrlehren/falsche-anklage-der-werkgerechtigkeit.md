@@ -21,15 +21,15 @@ Source: [www.evangelicaloutreach.org/workssalvation.html](http://gesundelehre.tk
 ## Dan Corner Refutes The False Accusation Of A Works Salvation
 
 - - -
-[![Teaching obedience to God is not a works salvation (pdf)](../../files/pictures/works-salvation.jpg)](../../files/eomin.org/bible-believers.pdf)  
+[![Teaching obedience to God is not a works salvation (pdf)](../files/pictures/works-salvation.jpg)](../../files/eomin.org/bible-believers.pdf)  
 Free Tract Proving Obedience Is Not A Works Salvation
 
-[![Works salvation accusation has been misapplied (pdf)](../../files/pictures/observations.jpg)](../../files/eomin.org/bible-ObservationsOSAS.pdf)  
+[![Works salvation accusation has been misapplied (pdf)](../files/pictures/observations.jpg)](../../files/eomin.org/bible-ObservationsOSAS.pdf)  
 Click For Observations of a Works Salvation
 
 [Click To Print Free Tract On The False Accusation Of A Works Salvation (pdf)](../../files/eomin.org/works-salvation.pdf)
 
-![works salvation](../../files/pictures/023.gif)
+![works salvation](../files/pictures/023.gif)
 
 [![Bookmark and Share](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
@@ -37,13 +37,13 @@ Click For Observations of a Works Salvation
 
 ## Is It Either Eternal Security Or A Works Salvation?
 
-[![works salvation accusation pharisees](../../files/pictures/legalism-pharisees-works-salvation-accusation.jpg "false works salvation accusation")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/obey.html)
+[![works salvation accusation pharisees](../files/pictures/legalism-pharisees-works-salvation-accusation.jpg "false works salvation accusation")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/obey.html)
 
 One of the chief accusations cited by those who embrace once saved always saved (also known as eternal security or the [perseverance of the saints](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/perseverance-of-the-saints.htm)), is that their opposition is teaching a works salvation. In fact, it is now commonly believed that one either believes in once saved always saved (OSAS) or a works salvation! Here are two actual emails we received which show this:
 
 > If you believe that once saved always saved is a lie then that MUST mean we are saved on WORKS ... Richtig? Thats [sic] not what the Word says. (Grossschreibung und Auslassungspunkte von ihm)
 
-[![A Works Salvation is not Following Jesus](../../files/pictures/WolfPulpitFlip.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wolfsheep.html)
+[![A Works Salvation is not Following Jesus](../files/pictures/WolfPulpitFlip.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wolfsheep.html)
 
 > I just ran across your web site. It saddened me to realize that not only are you probably unsaved, but that you are actively evangelizing for Satan. You do not have to hate Christ just bacause [sic] you have rejected His grace. However, you would be better off if you accepted Christ as your Savior, and stopped believing in the power of your works as your savior in lieu of Christ, or in addition to Christ. 
 
@@ -67,13 +67,13 @@ Second, many [Christians](http://gesundelehre.tk/forwarder.php?url=http://www.ev
 
 > The acts of the sinful nature are obvious: sexual immorality, impurity and debauchery; idolatry and [witchcraft](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html); hatred, discord, jealousy, fits of rage, selfish ambition, dissensions, factions and envy; drunkenness, orgies, and the like. I warn you, as I did before, that those who live like this [will not inherit the kingdom of God](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/will-not-inherit-the-kingdom-of-God.htm) **(Gal 5:19-21)**
 
-[![Drunkards are not once saved always saved](../../files/pictures/Drunks.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/drunk.html)
+[![Drunkards are not once saved always saved](../files/pictures/Drunks.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/drunk.html)
 
 > Wenn ich vom Gerechten sage: «Er soll sicherlich leben!» und er verläßt sich auf seine Gerechtigkeit und tut Unrecht, so soll aller seiner Gerechtigkeit nicht mehr gedacht werden; sondern um seiner Bosheit willen, die er getan hat, soll er sterben. **(Hes 33,13; Schlachter1951)**
 
 Again, it's not, therefore, that Christians who oppose once saved always saved are teaching a works salvation as often accused, but that they know the basic Scriptural truth about sin's deadly spiritual effects on the soul of the righteous, which is flatly denied by [once saved always saved teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal_security_teachers.htm).
 
-[![Those who turn to witchcraft are not once saved always saved](../../files/pictures/witch2.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html)
+[![Those who turn to witchcraft are not once saved always saved](../files/pictures/witch2.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html)
 
 ## Keine *Werkgerechtigkeit*
 Third, Christians who teach that sexual immorality, drunkenness, theft, [greed](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/gospel-of-greed.htm), witchcraft, and the like (see [Mt. 5:28,29](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html);1 Cor. 6:9,10; Rev. 21:8; 22:15) will exclude all such people from God's kingdom are not teaching anything of their own making. All we are doing is citing what Jesus and His Apostles taught, as found in the Bible. If we are guilty of teaching a works salvation, then they taught a works salvation too, which is impossible. In fact, such a teaching is under the umbrella of grace, in contrast to what many have been believing.
@@ -100,7 +100,7 @@ Sinful Israel didn't like God's way about the righteous turning to evil and dyin
 > Yet, O house of Israel, you say, "The way of the Lord is not just." But I will judge each of you according to his own ways. But if a wicked man turns away from all the sins he has committed and keeps all my decrees and does what is just and right, he will surely live; he will not die. None of the offenses he has committed will be remembered against him. Because of the righteous things he has done, he will live. Do I take any pleasure in the death of the wicked? declares the [Sovereign LORD](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sovereignty-of-god.html). Rather, am I not pleased when they turn from their ways and live? But if a righteous man turns from his righteousness and commits sin and does the same detestable things the wicked man does, will he live? None of the righteous things he has done will be remembered. Because of the unfaithfulness he is guilty of and because of the sins he has committed, he will die. Yet you say, "The way of the Lord is not just." Hear, O house of Israel: Is my way unjust? Is it not your ways that are unjust? If a righteous man turns from his righteousness and commits sin, he will die for it; because of the sin he has committed he will die. But if a wicked man turns away from the wickedness he has committed and does what is just and right, he will save his life. Because he considers all the offenses he has committed and turns away from them, he will surely live; he will not die. Yet the house of Israel says, "The way of the Lord is not just." Are my ways unjust, O house of Israel? Is it not your ways that are unjust? Therefore, O house of Israel, I will judge you, each one according to his ways, declares the Sovereign LORD. Repent! Turn away from all your offenses; then sin will not be your downfall. Rid yourselves of all the offenses you have committed, and get a new heart and a new spirit. Why will you die, O house of Israel? For I take no pleasure in the death of anyone, declares the Sovereign LORD. Repent and live! **(Ezek 18:20-32)** 
 
 [![Heart Purity is
-not Works Salvation](../../files/pictures/heartsfixed.gif)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html)
+not Works Salvation](../files/pictures/heartsfixed.gif)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html)
 
 The context of this passage shows Ezekiel wrote about spiritual death (not physical death) for the righteous man who turns away from God, since the contrast says if a wicked man turns away from wickedness he will live and not die. Yet the same ones who did not die [spiritually] did die physically. Therefore, spiritual death is under discussion and not physical death, like some would distort the meaning to say. Dies hat nichts zu tun mit einer Werkgerechtigkeit.
 

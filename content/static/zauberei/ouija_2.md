@@ -17,9 +17,9 @@ Quelle:  [www.evangelicaloutreach.org/ouija2.html](http://gesundelehre.tk/forwar
 
 Gehe Zurück und lese den Anfang des **[Ouija Brettes](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ouija.htm)**
 
-![ouija brett harry potter](../../files/pictures/evangelical-ouija-board-harry-potter.jpg)
+![ouija brett harry potter](../files/pictures/evangelical-ouija-board-harry-potter.jpg)
 
-![Gefahren Von Ouija Brettern](../../files/pictures/a-colorb.gif)
+![Gefahren Von Ouija Brettern](../files/pictures/a-colorb.gif)
 
 [![Gefahren Von Ouija Brettern](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
@@ -29,23 +29,23 @@ Gehe Zurück und lese den Anfang des **[Ouija Brettes](http://gesundelehre.tk/fo
 <big>**[LIES ÜBER _Dämonenbesessenheit_ Durch Das Ouija Brett](#danger-ouija-board)**</big>  
 <big>**[LIES Warum Das Ouija Brett Nicht Nur ein Fun "Spiel," ist, Sondern stattdessen GEFÄHRLICH](#ouija-board-danger)**</big>
 
-[![ouija brett geschichten](../../files/pictures/ouija-board2.jpg "Wahre Ouija Brett Geschichten, die Beweisen, dass das Ouija Brett NICHT lediglich ein fun spiel ist, wie es manchmal als solches beworben wird.*")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritism.htm)
+[![ouija brett geschichten](../files/pictures/ouija-board2.jpg "Wahre Ouija Brett Geschichten, die Beweisen, dass das Ouija Brett NICHT lediglich ein fun spiel ist, wie es manchmal als solches beworben wird.*")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritism.htm)
 
 > Der Name _Ouija_ kommt von den Französischen und Deutschen Worten für "Ja", _oui- und _ja_ [(ja is mispronounced with a hard "j")]. Kritiker des Ouija, was Autoritäten in den meisten Denominationen des Christentums einschliesst, sagen **es ist gefährlich und ein Werkzeug des [Teufels](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devil.html).** Verfechter sagen, dass es, wie andere Formen von **Wahrsagerei** auch, ein legitimes Mittel ist, um Erkenntnis, Weisheit und Selbstwahrheiten [engl. self-truths] zu finden und **um mit discarnate beings zu kommunizieren.**
 
-[![ouija board](../../files/pictures/ouija-board.jpg "This is an Ouija Board.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/DemonsText.htm)
+[![ouija board](../files/pictures/ouija-board.jpg "This is an Ouija Board.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/DemonsText.htm)
 
 > Das Brett beinhaltet Buchstaben des Alphabetes, Ziffern von 0 bis 9, die Worte "Ja" und "Nein" und ein herzförmiger Zeiger auf drei mit Fell überzogenen Beinen [engl. felt-tipped]. Eine oder Zwei Personen platzieren ihre Fingerspitzen auf dem Zeiger, welcher sich bewegt um Fragen zu beantworten. In den meisten Fällen kommen die Antworten wahrscheinlich vom Unterbewusstsein der Benutzer, sogar wenn "Geister" sich identifizieren und Botschaften geben. Allerdings **Ouija Zeiger sind bekannt dafür dass sie vom Brett herunterflogen und ausser Kontrolle gerieten/durchdrehten, wie wenn sie durch unsichtbare Kräfte gelenkt würden, und einige Benutzer geben an von externen Akteuren, welche mit Hilfe des Brettes kontaktiert wurden belästigt/beunruhigt worden zu sein.**
 
 > Vorläufer des Ouija datieren bis zurück in antike Zeiten.
 
-[![ouija board](../../files/pictures/ouija-board-witchcraft-spiritism.jpg "Getting involved in witchcraft often starts with the ouija board.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/witchcraftwoes.html)
+[![ouija board](../files/pictures/ouija-board-witchcraft-spiritism.jpg "Getting involved in witchcraft often starts with the ouija board.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/witchcraftwoes.html)
 
 In China vor der Geburt von Konfuzius (c. 551 B.C.), wurden ähnliche Instrumente benutzt, um **mit den Toten zu kommunizieren**. In Griechenland während der Zeit von Pythagoras (c. 540 B.C.) wurde Wahrsagerei mit einem Tisch betrieben, welcher sich auf Rädern zu Zeichen hin bewegte, welche als Offenbarungen aus der "Unsichtbaren Welt" interpretiert wurden. Der rollende Tisch wurde benutzt durch das neunzehnte Jahrhundert hindurch. Andere solche Geräte wurden durch die antiken Römer schon im 3.Jh v.Chr. gebraucht, und im dreizehnten Jahrhundert von den Mongolen. Einige einheimische Amerikaner benutzten "_squdilatc_ boards" um verlorene Objekte oder Personen zu finden, und spirituelle Informationen zu empfangen. In 1853 bürgerte sich die Planchette in Europa ein. Es bestand aus einer dreieck- oder herzförmigen Plattform auf drei Beinen, wovon eines davon ein Bleistift war. Das Medium oder der Benutzer bewegte das Gerät über das Papier, um Bilder zu zeichnen oder Botschaften auszubuchstabieren.(1)
 
 NOTE: **(Ouija Brett Geschichten können sehr erschreckend sein!** Klicke auf das Leoparden Bild rechts für ein wirkliches Zeugnis!). Das Ouija Brett, wie andere Formen der Wahrsagerei, wurde gebraucht in einem Versucht, **die Toten zu kontaktieren** (Nekromantie??), was deutlich von der [Bible](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) verboten ist:**
 
-[![ouija boards](../../files/pictures/ouija-board3.jpg "The Ouija board is NOT a harmless game. IT IS DANGEROUS")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritism.htm)
+[![ouija boards](../files/pictures/ouija-board3.jpg "The Ouija board is NOT a harmless game. IT IS DANGEROUS")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritism.htm)
 
 > Es soll niemand unter dir gefunden werden, der seinen Sohn oder seine Tochter durchs Feuer gehen läßt, oder einer, der **Wahrsagerei betreibt** [engl. divination or sorcery] oder Zeichendeuterei oder ein Beschwörer oder ein *Zauberer, oder einer, der Geister bannt, oder ein Geisterbefrager [=Medium], oder ein Hellseher oder jemand, **der sich an die Toten wendet. Denn wer so etwas tut, ist dem HERRN ein Greuel**, und um **solcher Greuel** willen vertreibt der HERR, dein Gott, sie vor dir aus ihrem Besitz. Du aber sollst dich ganz an den HERRN, deinen Gott, halten; denn diese Heidenvölker, die du aus ihrem Besitz vertreiben sollst, hören auf **Zeichendeuter und Wahrsager**; **dir aber erlaubt der HERR, dein Gott, so etwas nicht.** (5. Mose 18,10-14; Schlachter2000)
 
@@ -55,14 +55,14 @@ Alle anderen Formen von Zauberei werden auch deutlich in der Bibel gerügt. Jene
 
 Ihre einzige Hoffnung, ist Vergebung zu empfangen indem sie sich von dieser Form der Bosheit abwenden hinzu dem wahren und lebendigen Gott durch Jesus Christus. Siehe Apg 20,21.
 
-<big>**[Drucke: Ouija Brett](../../files/pictures/ouija-board.pdf)** (pdf)</big>
+<big>**[Drucke: Ouija Brett](../files/pictures/ouija-board.pdf)** (pdf)</big>
 
-**<big>[Drucke Unser Spitzenmässiges Zeichentrick Traktat: Ein Psychic Kontra Gottes Wort](../../files/pictures/psychic-and-christian.pdf)</big>** <big>(pdf)</big>
+**<big>[Drucke Unser Spitzenmässiges Zeichentrick Traktat: Ein Psychic Kontra Gottes Wort](../files/pictures/psychic-and-christian.pdf)</big>** <big>(pdf)</big>
 
 
 ## Ouija Beliebtheit Um die Zeit des Ersten Weltkriegs
 
-[![](../../files/pictures/never-call-on-an-angel.jpg "angels spiritual deception")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/angels.html)
+[![](../files/pictures/never-call-on-an-angel.jpg "angels spiritual deception")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/angels.html)
 
 > Das Ouija genoss enorme Belibtheit während und nach dem ersten Weltkrieg, als viele Leute verzweifelt **mit den Geliebten die im Krieg getötet wurden zu kommunizieren versuchten und Spiritismus war in einer Wiederbelebung/Erweckung**. In 1966 verkaufte Fuld sein Patent an Parker Brothers Spiele Gesellschaft aus Beverly, Massachusetts. Interest am Ouija picked up again in den 1960ern und 1970ern, zusammen mit einem erneuerten Interess am [Okkulten](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html)** und den Übernatürlichen. Parker Brothers betont, dass Ouija ein Spiel für **Unterhaltungszwecke** ist.(2)
 
@@ -136,7 +136,7 @@ _Jeder_ heisst _Jeder_, **sogar eine Person die zuvor gerettet wurde.**
 
 8\. Guiley, _The Encyclopedia of Ghosts and Spirits_, pp. 298, 299.
 
-![Dangers Of Ouija Board](../../files/pictures/a-colorb.gif)
+![Dangers Of Ouija Board](../files/pictures/a-colorb.gif)
 
 **ANDERE THEMEN:**
 

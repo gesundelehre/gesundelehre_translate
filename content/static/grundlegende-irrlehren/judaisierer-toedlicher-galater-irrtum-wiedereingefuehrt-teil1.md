@@ -16,19 +16,19 @@ Quelle: [www.evangelicaloutreach.org/galatianism.htm](http://gesundelehre.tk/for
 
 ### Dan Corner
 
-![galatianism messianic jews yeshua feast days](../../files/pictures/evangelical-outreach-galatianism.jpg)
+![galatianism messianic jews yeshua feast days](../files/pictures/evangelical-outreach-galatianism.jpg)
 
-![Messianic Jews](../../files/pictures/a-colorb.gif)
+![Messianic Jews](../files/pictures/a-colorb.gif)
 
 [![Messianic Jews](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 ## Deadly Galatianism Has Been Resurrected
 
-[![messianic jews yeshua](../../files/pictures/messianic-jews.png "Peter was NOT a messianic jew.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/yeshua.html)Certainly one of the biggest controversies in New Testament Christianity centered around **the necessity of Gentiles being circumcised for _salvation._ Along with that unholy concept went the belief that the _Jewish holy days_ and _Sabbaths_ as well as the _dietary laws_ were to be observed, as in Moses’ day.** This not only became the subject of the Jerusalem church council (Acts 15), but different sections of the New Testament itself were also later written to correct this major problem and false, _deadly_ teaching.
+[![messianic jews yeshua](../files/pictures/messianic-jews_de.png "Peter was NOT a messianic jew.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/yeshua.html)Certainly one of the biggest controversies in New Testament Christianity centered around **the necessity of Gentiles being circumcised for _salvation._ Along with that unholy concept went the belief that the _Jewish holy days_ and _Sabbaths_ as well as the _dietary laws_ were to be observed, as in Moses’ day.** This not only became the subject of the Jerusalem church council (Acts 15), but different sections of the New Testament itself were also later written to correct this major problem and false, _deadly_ teaching.
 
 <big><big>**[How Is Galatianism Connected With Falling From Grace](#messianicjews)**</big></big>
 
-[![yeshua or jesus messianic jews galatianism](../../files/pictures/yeshua-cult.jpg "The Yeshua CULT is ignorant and dangerous.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/yeshua.html)
+[![yeshua or jesus messianic jews galatianism](../files/pictures/yeshua-cult.jpg "The Yeshua CULT is ignorant and dangerous.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/yeshua.html)
 
 In our modern day, these same kinds of _lethal_ teachings that caused such havoc in the early church have once again become popular and Christians are getting deceived and troubled by them all over again.
 
@@ -47,7 +47,7 @@ One of their actual deceptive web sites that stresses the importance of the _Tor
 > Since the Bible was written by Hebrews, **it is critical to understand their ancient culture and to learn about the many unique Hebrew words, expressions, and idioms found in Scripture.**
 
 <!-- /*TODO: Get Image and correct URL here*/ -->
-[![messianic jews dietary laws](../../files/pictures/messianic-jews-no-more-dietary-law.jpg "The dietary laws are over. Messianic Jews are wrong!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/yeshua.html)
+[![messianic jews dietary laws](../files/pictures/messianic-jews-no-more-dietary-law.jpg "The dietary laws are over. Messianic Jews are wrong!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/yeshua.html)
 
 That is their distinctive which they present to set themselves apart and above others. They teach such Hebrew information is _critical._ If that is so, one must wonder _why_ weren’t the new Gentile Christians taught such by the Lord’s disciples after they came to salvation in the New Testament?
 
@@ -56,7 +56,7 @@ The _Messianic Jews, Hebraic Root, Sacred Name, Yeshua_ people also seem to unde
 > **I had a discussion with a Messianic Jew that claimed that Jesus’s name was/is a derivative of Zeus.** They didn’t give their source of where they got that information though. They did say you could ask anyone that knew Greek. I know Greek, and Jesus doesn’t=Zeus. No matter how they construe it.
 
 <!-- /*TODO: Get Image and correct URL here*/ -->
-[![messianic jews hebraic roots](../../files/pictures/messianic-jewish-holidays.jpg "The circumcision group was Paul's enemy!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)
+[![messianic jews hebraic roots](../files/pictures/messianic-jewish-holidays.jpg "The circumcision group was Paul's enemy!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)
 
 [Please know the Greek New Testament name for the Messiah, when transliterated into English is _**Jesus**_ and, therefore, is not _pagan_. Also, some of those Yeshua, Sacred Name people fallaciously claim Jesus means _son of Zeus._]
 
@@ -69,7 +69,7 @@ Here is another email we received regarding this Jewish emphasis and a person ge
 These groups like to stress the fact that Jesus’ disciples observed Sabbath rules and regulations such as stated in Luke 23:56, but **will never declare the rest of the truth that Christianity was in a period of transition and change, which slowly started to reveal itself more and more especially from Acts 10 with _Jewish_ Peter receiving a three-time message from heaven of correction about his fallacious view of the _Gentiles_:**
 
 <!-- /*TODO: Get Image and correct URL here*/ -->
-[![messianic jews hebraic roots](../../files/pictures/messianic-jews-jewish-holidays.jpg "Jewish holidays are NOT to be kept for salvation!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/galatianism2.htm)
+[![messianic jews hebraic roots](../files/pictures/messianic-jews-jewish-holidays.jpg "Jewish holidays are NOT to be kept for salvation!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/galatianism2.htm)
 
 > He [Peter] became hungry and wanted something to eat, and while the meal was being prepared, he fell into a trance. He saw heaven opened and something like a large sheet being let down to earth by its four corners. It contained all kinds of four-footed animals, as well as reptiles of the earth and birds of the air. Then a voice told him, "Get up, Peter. Kill and eat." "Surely not, Lord!" Peter replied. "I have never eaten anything impure or unclean." The voice spoke to him a second time, "Do not call anything impure that God has made clean." This happened three times, and immediately the sheet was taken back to heaven (Acts 10:10-16).
 
@@ -82,7 +82,7 @@ Peter accurately understood his vision to mean the following:
 > The apostles and the brothers throughout Judea heard that the Gentiles also had received the word of God. So when Peter went up to Jerusalem, **<u>the circumcised believers criticized him</u> and said, "You went into the house of <u>uncircumcised men</u> and ate with them."** Peter began and explained everything to them precisely as it had happened: "I was in the city of Joppa praying, and in a trance I saw a vision. I saw something like a large sheet being let down from heaven by its four corners, and it came down to where I was. I looked into it and saw four-footed animals of the earth, wild beasts, reptiles, and birds of the air. Then I heard a voice telling me, ‘Get up, Peter. Kill and eat.’ I replied, ‘Surely not, Lord! Nothing impure or unclean has ever entered my mouth.’ The voice spoke from heaven a second time, ‘Do not call anything impure that God has made clean.’ This happened three times, and then it was all pulled up to heaven again. Right then three men who had been sent to me from Caesarea stopped at the house where I was staying. The Spirit told me to have no hesitation about going with them. These six brothers also went with me, and we entered the man’s house. He told us how he had seen an angel appear in his house and say, ‘Send to Joppa for Simon who is called Peter. He will bring you a message through which you and all your household will be saved.’ As I began to speak, the Holy Spirit came on them as he had come on us at the beginning. Then I remembered what the Lord had said: ‘John baptized with water, but you will be baptized with the Holy Spirit.’ So if God gave them the same gift as he gave us, who believed in the Lord Jesus Christ, who was I to think that I could oppose God?" **When they heard this, they had no further objections and praised God, saying, "So then, God has granted even the Gentiles [repentance](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html) unto life"** (Acts 11:1-18).
 
 <!-- /*TODO: Get Image and correct URL here*/ -->
-[![messianic jews hebraic roots](../../files/pictures/justified-by-law-fallen-from-grace.jpg "The Hebraic Roots people are NOT like Paul.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sabbath6facts.htm)
+[![messianic jews hebraic roots](../files/pictures/justified-by-law-fallen-from-grace.jpg "The Hebraic Roots people are NOT like Paul.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sabbath6facts.htm)
 
 It took Peter’s explanation and experience to bring those Hebrew people around to the truth that **God has allowed the uncircumcised Gentiles to _find salvation through repentance and faith in Christ Jesus._**
 
@@ -192,7 +192,7 @@ The religious Jews by natural birth had the **[devil](http://gesundelehre.tk/for
 
 At the very beginning of the New Testament **the false concept that the sin-embracing Jews were _special_ in God’s eyes, because they were descendants of Abraham, was fiercely opposed.... (To Read MUCH More Click [Messianic Jews Are Wrong](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/galatianism2.htm).)**
 
-![Messianic Jews](../../files/pictures/a-colorb.gif)
+![Messianic Jews](../files/pictures/a-colorb.gif)
 
 **OTHER TOPICS:**
 

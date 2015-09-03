@@ -18,18 +18,18 @@ Quelle: [www.evangelicaloutreach.org/futuresins.htm](http://gesundelehre.tk/forw
 
 <big>**Zukünftige Sünden Vergeben | Verlust von Belohnung**</big>
 
-![future sins](../../files/pictures/evangelical-future-sins.jpg)
+![future sins](../files/pictures/evangelical-future-sins.jpg)
 
 [![Future Sins](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-![Future Sins](../../files/pictures/a-colorb.gif)
+![Future Sins](../files/pictures/a-colorb.gif)
 
 
 ## They Are Teaching The Christian's _Future Sins Are Already Forgiven!_
 
-<big><big><big>**[<font color="blue">PROOF That _Past Sins_ Are Forgiven - NOT _Future Sins_](#future%20sins)**</big></big></big> 
+<big><big><big>**[<font color="blue">PROOF That _Past Sins_ Are Forgiven - NOT _Future Sins_</font>](#future%20sins)**</big></big></big> 
 
-[![future sins](../../files/pictures/future-sins-forgiven.jpg "future sins")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/etlicense.html)
+[![future sins](../files/pictures/future-sins-forgiven.jpg "future sins")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/etlicense.html)
 
 **The security-in-sin teachers have gone so far as to say that a _Christian's future sins are already forgiven,_ even before they are committed. Perhaps they teach this way in an effort to safeguard their doctrine of [eternal security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html) while they continue to tickle ears.** I have heard at least one state that _if_ it was possible for a Christian to lose his salvation, it could only occur through **[sin](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)**. Hence, by removing (in their minds) the only danger to eternal security, they have erected an imagined indestructible shield for its protection. (Unfortunately, like many other Scriptural issues, the **[eternal security teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security-teachers.html)** are oblivious to the two other ways a Christian can lose his salvation besides through sin: [1] Disowning Jesus through persecution and [2] Accepting or preaching a wrong **[plan of salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**. See chapter 12 in our 801 page book, _[**The Believer's Conditional Security: Eternal Security Refuted**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html)_ for a detailed explanation.) Here are two specific examples of what we are dangerously being taught from eternal security teachers **[Charles Stanley](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/charles-stanley.html), [Joseph Prince](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/joseph-prince-destined-to-reign.html)** and **David Jeremiah** respectively:
 
@@ -41,7 +41,7 @@ Quelle: [www.evangelicaloutreach.org/futuresins.htm](http://gesundelehre.tk/forw
 
 If you are a Christian, try to put yourself in their shoes thinking that your future sins are already forgiven before you commit them.
 
-[![backslider backsliding backslidden](../../files/pictures/backslider-future-sins-eternal-security-joseph-prince-charles-stanley.jpg "The backslider is like a pig in the mud")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)
+[![backslider backsliding backslidden](../files/pictures/backslider-future-sins-eternal-security-joseph-prince-charles-stanley.jpg "The backslider is like a pig in the mud")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)
 
 If you accepted that premise, as taught by the so-called **[_pastor_ Joseph Prince](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/joseph-prince-destined-to-reign.html)**, etc., then **your spiritual guard is not only down it is _gone._ You won't ever need to guard against personal sin and its defiling abilities since you are _already forgiven._** This would mean you will always remain spiritually pure, just as you were the day you were saved, **even if you would turn to sexual immorality, [drunkenness](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/drunk.html), theft, idolatry, lying, murder, etc.** You would never have to confess those sins to God that you committed after conversion, repent of them, **[forgive others](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/forgive.html)** who sinned against you, etc. to be purified, forgiven and cleansed, since you were never contaminated by any sin after conversion. In contrast, the **_spiritual danger_** of failing to do these is clear to anyone who has read through the New Testament with spiritual ears to hear and eyes to see, yet is seemingly hidden from the security-in-sin teachers themselves. Let me cite some of the reasons why Christians reject the above deplorable teaching as taught by **[once saved always saved Charles Stanley](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)**, David Jeremiah and many others.
 
@@ -143,7 +143,7 @@ Clearly, Heb. 10:26,27 is referring to people who had been converted then decide
 
 Dear reader, don't let yourself, family or friends be deceived by the eternal security teachers Scriptural distortions. Contend for the faith against their deadly teachings. Souls hang in the balance. Don't be deceived by large mega congregations, like **[Joseph Prince church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/joseph-prince-destined-to-reign.html)**! Avoid **[Joseph Prince podcast](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/joseph-prince-destined-to-reign.html)** too for your own good! **Remember: your _future sins are NOT automatically forgiven_**.
 
-![Future Sins](../../files/pictures/a-colorb.gif)
+![Future Sins](../files/pictures/a-colorb.gif)
 
 **OTHER TOPICS:**
 

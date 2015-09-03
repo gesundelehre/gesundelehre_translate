@@ -14,11 +14,11 @@ Source: [www.evangelicaloutreach.org/eslicense.htm](http://gesundelehre.tk/forwa
 
 ### Dan Corner
 
-![eternal security license for immorality](../../files/pictures/evangelical-license-for-immorality.jpg)
+![eternal security license for immorality](../files/pictures/evangelical-license-for-immorality.jpg)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-![Is Eternal Security a License for Immorality](../../files/pictures/a-colorb.gif)
+![Is Eternal Security a License for Immorality](../files/pictures/a-colorb.gif)
 
 
 ## Warum Verleugnen Die Meisten Ewige Sicherheist-Lehrer Diese Wahrheit
@@ -30,7 +30,7 @@ As it has often been stated in the past, **eternal security proponents will deny
 
 ## Christliche Response Bezüglich Ewiger Sicherheit
 
-[![lizenz für sittenlosigkeit](../../files/pictures/eternal-security-license-for-immorality.jpg "Eternal security is dripping with a license for immorality AND crushes the fear of God.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/etlicense.html)
+[![lizenz für sittenlosigkeit](../files/pictures/eternal-security-license-for-immorality.jpg "Eternal security is dripping with a license for immorality AND crushes the fear of God.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/etlicense.html)
 
 **[Biblische Antwort](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible-answers.html)**: Die Lehre von Ewiger Sicherheit muss nicht Wort-Für-Wort lauten/verkündigen: _sündige so viel du willst, weil du immer gerettet bist_. **Alles was sie tun muss ist zu verkünden, dass Sünde niemals jemandes _Errettung_ gefährden kann — was genau die Kernbotschaft dieser bösen Lehre ist.**
 
@@ -70,7 +70,7 @@ We don’t present their doctrine in that manner. We have declared numerous time
 
 **Eternal security is the ruination of the [evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelicals.htm) Bible-believing churches and denominations of our day. Such proponents don't understand [eternal salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/getsaved.html) at all! The sooner it is lethally crushed, the better for everyone. May God raise up a million bold and informed Christians to fight this spiritual gangrene from every angle.** We have much ministry material that can help with this noble cause of destroying the license for immorality of **[once a son always a son](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)**. GOD BLESS YOU.
 
-![Is Eternal Security a License for Immorality](../../files/pictures/a-colorb.gif)
+![Is Eternal Security a License for Immorality](../files/pictures/a-colorb.gif)
 
 **[Eternal Security: Dripping With A License For Immorality](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/etlicense.html)**
 

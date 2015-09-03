@@ -15,21 +15,21 @@ Quelle: [www.evangelicaloutreach.org/new-creation.htm](http://gesundelehre.tk/fo
 
 ### Dan Corner
 
-![new creation in christ](../../files/pictures/evangelical-new-creation.jpg)
+![new creation in christ](../files/pictures/evangelical-new-creation.jpg)
 
 <iframe width="480" height="360" src="http://www.youtube.com/embed/WymYkGLlfm8?rel=0" frameborder="0" allowfulscreen=""></iframe>
 
 <big><big>**[The New Creation](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/audio/new-creation.mp3)** (audio)</big></big>
 
-<big><big>**[Radical Change into a New Creation](../../files/pictures/new-creation.pdf) (pdf) tract**</big></big>
+<big><big>**[Radical Change into a New Creation](../files/pictures/new-creation.pdf) (pdf) tract**</big></big>
 
-![new creation in Christ](../../files/pictures/a-colorb.gif)
+![new creation in Christ](../files/pictures/a-colorb.gif)
 
 
 
 ## The _New Creation In Christ_ Born Again Reality
 
- [![True Christians are set free from sin](../../files/pictures/true-christian.jpg "True Christians are set free from sin")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/christian.html)
+ [![True Christians are set free from sin](../files/pictures/true-christian_de.jpg "True Christians are set free from sin")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/christian.html)
  
 **The _new creation in Christ_ radical change is a reality! As strange as it might sound to some, when a person becomes a Bible-defined Christian, that is, when he sincerely turns away from his idols and commits his life to [obey](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/obey.html) and serve the Lord Jesus, he becomes a child of God and a _new creation in Christ:_**
 
@@ -43,7 +43,7 @@ That important passage explains how a person is **miraculously and _instantly_ [
 
 > Don’t you know that you yourselves are God’s temple and that God’s Spirit lives in you? **If anyone destroys God’s temple, God will destroy him**; for God’s temple is sacred, and you are that temple. (1 Cor 3:16,17)
 
-[![new creation in christ](../../files/pictures/guy-set-free.jpg "-"new")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/slave.htm)
+[![new creation in christ](../files/pictures/guy-set-free.jpg "-"new")](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/slave.htm)
 
 <big><big>**[Everyone Should Know About The Biblical Evidence Of The _New Creation In Christ_](#new%20creation%20in%20christ)**</big></big>
 
@@ -60,7 +60,7 @@ A new creation in Christ has passed from _slavery to sin_ to _slavery to righteo
 
 > For my **yoke is easy** and my **burden is light**. (Mat 11:30)
 
-![walk your talk](../../files/pictures/walktlk1.jpg)
+![walk your talk](../files/pictures/walktlk1.jpg)
 
 > This is love for God: to obey his commands. And **his commands are not burdensome** (1 John 5:3)
 
@@ -145,7 +145,7 @@ Furthermore, the _hatred_ we had for others when spiritually dead is replaced wi
 
 You were asked about the [**evidence of saving grace**](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/assure2.html) and the new creation! Without being righteously changed by God’s Spirit, you remain lost and on the road to [**hell**](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/hell.html), even though you may be _very religious._
 
-![New Convert](../../files/pictures/different-world.jpg)
+![New Convert](../files/pictures/different-world.jpg)
 
 **NOTE: When a person becomes a _new creation in Christ,_ he will know it as will others.** The change is _drastic,_ for he is a different person in his old physical body of flesh and blood. Jesus used the term _born again,_ which refers to all of this too. **The old life of doing your own will to the new life of doing God’s will has taken place. It’s a _salvation issue:_**
 
@@ -169,7 +169,7 @@ Many spiritual dangers will come to God’s sheep _after_ the drastic new creati
 
 ● etc.
 
-![Stands firm to the end](../../files/pictures/stand.jpg)
+![Stands firm to the end](../files/pictures/stand.jpg)
 
 To actually enter God’s kingdom after death, we must endure **to the end:**
 
@@ -209,7 +209,7 @@ Again, though common among the church goers, that is **not** what is being said 
 
 > Are you **now**  following Jesus as a faithful servant doing His will in spite of the persecutions, sufferings, loneliness, family divisions and other painful tests which have come and may be anticipated in the future?
 
-![walk your talk](../../files/pictures/walktalk.jpg)
+![walk your talk](../files/pictures/walktalk.jpg)
 
 To follow the crowd and sow to please the sinful nature (flesh) **will lead to the fiery furnace.** To follow Jesus is to have life, but with it goes temporal sufferings and pain during this short unpredictable life. Because of those problems, some have given up and gone back to sin. To enter God’s kingdom **we must not give up:**
 
@@ -217,7 +217,7 @@ To follow the crowd and sow to please the sinful nature (flesh) **will lead to t
 
 Many who profess salvation have **never** been radically changed by getting _born again_. They are only **_false converts_** with **[demon faith](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/FaithOfDemons.htm). Others have been changed, but afterwards _died spiritually_ (sometimes quickly) and now need to repent again for _salvation’s_ sake (James 5:19,20; etc.). ONLY those who endure to the end will escape damnation and enter God’s Paradise kingdom, according to the Bible. Do not be deceived about these [eternal salvation](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/getsaved.html) truths.** The **_new creation in Christ_ is vital for salvation, but so is _enduring to the end_ (Mt. 10:22; Heb. 3:14)!**
 
-![new creation in christ](../../files/pictures/a-colorb.gif)
+![new creation in christ](../files/pictures/a-colorb.gif)
 
 **Other Subjects:**
 

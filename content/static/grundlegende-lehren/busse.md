@@ -12,11 +12,11 @@ Quelle: [www.evangelicaloutreach.org/repentance.html](http://gesundelehre.tk/for
 
 # Biblische Busse
 ### Dan Corner
-![what is repentance](../../files/pictures/evangelical-what-is-repentance.jpg)
+![what is repentance](../files/pictures/evangelical-what-is-repentance.jpg)
 
 **[The Dramatized Gospel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/gospel.html)**
 
-![was ist busse](../../files/pictures/a-colorb.gif)
+![was ist busse](../files/pictures/a-colorb.gif)
 
 [![Bookmark and Share](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0) 
 <script type="text/javascript" src="http://s7.addthis.com/js/250/addthis_widget.js#username=xa-4ce723c86d857fe0"></script>
@@ -27,7 +27,7 @@ Quelle: [www.evangelicaloutreach.org/repentance.html](http://gesundelehre.tk/for
 
 **_Was ist Busse?_** Es gibt heutzutage verschiedene Ideen was _Busse_ ist und welche Rolle sie in der [**Errettung**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html) spielt. Um die Wahrheit über dieses wichtige Thema herauszufinden, müssen wir unsere doctrines von der [**letztendlichen Autorität**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) ziehen -- der Bibel (2 Tim. 3,16-17). Ist _Busse_ lediglich _changing your mind_ oder ist viel mehr involviert? Könnte es _Abkehr von Bosheit sein?_
 
-[![repentance repent repenting](../../files/pictures/repentance-repent-repenting.jpg "REPENTANCE is a must for salvation.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/approaching-death.html)
+[![repentance repent repenting](../files/pictures/repentance-repent-repenting.jpg "REPENTANCE is a must for salvation.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/approaching-death.html)
 
 Let's take a look at the clearest and most accurate Biblical _definition of repentance_. Jesu Lehre über Jona und die Niniveiten quickly yields die wahre Antwort to the _repentance definition_ enigma: 
 > **Leute von Ninive** werden austreten im Gerichte wider dieses Geschlecht und werden es verdammen; denn **sie THATEN BUSSE** auf die Predigt Jonas hin. Und siehe, hier ist mehr denn Jonas! (Mt 12,41; Schlachter 1905)
@@ -38,7 +38,7 @@ Let's take a look at the clearest and most accurate Biblical _definition of repe
 
 Um genau herauszufinden, was Jesus meinte, als er sagte, "**sie taten Busse**", lass uns den Bericht prüfen, auf welchen er sich bezog:
 
-[![busse in der bibel](../../files/pictures/repentance.jpg "evangelium von jesus christus")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html) 
+[![busse in der bibel](../files/pictures/repentance_de.jpg "evangelium von jesus christus")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html) 
 
 > Und die Leute von Ninive glaubten Gott und riefen ein Fasten aus und legten Säcke an, vom Größten bis zum Kleinsten. Und das Wort gelangte bis zum König von Ninive; der stand von seinem Throne auf, legte seinen Mantel von sich, hüllte sich in einen Sack und setzte sich in die Asche. Und er ließ ausrufen und sagen zu Ninive: «Auf Befehl des Königs und seiner Großen: Menschen und Vieh, Rinder und Schafe sollen nichts genießen, sie sollen weder weiden noch Wasser trinken; sondern Menschen und Vieh sollen sich in Säcke hüllen und **mit Macht [=heftig] zu Gott rufen und sollen sich abwenden, ein jeder von seinem bösen Wege und von dem Unrecht, das an seinen Händen klebt!** Wer weiß, Gott könnte andern Sinnes werden, es sich gereuen lassen und abstehen von seinem grimmigen Zorn, so daß wir nicht untergehen!» **Da nun Gott ihre Taten sah, daß sie SICH ABWANDTEN VON IHREN BÖSEN WEGEN,** reute ihn das Übel, das er ihnen angedroht hatte, und er tat es nicht. (Jona 3,5-10; Schlachterbibel 1951)
 
@@ -50,7 +50,7 @@ From the aforementioned, we can now conclude repentance in the bible occurred wh
 
 ## Busse In Der Bibel
 
-[![gebet der busse](../../files/pictures/prodigal.JPG)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.html)
+[![gebet der busse](../files/pictures/prodigal.JPG)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.html)
 
 Ein weiteres gutes Beispiel von _Busse von Sünde_ ist Jesu Lehre vom [**verlorenen Sohn**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.html): 
 > Er **kam aber zu sich selbst** und sprach: Wie viele Tagelöhner meines Vaters haben Brot im Überfluß, ich aber verderbe hier vor Hunger! Ich will mich aufmachen und zu meinem Vater gehen und zu ihm sagen: Vater, **ich habe gesündigt gegen den Himmel und vor dir, ich bin nicht mehr wert, dein Sohn zu heißen**; mache mich zu einem deiner Tagelöhner! Und er machte sich auf und ging zu seinem Vater. Als er aber noch fern war, sah ihn sein Vater und hatte Erbarmen, lief, fiel ihm um den Hals und küßte ihn. Der Sohn aber sprach zu ihm: Vater, ich habe gesündigt gegen den Himmel und vor dir, ich bin nicht mehr wert, dein Sohn zu heißen! (Lk 15,17-21; Schlachterbibel 1951)
@@ -63,7 +63,7 @@ Dies ist offensichtlich _geistliches_ Leben und Tod, da der verlorene Sohn **nic
 
 ## Busse von Sünde Für Errettung
 
-[![was ist die definition von busse](../../files/pictures/RepentOrPerish.gif "was ist busse")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/holiness-preaching.html)
+[![was ist die definition von busse](../files/pictures/RepentOrPerish.gif "was ist busse")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/holiness-preaching.html)
 
 Petrus lehrte, dass Busse das Gegenmittel/Heilmittel sei für verlorengehen/zugrunde gehen/umkommen:
 > Der Herr säumt nicht mit der Verheißung, wie etliche es für ein Säumen halten, sondern er ist langmütig gegen uns, **da er nicht will, daß jemand verloren gehe, sondern daß jedermann Raum zur Buße habe.** (2.Pet 3,9; Schlachterbibel 1951)
@@ -76,7 +76,7 @@ Laut 2. Petrus 3,9 tut jemand entweder Busse oder er geht verloren/geht zugrunde
 
 David's repentance after his adultery and murder included acknowledging his sin (2 Sam. 12:13). See his heart-felt, sincere prayer in Psa. 51. 
 
-[![busse in der bibel](../../files/pictures/repentance-in-the-bible.jpg "Busse in der Bibel ist mehr als eine Änderung der Gesinnung!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html)
+[![busse in der bibel](../files/pictures/repentance-in-the-bible.jpg "Busse in der Bibel ist mehr als eine Änderung der Gesinnung!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html)
 
 Andererseits war Saulus mehr beunruhigt darüber, dass er vor den Leuten geehrt war, als wahre Demut und Busse über seinen Ungehorsam zur Schau zu stellen: 
 > Er aber sprach: Ich habe gesündiget; **aber ehre mich doch jetzt vor den Ältesten meines Volks und vor Israel**; und kehre mit mir um, daß ich den HERRN, deinen Gott, anbete. (1.Sam 15,30; Luther 1545)
@@ -89,7 +89,7 @@ Es ist sehr weise, dem Ratschlag von Jakobus zu folgen, der wahre Busse predigte
 
 ## Verse bezüglich Busse und Barmherzigkeit?
 
-[![definition von busse](../../files/pictures/repentance-definition.jpg "Die Definition von Busse geoffenbart, indem man Schrift und Schrift miteinander vergleicht.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/americarepent.htm)
+[![definition von busse](../files/pictures/repentance-definition.jpg "Die Definition von Busse geoffenbart, indem man Schrift und Schrift miteinander vergleicht.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/americarepent.htm)
 
 Um Vergebung und [**Barmherzigkeit**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mercy.htm) vom Herrn zu bekommen, riet Jesaja,
 > Der Gottlose **verlasse seinen Weg und der Übeltäter seine Gedanken und kehre um zum HERRN**, so wird er sich seiner erbarmen, und zu unserm Gott; denn er vergibt viel. (Jesaja 55,7; Schlachterbibel 1951)
@@ -296,57 +296,57 @@ But in the case of the dying, repentant thief on the cross next to Jesus, he cou
 Though not an exhaustive listing, we have seen the following truths showing the _meaning of repent_, as taught in the Bible: 
 
 <span class="inline-images">
-![Biblical repentance](../../files/pictures/redball.gif) call urgently on God, give up your evil ways and violence (Jonah 3:5-10)  
-![what is repentance](../../files/pictures/redball.gif) acknowledge that you have sinned against heaven and against God and are no longer worthy to be called a son (Lk. 15:17-21; 2 Sam. 12:13)  
-![repentance definition](../../files/pictures/redball.gif) bitter weeping over sin (Lk. 22:61,62)  
-![repentance movie](../../files/pictures/redball.gif) come near to God; wash your hands; purify your hearts; grieve, mourn and wail; change your laughter to mourning and your joy to gloom; humble yourself before God (Jam. 4:8-10)  
-![repentance prayer](../../files/pictures/redball.gif) forsake your wicked way and evil thoughts; turn to the LORD (Isa. 55:7)  
-![repentance in the bible](../../files/pictures/redball.gif) Renounce your sins by doing what is right, and your wickedness by being kind to the oppressed (Dan. 4:27)  
-![repentance quotes](../../files/pictures/redball.gif) pray to the LORD and confess you have sinned and done wrong, been wicked and have rebelled, turned away from God's commands and laws. Seek the favor of the LORD by turning from sins and giving attention to God's truth (Dan. 9:4,5)  
-![repentance and holiness](../../files/pictures/redball.gif) reform your ways and your actions and obey the LORD (Jer. 26:13)  
-![repentance and forgiveness](../../files/pictures/redball.gif) confess God's name and turn from sin (1 Ki. 8:35)  
-![repentance from dead works](../../files/pictures/redball.gif) have a change of heart; plead with God; turn back to God with all your heart and soul (2 Chron. 6:37,38)  
-![repentance scriptures](../../files/pictures/redball.gif) look for the way out that God has provided so that you can stand up under temptation (1 Cor. 10:13)  
-![the process of repentance](../../files/pictures/redball.gif) sow to please the Spirit to reap [**eternal life**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternallife.html); don't become weary in doing good; don't give up; do good to all people, especially to believers (Gal.6:8-10)  
-![scriptures on repentance](../../files/pictures/redball.gif) grieve and lament over detestable things (Ezek. 9:4)  
-![christian repentance](../../files/pictures/redball.gif) Repent! Turn from your idols and renounce all your detestable practices! (Ezek. 14:6)  
-![repentance definition bible](../../files/pictures/redball.gif) turn away from all the wicked sins committed and keep all God's decrees. Do what is just and right. Consider all the offenses committed and turn away from them. Repent! Turn away from all your offenses. Rid yourselves of all the offenses you have committed, and get a new heart and a new spirit (Ezek. 18:21-23,27,28,30,31)  
-![repentance prayer in the bible](../../files/pictures/redball.gif) confess your sins (1 Jn. 1:9)  
-![repentance and holiness](../../files/pictures/redball.gif) don't conceal sins, but confess and renounce them to find mercy (Prov. 28:13)  
-![repentance definition bible](../../files/pictures/redball.gif) acknowledge sin to God and don't cover up iniquity; confess transgressions to the LORD (Psa. 32:5)  
-![repentance prayers](../../files/pictures/redball.gif) wash and make yourself clean. Take your evil deeds out of God's sight! Stop doing wrong, learn to do right! Seek justice, encourage the oppressed. Defend the cause of the fatherless, plead the case of the widow (Isa. 1:16-18)  
-![what is repentance](../../files/pictures/redball.gif) repent from acts that lead to death (Heb. 6:1)  
-![Biblical repentance](../../files/pictures/redball.gif) produce [good] fruit in keeping with repentance and to avoid being cut down and thrown into the fire (Mt. 4:12-17; Mt. 25:34-36; Lk. 3:8-14)  
-![prove your repentance](../../files/pictures/redball.gif) make every effort to enter through the narrow door (Lk. 13:24)  
-![repentance unto salvation](../../files/pictures/redball.gif) repent and turn to God and prove your repentance by your [good] deeds (Acts 26:20)  
-![repent or perish](../../files/pictures/redball.gif) persist in doing good; seek glory, honor and immortality, so he will give you eternal life (Rom. 2:7)  
-![repent](../../files/pictures/redball.gif) don't live according to the sinful nature, but by the Spirit put to death the misdeeds of the body so that you will live (Rom. 8:13).  
-![repenting](../../files/pictures/redball.gif) don't share in the sins of others but keep yourself pure (1 Tim. 5:22)  
-![repented](../../files/pictures/redball.gif) keep yourself from idols (1 Jn. 5:21)  
-![repentance again](../../files/pictures/redball.gif) keep yourself from being polluted by the world (Jam. 1:27)  
-![twice dead repentance](../../files/pictures/redball.gif) on your beds, search your hearts and be silent (Psa. 4:4)  
-![repentance in the bible](../../files/pictures/redball.gif) consider your ways and turn your steps to God's statutes (Psa. 119:59)  
-![repentance full movie](../../files/pictures/redball.gif) ask God to search you and know your heart; test you and know your anxious thoughts; to see if there is any offensive way in you and lead you in the way everlasting (Psa 139:23,24)  
-![repentance trailer](../../files/pictures/redball.gif) hold on to faith and a good conscience (1 Tim. 1:19)  
-![repentance scripture](../../files/pictures/redball.gif) rid yourselves of all malice and all deceit, hypocrisy, envy, and slander of every kind; crave pure spiritual milk (1 Pet. 2:1,2)  
-![repentance john the baptist](../../files/pictures/redball.gif) keep your tongue from evil and your lips from deceitful speech; turn from evil and do good; seek peace and pursue it (1 Pet. 3:10,11)  
-![repentance paul](../../files/pictures/redball.gif) make every effort to be found spotless, blameless and at peace with him (2 Pet. 3:14)  
-![repent sinner](../../files/pictures/redball.gif) put to death whatever belongs to your earthly nature; rid yourself of all anger, rage, malice, slander, and filthy language from your lips; don't lie (Col. 3:5-10)  
-![repent for salvation](../../files/pictures/redball.gif) rid yourself of all foreign gods (1 Sam. 7:3) and offenses committed; get a new heart and a new spirit (Ezek. 18:31)  
-![repentance and forgiveness](../../files/pictures/redball.gif) be ashamed of your past sins (Rom. 6:20-22)  
-![repentance and holiness](../../files/pictures/redball.gif) have godly sorrow and an earnest desire to clear yourself (2 Cor. 7:10,11)  
-![repentance definition](../../files/pictures/redball.gif) have a broken spirit and a broken and contrite heart (Psa. 51:17)  
-![repentance quotes](../../files/pictures/redball.gif) fear God and hate your sin (Psa. 36:1,2)  
-![repentance prayer](../../files/pictures/redball.gif) avoid all sins listed in 1 Cor. 6:9,10; Eph. 5:5-7; Gal. 5:19-21 and Rev. 21:8  
-![repentance in old testament](../../files/pictures/redball.gif) make restitution for things you stole (Exo. 22:3-17; Lk. 19:8-10)
+![Biblical repentance](../files/pictures/redball.gif) call urgently on God, give up your evil ways and violence (Jonah 3:5-10)  
+![what is repentance](../files/pictures/redball.gif) acknowledge that you have sinned against heaven and against God and are no longer worthy to be called a son (Lk. 15:17-21; 2 Sam. 12:13)  
+![repentance definition](../files/pictures/redball.gif) bitter weeping over sin (Lk. 22:61,62)  
+![repentance movie](../files/pictures/redball.gif) come near to God; wash your hands; purify your hearts; grieve, mourn and wail; change your laughter to mourning and your joy to gloom; humble yourself before God (Jam. 4:8-10)  
+![repentance prayer](../files/pictures/redball.gif) forsake your wicked way and evil thoughts; turn to the LORD (Isa. 55:7)  
+![repentance in the bible](../files/pictures/redball.gif) Renounce your sins by doing what is right, and your wickedness by being kind to the oppressed (Dan. 4:27)  
+![repentance quotes](../files/pictures/redball.gif) pray to the LORD and confess you have sinned and done wrong, been wicked and have rebelled, turned away from God's commands and laws. Seek the favor of the LORD by turning from sins and giving attention to God's truth (Dan. 9:4,5)  
+![repentance and holiness](../files/pictures/redball.gif) reform your ways and your actions and obey the LORD (Jer. 26:13)  
+![repentance and forgiveness](../files/pictures/redball.gif) confess God's name and turn from sin (1 Ki. 8:35)  
+![repentance from dead works](../files/pictures/redball.gif) have a change of heart; plead with God; turn back to God with all your heart and soul (2 Chron. 6:37,38)  
+![repentance scriptures](../files/pictures/redball.gif) look for the way out that God has provided so that you can stand up under temptation (1 Cor. 10:13)  
+![the process of repentance](../files/pictures/redball.gif) sow to please the Spirit to reap [**eternal life**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternallife.html); don't become weary in doing good; don't give up; do good to all people, especially to believers (Gal.6:8-10)  
+![scriptures on repentance](../files/pictures/redball.gif) grieve and lament over detestable things (Ezek. 9:4)  
+![christian repentance](../files/pictures/redball.gif) Repent! Turn from your idols and renounce all your detestable practices! (Ezek. 14:6)  
+![repentance definition bible](../files/pictures/redball.gif) turn away from all the wicked sins committed and keep all God's decrees. Do what is just and right. Consider all the offenses committed and turn away from them. Repent! Turn away from all your offenses. Rid yourselves of all the offenses you have committed, and get a new heart and a new spirit (Ezek. 18:21-23,27,28,30,31)  
+![repentance prayer in the bible](../files/pictures/redball.gif) confess your sins (1 Jn. 1:9)  
+![repentance and holiness](../files/pictures/redball.gif) don't conceal sins, but confess and renounce them to find mercy (Prov. 28:13)  
+![repentance definition bible](../files/pictures/redball.gif) acknowledge sin to God and don't cover up iniquity; confess transgressions to the LORD (Psa. 32:5)  
+![repentance prayers](../files/pictures/redball.gif) wash and make yourself clean. Take your evil deeds out of God's sight! Stop doing wrong, learn to do right! Seek justice, encourage the oppressed. Defend the cause of the fatherless, plead the case of the widow (Isa. 1:16-18)  
+![what is repentance](../files/pictures/redball.gif) repent from acts that lead to death (Heb. 6:1)  
+![Biblical repentance](../files/pictures/redball.gif) produce [good] fruit in keeping with repentance and to avoid being cut down and thrown into the fire (Mt. 4:12-17; Mt. 25:34-36; Lk. 3:8-14)  
+![prove your repentance](../files/pictures/redball.gif) make every effort to enter through the narrow door (Lk. 13:24)  
+![repentance unto salvation](../files/pictures/redball.gif) repent and turn to God and prove your repentance by your [good] deeds (Acts 26:20)  
+![repent or perish](../files/pictures/redball.gif) persist in doing good; seek glory, honor and immortality, so he will give you eternal life (Rom. 2:7)  
+![repent](../files/pictures/redball.gif) don't live according to the sinful nature, but by the Spirit put to death the misdeeds of the body so that you will live (Rom. 8:13).  
+![repenting](../files/pictures/redball.gif) don't share in the sins of others but keep yourself pure (1 Tim. 5:22)  
+![repented](../files/pictures/redball.gif) keep yourself from idols (1 Jn. 5:21)  
+![repentance again](../files/pictures/redball.gif) keep yourself from being polluted by the world (Jam. 1:27)  
+![twice dead repentance](../files/pictures/redball.gif) on your beds, search your hearts and be silent (Psa. 4:4)  
+![repentance in the bible](../files/pictures/redball.gif) consider your ways and turn your steps to God's statutes (Psa. 119:59)  
+![repentance full movie](../files/pictures/redball.gif) ask God to search you and know your heart; test you and know your anxious thoughts; to see if there is any offensive way in you and lead you in the way everlasting (Psa 139:23,24)  
+![repentance trailer](../files/pictures/redball.gif) hold on to faith and a good conscience (1 Tim. 1:19)  
+![repentance scripture](../files/pictures/redball.gif) rid yourselves of all malice and all deceit, hypocrisy, envy, and slander of every kind; crave pure spiritual milk (1 Pet. 2:1,2)  
+![repentance john the baptist](../files/pictures/redball.gif) keep your tongue from evil and your lips from deceitful speech; turn from evil and do good; seek peace and pursue it (1 Pet. 3:10,11)  
+![repentance paul](../files/pictures/redball.gif) make every effort to be found spotless, blameless and at peace with him (2 Pet. 3:14)  
+![repent sinner](../files/pictures/redball.gif) put to death whatever belongs to your earthly nature; rid yourself of all anger, rage, malice, slander, and filthy language from your lips; don't lie (Col. 3:5-10)  
+![repent for salvation](../files/pictures/redball.gif) rid yourself of all foreign gods (1 Sam. 7:3) and offenses committed; get a new heart and a new spirit (Ezek. 18:31)  
+![repentance and forgiveness](../files/pictures/redball.gif) be ashamed of your past sins (Rom. 6:20-22)  
+![repentance and holiness](../files/pictures/redball.gif) have godly sorrow and an earnest desire to clear yourself (2 Cor. 7:10,11)  
+![repentance definition](../files/pictures/redball.gif) have a broken spirit and a broken and contrite heart (Psa. 51:17)  
+![repentance quotes](../files/pictures/redball.gif) fear God and hate your sin (Psa. 36:1,2)  
+![repentance prayer](../files/pictures/redball.gif) avoid all sins listed in 1 Cor. 6:9,10; Eph. 5:5-7; Gal. 5:19-21 and Rev. 21:8  
+![repentance in old testament](../files/pictures/redball.gif) make restitution for things you stole (Exo. 22:3-17; Lk. 19:8-10)
 </span>
 
 
 ### What Is Biblical Repentance In Poem Form
 
-[![true repentance](../../files/pictures/repentance.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/luke16.htm)
+[![true repentance](../files/pictures/repentance.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/luke16.htm)
 
-![what is Repentance](../../files/pictures/a-colorb.gif)
+![what is Repentance](../files/pictures/a-colorb.gif)
 
 - **[Skull and Crossbones Awards of False Prophets and False Teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Skull_And_Crossbones.html)** 
 - **[Acid Test Question To Spot A License For Immorality](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/acid_test.html)** 

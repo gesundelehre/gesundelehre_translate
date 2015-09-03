@@ -14,7 +14,7 @@ Quelle: [www.evangelicaloutreach.org/eternaltorment.htm](http://gesundelehre.tk/
 
 ### Dan Corner
 <span class="inline-images">
-![eternal fire](../../files/pictures/firebar.gif "eternal fire")![eternal torment](../../files/pictures/firebar.gif)![eternal torment](../../files/pictures/firebar.gif)![eternal torment](../../files/pictures/firebar.gif)![unquenchable fire](../../files/pictures/firebar.gif)![fires of hell](../../files/pictures/firebar.gif)![hell fire](../../files/pictures/firebar.gif)
+![eternal fire](../files/pictures/firebar.gif "eternal fire")![eternal torment](../files/pictures/firebar.gif)![eternal torment](../files/pictures/firebar.gif)![eternal torment](../files/pictures/firebar.gif)![unquenchable fire](../files/pictures/firebar.gif)![fires of hell](../files/pictures/firebar.gif)![hell fire](../files/pictures/firebar.gif)
 </span>
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
@@ -22,7 +22,7 @@ Quelle: [www.evangelicaloutreach.org/eternaltorment.htm](http://gesundelehre.tk/
 
 ## The Disturbing Bible Truth About ETERNAL Torment and No Annihilation
 
-[![](../../files/pictures/eternal-punishment-eternal-torment.jpg "The bible teaches eternal torment.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/greatest-danger.html)
+[![](../files/pictures/eternal-punishment-eternal-torment_de_original_size_big.jpg "The bible teaches eternal torment.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/greatest-danger.html)
 
 As with any point of doctrine, the issue of **eternal torment** for the wicked dead must be carefully sought out from the Bible, final authority (2 Tim. 3:16, 17). This cannot be stressed too much, for it is only in the Scriptures that we can learn God's truths. This means that we must first go to the written word of God to understand the abstract. For example, if Scripture pointedly declares that **the wicked dead will be in _eternal torment_**, then we must interpret God's mercy, love, grace and justice as allowing for eternal torment. In contrast, the following is an example of how antagonist **[Ellen G. White](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/white.html)**, the founder of Seventh-Day Adventism (SDA), views this doctrine:<a name="back1"></a>
 
@@ -40,7 +40,7 @@ The **[Jehovah's Witnesses](http://gesundelehre.tk/forwarder.php?url=http://www.
 
 > See to it that no one takes you captive through hollow and **deceptive** philosophy, which depends on human tradition and the basic principles of this world rather than on Christ (Col. 2:8, NIV).
 
-[![eternal torment no annihilation](../../files/pictures//eternal-torment-forever.jpg "Eternal torment will be FOREVER, the same as God's reign.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/white.html)E. G. White went on to make other extreme, unscriptural accusations about this doctrine and those who embrace it:<a name="back4"></a>
+[![eternal torment no annihilation](../files/pictures//eternal-torment-forever.jpg "Eternal torment will be FOREVER, the same as God's reign.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/white.html)E. G. White went on to make other extreme, unscriptural accusations about this doctrine and those who embrace it:<a name="back4"></a>
 
 > It is beyond the power of the human mind to estimate **the evil** which has been wrought by **the heresy of eternal torment**.[(4)](#4)
 
@@ -55,7 +55,7 @@ Was all of that really the message of Scripture that God wants mankind to know a
 
 > The **[devil](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devil.html)**, who deceived them, was cast into the lake of fire and brimstone where the beast and the false prophet _are_. And **they will be tormented day and night forever and ever** (NKJV).
 
-[![eternal torment](../../files/pictures/eternal-torment-not-annihilation.jpg "The Jehovah's Witnesses and others want us to reject eternal torment in favor of annihilation for the wicked. That is UNscriptural!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html)The pronoun _they_ in that verse refers back to the devil, the beast (or **[antichrist](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antichrist.html)**) and the false prophet. In other words, the devil **and some humans** will suffer this eternal fate. So, according to Scripture, their eternal destiny will be **_torment day and night forever and ever_**. **That equals _eternal torment_.** From this we can also conclude that the souls of the antichrist and false prophet are eternal, since they won't be annihilated out of existence. This same truth is repeatedly substantiated throughout Scripture. Moreover, the Greek word translated _tormented_ in Rev. 20:10, with its meaning, is:
+[![eternal torment](../files/pictures/eternal-torment-not-annihilation.jpg "The Jehovah's Witnesses and others want us to reject eternal torment in favor of annihilation for the wicked. That is UNscriptural!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html)The pronoun _they_ in that verse refers back to the devil, the beast (or **[antichrist](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antichrist.html)**) and the false prophet. In other words, the devil **and some humans** will suffer this eternal fate. So, according to Scripture, their eternal destiny will be **_torment day and night forever and ever_**. **That equals _eternal torment_.** From this we can also conclude that the souls of the antichrist and false prophet are eternal, since they won't be annihilated out of existence. This same truth is repeatedly substantiated throughout Scripture. Moreover, the Greek word translated _tormented_ in Rev. 20:10, with its meaning, is:
 
 > **basanizo**, bas-an-id'-zo; from G931; to torture:--pain, toil, **torment**, toss, vex.
 
@@ -68,7 +68,7 @@ That verse reveals that the demons already know what their future destiny will b
 
 > Then He will also say to those on the left hand, "Depart from Me, you cursed, into the **everlasting fire** prepared for the devil and his angels" (Mt. 25:41, NKJV).
 
-![eternal torment](../../files/pictures/everlastingfires.gif)
+![eternal torment](../files/pictures/everlastingfires.gif)
 
 Such _everlasting fire_ that the Lord spoke of in Mt. 25:41 was specially prepared for spirit beings to be tormented in forever and ever (Rev. 20:10; Mt. 8:29). According to that verse, Rev. 20:10 and Mt. 25:46 **people will also go into this special fire.**
 
@@ -306,7 +306,7 @@ God's word is clear about the future beyond the grave for all who die in a spiri
 <a name="back23"></a>One final passage needs to be mentioned and that is Mt. 7:13, 14\. It is indirectly related to the eternal torment of the damned for it reveals that **the majority** of people ever born will miss entering the Kingdom of Heaven and go to this nightmare like place. **Dear reader, are you biblically saved at this moment? If not, [<font color="blue">turn from your sins</font>](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html) and place your faith in Jesus for your salvation (Acts 20:21). If you were once saved, but since lost your salvation, repent and come back to the Father like the prodigal (Lk. 15:24, 32). Remember: _We have come to share in Christ if we hold firmly till the end the confidence we had at first_ (Heb. 3:14).** See also Mt. 10:22 and Rev. 2:10, 11\. In the end, one will either spend all eternity in God's Kingdom with its many joys and pleasures (Isa. 35:10; Mt. 25:21, 23; Rom. 2:7; 2 Cor. 12:4; Rev. 21:4; 22:3; etc.) or will continue to experience pain and torment in an eternal, unquenchable and raging fire which was prepared for the devil and his angels without ever being annihilated and with no hope of getting out. The choice is yours, since God doesn't want anyone to perish, but all to come to repentance (2 Pet. 3:9). **Also, _many_ will be _deceived_ by false prophets (Mt. 24:11) such as E. G. White[(23)](#23), the Watch Tower Society and people like [David Servant](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/david_servant_great_gospel_deception.htm). Don't be one of their victims or anyone else's that might deny eternal torment.**
 
 <span class="inline-images">
-![eternal fire](../../files/pictures/firebar.gif)![eternal fire](../../files/pictures/firebar.gif)![eternal fire](../../files/pictures/firebar.gif)![eternal fire](../../files/pictures/firebar.gif)![eternal fire](../../files/pictures/firebar.gif)![eternal fire](../../files/pictures/firebar.gif)![eternal fire](../../files/pictures/firebar.gif)
+![eternal fire](../files/pictures/firebar.gif)![eternal fire](../files/pictures/firebar.gif)![eternal fire](../files/pictures/firebar.gif)![eternal fire](../files/pictures/firebar.gif)![eternal fire](../files/pictures/firebar.gif)![eternal fire](../files/pictures/firebar.gif)![eternal fire](../files/pictures/firebar.gif)
 </span>
 
 * * *
@@ -357,7 +357,7 @@ God's word is clear about the future beyond the grave for all who die in a spiri
 
 <a name="23"></a>(23) For information on **[E. G. White](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/white.html)**, contact: Evangelical Outreach P. O. Box 265  Washington, PA 15301.[return](#back23)
 
-![annihilation eternal torment](../../files/pictures/a-colorb.gif)
+![annihilation eternal torment](../files/pictures/a-colorb.gif)
 
 - **[Skull and Crossbones Awards of False Prophets and False Teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Skull_And_Crossbones.html)**
 

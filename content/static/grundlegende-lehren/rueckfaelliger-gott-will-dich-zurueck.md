@@ -26,17 +26,17 @@ Quelle: [www.evangelicaloutreach.org/backslider.htm](http://gesundelehre.tk/forw
 <big>**Backslider, God Wants You Back!**</big>
 
 
-<big>**[DRUCKE: Gott Will Dass Die Rückfälligen Zurückkehren](../../files/pictures/backslider.pdf)** (pdf)</big>
+<big>**[DRUCKE: Gott Will Dass Die Rückfälligen Zurückkehren](../files/pictures/backslider.pdf)** (pdf)</big>
 
 ![rückfälliger](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/images/evangelical-outreach-backslider.jpg)
 
-![rückfälliger](../../files/pictures/006.gif)
+![rückfälliger](../files/pictures/006.gif)
 
 **<big><big>[Was Jeder Wissen Sollte Über Gottes BARMHERZIGKEIT](#backslider%20mercy)</big></big>**
 
 **A _backslider_ in the Bible is a person who once had salvation, but has since turned away from the Lord Jesus to the point that he is now spiritually _lost_ and _dead_ again, just like he was before becoming saved.**
 
-[![rückfälliger kehre zurück zur Errettung](../../files/pictures/i-was-saved-again-click-here.jpg "backslider return to salvation")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/i-was-saved-again.htm)
+[![rückfälliger kehre zurück zur Errettung](../files/pictures/i-was-saved-again-click-here.jpg "backslider return to salvation")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/i-was-saved-again.htm)
 
 > > **Die aber abweichen auf ihre krummen Wege**, wird der HERR **wegtreiben mit den Übeltätern.** ...  (Ps 125,5a; Luther 1545)
 
@@ -57,7 +57,7 @@ Hesekiel und Petrus geben wertvolle Details über jene, welche _rückfällig_ wu
 
 > Wenn der Gerechte von seiner Gerechtigkeit absteht und Unrecht tut, so muß er deshalb **[sterben](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.htm)**; (Hes 33,18; Schlachterbibel 1951)
 
-[![Rückfälliger Gott will dich zurück](../../files/pictures/backslider-saved-again-spiritual-death-eternal-security-click.jpg "rückfälliger, Gott will dich zurück")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.htm)
+[![Rückfälliger Gott will dich zurück](../files/pictures/backslider-saved-again-spiritual-death-eternal-security_de.jpg "rückfälliger, Gott will dich zurück")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.htm)
 
 > Denn wenn sie durch die Erkenntnis des Herrn und Retters Jesus Christus den Befleckungen der Welt entflohen sind, **aber wieder darin verstrickt und überwunden werden, so ist der letzte Zustand für sie schlimmer als der erste. 21 Denn es wäre für sie besser, daß sie den Weg der Gerechtigkeit nie erkannt hätten, als daß sie, nachdem sie ihn erkannt haben, wieder umkehren, hinweg von dem ihnen überlieferten heiligen Gebot**. Doch es ist ihnen ergangen nach dem wahren Sprichwort: »Der Hund **kehrt wieder um** zu dem, was er erbrochen hat, und die gewaschene Sau zum Wälzen im Schlamm.« (2.Petr 2,20-22; Schlachter2000)
 
@@ -76,13 +76,13 @@ Other examples of grieving _backsliders_ would vary from people crying to simply
 
 ## Gottes Wahrheit Bezüglich Rückfällig Werden
 
-[![Father welcoming the backslider back home.](../../files/pictures/prodigal.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.htm)
+[![Father welcoming the backslider back home.](../files/pictures/prodigal.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.htm)
 
 > Jesus continued: "There was a man who had two sons. The younger one said to his father, 'Father, give me my share of the estate.' So he divided his property between them. Not long after that, the younger son got together all he had, set off for a distant country and there **squandered his wealth in wild living**. After he had spent everything, there was a severe famine in that whole country, and he began to be in need. So he went and hired himself out to a citizen of that country, who sent him to his fields to feed pigs. He longed to fill his stomach with the pods that the pigs were eating, but no one gave him anything. **When he came to his senses,** he said, 'How many of my father's hired men have food to spare, and here I am starving to death! I will set out and go back to my father and say to him: Father, I have sinned against heaven and against you. I am no longer worthy to be called your son; make me like one of your hired men.' So he got up and went to his father. But while he was still a long way off, **his father saw him and was filled with compassion for him; he ran to his son, threw his arms around him and kissed him.** The son said to him, 'Father, I have sinned against heaven and against you. I am no longer worthy to be called your son.' But the father said to his servants, 'Quick! Bring the best robe and put it on him. Put a ring on his finger and sandals on his feet. Bring the fattened calf and kill it. Let's have a feast and celebrate. For this son of mine **was dead and is alive again; he was lost and is found.'** So they began to celebrate. Meanwhile, the older son was in the field. When he came near the house, he heard music and dancing. So he called one of the servants and asked him what was going on. 'Your brother has come,' he replied, 'and your father has killed the fattened calf because he has him back safe and sound.' The older brother became angry and refused to go in. So his father went out and pleaded with him. But he answered his father, 'Look! All these years I've been slaving for you and never disobeyed your orders. Yet you never gave me even a young goat so I could celebrate with my friends. But when this son of yours who has squandered your property with **prostitutes** comes home, you kill the fattened calf for him!' My son, the father said, 'you are always with me, and everything I have is yours. But we had to celebrate and be glad, because this brother of yours **was dead and is alive again; he was lost and is found.**'"
 
 ## Restoring The _Backslider_ and _Backsliding_
 
-[![backsliding return to God](../../files/pictures/backslide-backslider-backsliding-backslidden.jpg "God wants the backsliders to RETURN TO HIM!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.htm)
+[![backsliding return to God](../files/pictures/backslide-backslider-backsliding-backslidden.jpg "God wants the backsliders to RETURN TO HIM!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.htm)
 
 *   The _backslider_ (or prodigal son in this case) repented when he **came to his senses.** This means a person who remains unrepentant and in sin that is dragging him to hell is not in his right spiritual senses. He has been spiritually blinded by something or deceived somehow.
 
@@ -173,7 +173,7 @@ Getting back to Psalm 36:3, to _**cease to be wise and to do good**_ shows that 
 
 ## <a name="backslidereternalsin"></a>Eternal Sin and The Backslider
 
-[![](../../files/pictures/unforgivable-sin-click.jpg "unforgivable sin")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal_sin_blasphemy_of_Holy_Spirit.htm)
+[![](../files/pictures/unforgivable-sin-click.jpg "unforgivable sin")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal_sin_blasphemy_of_Holy_Spirit.htm)
 
 Jesus war der einzige, der jemals **[ewige Sünde/Strafe](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal_sin_blasphemy_of_Holy_Spirit.htm)** erwähnte und uns gleichzeitig deutlich sagte, was solches ist:
 
@@ -183,7 +183,7 @@ If you read Mark 3:22 you will learn more about those who committed such a form 
 
 So, _backslider_ return to God. Backsliders come back to Christ. **[Almighty God](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/almighty.htm)** wants you back. **It is the devil that is tormenting your mind and trying to make you think you cannot repent and return to God.** Remember also all the good that Peter did after he returned to God from his backslidden condition. **God used him mightily and can do the same with you. Yes, _returned backsliders_ can do great things for the kingdom of God. If you have been a _backslider_, but since have sincerely repented to return to God, he has accepted you home as he did the Prodigal and others.** Believe it. That is the truth. May God use these eternal truths to enlighten _backsliders_, who are in desperate need and earnestly desire to return to God.
 
-![backslider or backsliding person repent and be forgiven](../../files/pictures/a-colorb.gif)
+![backslider or backsliding person repent and be forgiven](../files/pictures/a-colorb.gif)
 
 **ANDERE THEMEN:**
 
