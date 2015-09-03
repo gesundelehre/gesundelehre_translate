@@ -1,0 +1,31 @@
+<!--t Porno5: Mit Dem Fleisch Kämpfend - in Arbeit (0% übersetzt) t-->
+<!--d Porno5: Mit Dem Fleisch Kämpfend - in Arbeit (0% übersetzt) d-->
+
+Porno5: Mit Dem Fleisch Kämpfend
+
+- - - 
+- - -
+
+# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/porno5.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno5.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/porno5.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+
+Source: [www.evangelicaloutreach.org/porno5.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno5.htm)
+
+# Mit Dem Fleisch Kämpfend
+
+* * *
+
+Greetings in the Lord, I just recently discovered your site and agree with your teachings. I was hoping that you might be able to answer a question. I professed faith in Jesus Christ and his death for my sins back in 1986\. The Jesus that I knew then is not the same as the one I know now. Now I understand the importance of giving your life to the Lord and not just part of it. I never grew spiritually and I have struggled with certain sins since then. In the past year, I have started to see a lot of the things that I was doing that were against God and I have been giving them up and really seeking a complete relationship with the Lord. One of the last areas I am really struggling with is one that I really indulged in the past and that is [lust](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html) of the flesh (sexual). My sins after the confession of faith that I had have been adultery, pornography, theft, dishonesty, materialism. I don't even know how I called myself a Christian!! Now that I want to get rid of this I find that I can have victory for awhile and then I will sin even when my desire is to serve the Lord!! I have been praying and seeking the Lord through his word but at times it seems in vain because just when things seem to go well I sin and then feel terrible. I even consider myself dead to sin but it seems to be just words even if I believe it. Is this a sign that it is too late because I have given in so much and have been disobedient?? If not, what kind of approach should I take? I have struggled with this isssue because of conflicting teachings as well as my own disobedience. I see the sins of this nation and I want to come out and be seperate!! I just want someone to be honest with me even if it hurts. I love the Lord and I want to do the right thing and I certainly want to be perfect in all I do because I Love the Lord and want to serve/please him!! I would really appreciate any help with this matter. I have rebuked the spirit of lust, I have asked the Lord to take it away, etc. I do have faith that the Lord can remove this!! Thanks for your time!!
+
+* * *
+
+**[EO's Response: It is very common for people to think that they have sinned too much for God to show them mercy and forgiveness. You are not an exception. Regardless where you were in the past, at this particular moment in time please know that God wants you just like he wanted the prodigal. The only time we ever read in the bible where the Father is running, he is running to welcome the prodigal back home because he turned from his sin and wanted to serve the Father. God feels the same way about you. He wants you. The devil doesn't want you to know this. He wants to torment your mind as he has multitudes of others who have lived for the flesh for a time. Please ponder Lk. 15:11-31\. Also please ponder Jam. 5:19,20 which says a "multitude" of sins. Even thought you've committed these sins, ponder also what King David did--adultery and murder, yet he found forgiveness. The passage in [Heb. 6:4-6](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hebrews.htm) is talking about something altogether different than what you have done. Please look at our [safeguards](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/safegard.html) chapter from our [book](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/dan-corner-the-believers-conditional-security.html) refuting eternal security which will give you many Scriptural truths about how to stay with God and not go astray.**
+
+**You are in a very intense spiritual war for your soul. You need to watch where you go, who you are with and what you think about. Your most valuable possession is your soul. Don't ever forget this. You must guard your soul from [sin](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html). Sometimes the devil will use a "friend" to try to lead us into wickedness. If that is the case with you, you need to find new friends. Stop spending time with such ungodly people. It might mean loneliness for awhile but that's far better than being corrupted. Your soul must be guarded. Remember 1 Tim. 5:22\. Also hide God's word in your heart. See Psalm 119:9-11\. This will prevent sin in itself. Meditating in and memorizing the Scriptures are so important to the victorious Christian life, words cannot adequately describe it. So shut the [TV](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tv.htm) off, lay the newspaper down and get very serious and adamant about drawing near to God and seeking him. Lay aside every weight and sin that so easily entangles and run with perseverance the race marked out for you. Please check out our audio [sermons](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sermons.html) page. There are many sermons there that can help instruct and bolster your faith. God bless you. Remember Heb. 3:12-14\. Don't hesitate to write again.]**
+
+* * *
+
+**[Evangelical Outreach](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)**  
+**P. O. Box 265, Washington, PA 15301**  
+**www.evangelicaloutreach.org**
+
+[Contact Us Or Join Our Email List](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
