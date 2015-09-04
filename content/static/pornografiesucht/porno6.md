@@ -8,7 +8,7 @@ Porno6: Hilfe! Ich Kämpfe Mit Pornografiesucht
 
 # Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/porn6.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porn6.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/porno6.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [www.evangelicaloutreach.org/porn6.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porn6.htm)
+Quelle: [www.evangelicaloutreach.org/porn6.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porn6.htm)
 
 # Hilfe! Ich Kämpfe Mit Pornografiesucht
 
@@ -58,4 +58,4 @@ Write again if we can help more.
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **www.evangelicaloutreach.org**
 
-[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)

@@ -8,14 +8,14 @@ Begierdenbrief4: Am Versuchen, Mit Pornografie Aufzuhören
 
 # Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/lustltr4.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr4.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/begierdenbrief4.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [www.evangelicaloutreach.org/lustltr4.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr4.htm)
+Quelle: [www.evangelicaloutreach.org/lustltr4.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr4.htm)
 
 # <font color="blue">Am Versuchen, Mit Pornografie Aufzuhören</font>
 
 An actual letter and our response.  
 Permission to reproduce this in its entirety only.
 
-[The Slavery, Bondage and Controlling Power of Sin](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)
+[Die Sklaverei, Knechtschaft und Kontrollierende Kraft der Sünde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)
 
 * * *
 
@@ -27,7 +27,7 @@ Hi i dont know how to start this off but I need your help!! I have been having t
 
 * * *
 
-[Contact Us Or Join Our Internet Church](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 [Evangelical](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach  
 PO Box 265  

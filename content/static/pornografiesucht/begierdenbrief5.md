@@ -8,7 +8,7 @@ Begierdenbrief5: Internet Pornografie
 
 # Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/lustltr5.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr5.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/begierdenbrief5.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [www.evangelicaloutreach.org/lustltr5.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr5.htm)
+Quelle: [www.evangelicaloutreach.org/lustltr5.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr5.htm)
 
 # Internet Pornografie
 
@@ -16,7 +16,7 @@ An actual letter and our response.
 
 Permission to reproduce this in its entirety only.
 
-[**The Slavery, Bondage and Controlling Power of Sin**](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)
+[**Die Sklaverei, Knechtschaft und Kontrollierende Kraft der Sünde**](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)
 
 [The following email is repeated as we received it. Our response is beneath it.] hi my name is _____, im 14\. I've tryed to stop loking at porn over the internet. when im off i have no erges to look at porn, i even say to my self that good will help me to over come all [**tempations**](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sexualtemptation.htm). so during the time im not on the internet i dont think about porn. but when i want to download a song or do some home work, i dont have control over me any more. iv tryed to stop and just watch porn for only 1 day a week but then i go back to 3 days a week. i dont no what to do help me.
 

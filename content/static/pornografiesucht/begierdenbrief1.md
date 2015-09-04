@@ -8,7 +8,7 @@ Begierdenbrief1: Brief Von Einem Mann Der Mit Pornografischer Begierde Kämpft
 
 # Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/lustltr.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/begierdenbrief1.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [www.evangelicaloutreach.org/lustltr.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr.htm)
+Quelle: [www.evangelicaloutreach.org/lustltr.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr.htm)
 
 <font color="blue">
 
@@ -18,7 +18,7 @@ Source: [www.evangelicaloutreach.org/lustltr.htm](http://www.gesundelehre.tk/for
 
 Permission to reproduce this in its entirety only.
 
-[The Slavery, Bondage and Controlling Power of Sin](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)
+[Die Sklaverei, Knechtschaft und Kontrollierende Kraft der Sünde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)
 
 * * *
 
@@ -65,7 +65,7 @@ Following Jesus
 
 * * *
 
-**[Contact Us Or Join Our Internet Church](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+**[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
 
 **[Evangelical](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

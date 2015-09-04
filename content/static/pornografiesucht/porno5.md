@@ -8,7 +8,7 @@ Porno5: Mit Dem Fleisch Kämpfend
 
 # Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/porno5.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno5.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/porno5.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [www.evangelicaloutreach.org/porno5.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno5.htm)
+Quelle: [www.evangelicaloutreach.org/porno5.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno5.htm)
 
 # Mit Dem Fleisch Kämpfend
 
@@ -28,4 +28,4 @@ Greetings in the Lord, I just recently discovered your site and agree with your 
 **P. O. Box 265, Washington, PA 15301**  
 **www.evangelicaloutreach.org**
 
-[Contact Us Or Join Our Email List](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[Kontaktiere Uns Oder Tritt Unserem Email-Verteiler Bei](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)

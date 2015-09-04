@@ -1,5 +1,5 @@
-<!--t Begierdenbrief2: Männer und Sittsamkeit/Anstand - in Arbeit (0% übersetzt) t-->
-<!--d Begierdenbrief2: Männer und Sittsamkeit/Anstand - in Arbeit (0% übersetzt) d-->
+<!--t Begierdenbrief2: Männer und Sittsamkeit/Anstand - in Arbeit (98% übersetzt) t-->
+<!--d Begierdenbrief2: Männer und Sittsamkeit/Anstand - in Arbeit (98% übersetzt) d-->
 
 Begierdenbrief2: Männer und Sittsamkeit/Anstand
 
@@ -8,25 +8,25 @@ Begierdenbrief2: Männer und Sittsamkeit/Anstand
 
 # Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/lustltr2.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr2.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/begierdenbrief2.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [www.evangelicaloutreach.org/lustltr2.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr2.htm)
+Quelle: [www.evangelicaloutreach.org/lustltr2.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr2.htm)
 
 # <font color="blue">Männer und Sittsamkeit/Anstand</font>
 
-Permission to reproduce in its entirety only.
+Erlaubnis ist gewährt den Artikel nur in seiner Gesamtheit zu reproduzieren.
 
 ![](../files/pictures/006.gif)
 
 [![Lust](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-Folks,
+Leute,
 
-Thanks for this eye-opening web-site! I and my wife have recently made the decision to come out of the apostate church and seek one that is truely Bible believing. God began convicting me of many things over the last two years - I believe because I have cried out to Him that I may have Him and only Him. It has been an intense search! But, praise God, I have had much affirmation since visiting several web-sites ... Yours ranks at the top!
+Danke für diese Augen-öffnende Website! Ich und meine Frau machten kürzlich die Entscheidung, aus der abtrünnigen Kirche herauszukommen und eine zu suchen, welche wirklich bibelgläubig ist. Gott begann mich von vielen Dingen über die letzten zwei Jahre zu überführen - Ich glaube weil ich zu ihm schrie, dass ich Ihn vielleicht haben möge und nur Ihn. Es war eine intensive Suche! Aber, Gott sei dank, Ich hatte viel Bestätigung seit dem Besuchen von etlichen Webseiten ... Eure gehört zu den Spitze! [engl. Yours ranks at the top!]
 
-I am thankful that you addressed men and modesty -- something I had discounted about myself! I didn't think men were included in this area. I never realized that I was dressing like a prostitute and causing others to commit adultery! (I have done so much repenting in the last weeks! I am not reviewing the material for sensational or entertainment value, rather I am studying and learning from each article on this site). I saw an article on a man named "Leotard" (spelling?), and he was a homosexual. He lived around the turn of the century. He developed the style of clothing we associate with "biker shorts" or "spandex clothing". He did it with the desire/ intent that when worn the male sexual organ would be accentuated/ revealed to the sight! (almost unbelievable!)
+Ich bin dankbar dafür, dass ihr Männer und Sittsamkeit angesprochen habt -- something I had discounted about myself! Ich dachte nicht, dass Männer in diesem Bereich mit eingeschlossen wären. Ich realisierte nie, dass ich mich wie eine Prostituierte anzog und andere dazu veranlasste, Ehebruch zu begehen! (Ich tat viel Busse in den letzten Wochen! Ich sehe mir das Material nicht für sensationsgierige [sensational] oder Unterhaltungs [entertainment] Wert [value], sondern ich studiere und lerne von jedem Artikel auf dieser Seite). Ich sah einen Artikel über einen Mann namens "Leotard" (Schreibweise?), und er war ein Homosexueller. Er lebte um die Jahrhundertwende herum [Anm. also 19. zu 20. Jahrhundert]. Er entwickelte den Kleidungsstil, den wir mit "Radlerhosen" oder "Spandex Kleidung" assoziieren. Er tat es mit dem Wunsch/der Absicht, dass wenn getragen, das männliche Sexualorgan für den Anblick betont/offenbart würde! (nahezu unglaublich!)
 
-My wife and I immediately purged our wardrobe of all devilish clothing - any tight pants, shorts, etc. that do not conform to modest dress. Even though I was aware that my anatomy was obvious (and I believe all people who wear such dress know this) I just didn't give it any thought. I never intended to present myself like a prostitute. This issue certainly applies to males as well as females!
+Meine Frau und ich säuberten unverzüglich unsere Garderobe von aller teuflischen Bekleidung - jegliche engen Hosen, Shorts, etc. welche nicht der sittlicher Kleidung entsprechen. Obwohl ich mir dessen bewusst war, dass meine Anatomie deutlich war (und ich glaube alle Leute, die solche Kleidung tragen wissen das) dachte ich einfach nicht darüber nach. Ich beabsichtigte niemals, mich wie eine Prostituierte zu präsentieren. Die Angelegenheit gilt sicherlich für Männer wie auch für Frauen!
 
-Thank you for opening my eyes. I am growing so much and the Lord is begining to bless our lives in a great way! There has been the peace of God restored to us as we continue to repent and believe His Word. (I learned that righteous living brings peace, but I needed to learn what righteous living is first!) We believe it is because we have decided to be seperated from the world and clean. We no longer want to disrespect God in our lives. In the apostate church we never came to a full knowledge of the Word of God nor were we made aware of the full extent to which Satan permeates our individual lives!!!!!!!!!! We are learnig quickly and are in awe! The Bible is making sense to us like never before and learning has become a daily experience! We are so blessed and thankful for you. Keep up the good work and labor of love!
+Danke für das Öffnen meiner Augen. Ich wachse sehr stark und der Herr beginnt unsere Leben auf grosse Art und Weise zu segnen! Der Friede Gottes wurde für uns wiederhergestellt, da wir fortfahren, Busse zu tun und Sein Wort zu glauben. (Ich lernte, dass gerechtes Leben Friede bringt, aber ich musste zuerst lernen, was gerechtes/rechtschaffenes Leben ist!) Wir glauben, dass es deshalb ist, weil wir uns entschieden haben, abgesondert von der Welt und rein zu sein. Wir wollen Gott in unseren Leben nicht länger nicht beachten/nicht respektieren. In der abtrünnigen Kirche kamen wir niemals zur vollen Erkenntnis des Wortes Gottes noch wurden wir auf das volle Ausmass aufmerksam gemacht in welchem Satan unsere individuellen Leben durchdringt!!!!!!!!!! Wir lernen schnell und sind in Ehrfurcht [engl. awe]! Die Bibel macht nun Sinn für uns wie nie zuvor und Lernen wurde zu einer täglichen Erfahrung! Wir sind so gesegnet und dankbar für euch. Fahrt fort mit dem guten Werk und dem Werk der Liebe!
 
 Agape,  
 R&J
@@ -39,4 +39,4 @@ R&J
 
 **www.evangelicaloutreach.org**
 
-[Contact Us Or Join Our Internet Church](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)

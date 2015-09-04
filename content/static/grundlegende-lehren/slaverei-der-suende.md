@@ -1,4 +1,4 @@
-<!--t Sklaverei der Sünde - in Arbeit (15% übersetzt) t-->
+<!--t Sklaverei der Sünde - in Arbeit (30% übersetzt) t-->
 <!--d Sklaverei der Sünde d-->
 
 Sklaverei der Sünde
@@ -10,7 +10,7 @@ Sklaverei der Sünde
 
 Quelle: [www.evangelicaloutreach.org/sin.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.htm)
 
-# The Slavery, Bondage and Controlling _Power of Sin_
+# Die Sklaverei, Knechtschaft und Kontrollierende _Kraft der Sünde_
 ### Dan Corner
 
 
@@ -37,25 +37,25 @@ Throughout the Bible, one can read of man having the _rule_ over fish, birds, li
 
 [![SLAVE OF SIN POWER OF SIN SIN ADDICTIONS Slave to Sin](../files/pictures/no-secret-sins-sinful-temptations.jpg "God knows about SIN.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sexualtemptation.htm)
 
-The Hebrew word for _rule_ is _mashal_ and means: 
+Das hebräische Wort für _rule_ ist _mashal_ und bedeutet:
 > **to rule:**--(have, make to have) **dominion**, governor, X indeed, **reign**, (bear, cause to, have) **rule (-ing, -r), have power.** 
 
-**[ONLY This Will Set Us Free From Our Slavery To Sin](#slave%20of%20sin%20blood%20of%20christ)** 
+**[NUR Das Wird Uns Befreien Von Unserer Knechtschaft Der Sünde](#slave%20of%20sin%20blood%20of%20christ)** 
 
 ## Die Bösen/Boshaften Sind Sklaven Der Sünde
 
-[![sin is sin](../files/pictures/sin-is-sin.jpg "sin is sin")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/james210.htm)
+[![Sünde ist Sünde](../files/pictures/sin-is-sin.jpg "sin is sin")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/james210.htm)
 
 There are only two types of people, the _wicked_ (or lost) and the _righteous_ (or saved). Regarding the former, Proverbs 5:22 declares that they are _take_[n] (KJV) or _ensnared_ (NIV) by their sin. That word _ensnared_ in the Hebrew is _lakad_ and means: 
 > **to catch** (in a net, trap or pit); gen. **to capture** or occupy; also to choose (by lot); fig. to cohere:-- X at all, **catch** (self), **be frozen, be holden, stick together**, take. 
 
-Notice the clarity of this verse: 
-> The evil deeds of a wicked man **ensnare him**; the **cords of his sin hold him fast** (Prov. 5:22). 
+Beachte die Klarheit dieses Verses:
+> Den Gottlosen **nehmen** seine eigenen Missetaten **gefangen**, und **von den Stricken seiner Sünde wird er festgehalten**. (Sprüche 5,22; Schlachterbibel 1951) 
 
-The Hebrew word for _cords_ means: 
+Das hebräische Wort für _Stricke_ bedeutet: 
 > **a rope (as twisted)**, espec. a measuring line; by impl. a district or inheritance (as measured); or a **noose (as of cords)**; fig. a company (as if tied together); also a throe (espec. of parturition); also ruin:--band, coast, company, **cord**, country, destruction, line, lot, pain, pang, portion, region, **rope, snare,** sorrow, tackling.
 
-Other similar verses can also be cited:  
+Andere ähnliche Verse können auch zitiert werden:
 [![bound to sin](../files/pictures/chained-feet.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin-is-the-issue.htm) 
 > ... the wicked are **ensnared** by the work of their hands (Psa. 9:16).
 
@@ -63,58 +63,60 @@ Other similar verses can also be cited:
 
 > The images of their gods you are to burn in the fire. Do not **covet** the silver and gold on them, and do not take it for yourselves, or you will be **ensnared** by it, for it is detestable to the LORD your God (Deut. 7:25).
 
-Verse 26 gives the remedy for coveting silver and gold on idols: 
+Vers 26 gibt das Heilmittel for coveting silver and gold on idols: 
 > **Do not bring a detestable thing into your house** or you, like it, will be set apart for destruction. **Utterly abhor and detest it**, for it is set apart for destruction.
 
-Another example of idolatry _ensnaring_ those that are involved in it is found in the same OT book: 
+Ein weiteres Beispiel dafür dass Götzendienst jene, die daran beteiligt sind _ensnare_, kann im selben AT Buch gefunden werden:   
 > And after they have been destroyed before you, be careful not to be **ensnared** by inquiring about their gods, saying, "How do these nations serve their gods? We will do the same" (Deut. 12:30).
 
 The imagery of these Scriptures shows the powerless spiritual condition the unsaved are in (Rom. 5:6), that is, as a _captured_ victim ensnared by _cords_ (or _ropes_) of sin. Beyond all of that he is also a _slave to sin._ 
 
-## [This Proves Sin Is Still The Issue](sin-is-the-issue.htm)
+## [Dies Beweist, dass Sünde Immer Noch Das Problem Ist](sin-is-the-issue.htm)
 
 ## Jesus Wird Dich _Befreien_ Von Der Macht der Sünde
 
-In the following passage, **_the truth_ (which sets one free from sin) is equated with _the Son_, that is, Jesus Christ Himself:** 
+Im folgenden Abschnitt, wird **_die Wahrheit_ (welche einen von Sünde befreien wird) mit _dem Sohn_, das heisst, mit Jesus Christ selbst gleichgestellt:** 
 > Da sprach Jesus zu den Juden, die an ihn gläubig geworden waren: Wenn ihr in meinem Worte bleibet, so seid ihr wahrhaftig meine Jünger, und ihr werdet die Wahrheit erkennen, und **die Wahrheit wird euch frei machen!** Sie antworteten ihm: Wir sind Abrahams Same und sind nie jemandes **Knechte** gewesen; **wie sprichst du denn: Ihr sollt frei werden?** Jesus antwortete ihnen: Wahrlich, wahrlich, ich sage euch: **Wer Sünde tut, ist der Sünde Knecht**. Der Knecht aber bleibt nicht ewig im Hause; der Sohn bleibt ewig. **Wird euch nun der Sohn frei machen, so seid ihr wirklich frei.** (Johannes 8,31-36).
 
-The Apostle John went into specifics about how this freedom from being a _**[slave to sin](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/slave.htm)**_ occurs: 
+Der Apostel Johannes ging ins Detail bezüglich wie diese Freiheit vom Sein eines _**[Sklaven/Knechts der Sünde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/slave.htm)**_ geschieht: 
 <a name="slave%20of%20sin%20blood%20of%20christ"></a>
 > und von Jesus Christus, dem treuen Zeugen, dem Erstgeborenen von den Toten und dem Fürsten über die Könige der Erde. Ihm, der uns liebt und **uns durch sein Blut von unsren Sünden gewaschen/erlöst hat** (Off. 1,5).
 
-In other words, we **must** contact the _blood_ of Christ to receive _freedom_ from sin's slavery. This means that people who never get Biblically saved have been lifelong _slaves of sin_, even though they might not be aware of it. While certain sins clearly _enslave_, like drunkenness, homosexuality and pornography, other sins such as lying, fits of rage and discord are not so apparent, but can still be spiritually fatal (Gal. 5:19-21). But regardless the sin, Jesus' precious, cleansing _blood_ is the **only** remedy for sin's spiritual _bondage_. Moreover, one contacts Jesus' blood at salvation by coming to _know_ the Lord Jesus in a personal way and simultaneously _escapes_ sin's bondage: 
+Mit anderen Worten, wir **müssen** das _Blut_ von Christus berühren, um _Freiheit_ von der Knechtschaft der Sünde zu erlangen. Das heisst dass Leute, die niemals biblisch gerettet werden, lebenslang _Sklaven der Sünde_ waren, obwohl sie sich dessen vielleicht nicht bewusst sind. Während gewisse Sünden offensichtlich _versklaven_, wie Trunkenheit, Homosexualität und Pornografie, so sind andere Sünden wie Lügen, Wutanfälle und Zwietracht nicht so offensichtlich, können jedoch trotzdem geistlich schwerwiegend/fatal sein (Gal. 5,19-21). Aber ungeachtet der Sünde, Jesu kostbares, reinigendes _Blut_ ist das **einzige** Heilmittel für die geistliche _Knechtschaft_ der Sünde. Zudem berührt jemand Jesu Blut zum Zeitpunkt der Errettung indem er den Herrn Jesus auf eine persönliche Art _kennenlernt_ und gleichzeitig der Sklaverei der Sünde _entflieht_: 
 > ... _escape the corruption of the world **by knowing** our Lord and Savior Jesus Christ_ (2 Pet. 2:20). 
 
-The same Greek word translated _escape_ in that verse is also found in 2 Pet. 1:4\. Clearly, it is Christians who **_escape_** _the corruption in the world caused by evil desires_:
+Dasselbe griechische Wort, welches in diesem Vers mit _escape_ übersetzt wird, findet sich auch in 2 Pet. 1,4\. Ganz klar sind es Christen, welche _dem in der Welt durch die Lust herrschenden Verderben_ **_entfliehen_**:
+
+nachdem ihr dem in der Welt durch die Lust herrschenden Verderben entflohen seid, 
 
 > His divine power has given us everything we need for life and godliness through **our knowledge of him** who called us by his own glory and goodness. Through these he has given us his very great and precious promises, so that through them you may participate in the divine nature and **escape** the corruption in the world caused by evil desires (2 Pet. 1:3,4).
 
-## [Click For More Truth About JESUS' Blood](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jesusblood.html) 
+## [Klicke Für Mehr Wahrheit Über JESU Blut](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jesusblood.html) 
 ## Wiederum _Gefangen_ In der Sünde
 
-**It is very important to stress the fact that even a person who has once been _freed_ from the controlling power of sin by Jesus' blood, can become a _captive to sin_ again**. Consider the words of the Apostle Peter to Simon, who previously came to the point of _**[believing](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html)**_, which merited Christian baptism (Acts 8:13): 
+**Es ist sehr wichtig, die Tatsache zu betonen, dass sogar eine Person, welche einst von der herrschenden Kraft der Sünde durch Jesu Blut _befreit_ worden ist, wiederum ein _Gefangener der Sünde_ werden kann**. Consider die Worte des Apostels Petrus zu Simon, der vorher zum Punkt des **_[glaubens](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html)_** kam, welches der christlichen Taufe würdig war (Apg 8,13): 
 > Repent of this wickedness and pray to the Lord. Perhaps he will forgive you for having such a thought in your heart. For I see that you are full of bitterness and **captive to sin** (Acts 8:22, 23). 
 
-That Apostle also wrote of this same possibility reoccurring to those who had been truly saved. In 1 Peter, his audience was already _born again_ (1:23) and _redeemed_ by **[Jesus _precious blood_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jesusblood.html)** (1:18), but such would not, in itself, prevent them from becoming _captive_ to sin again, as occurred to Simon (Acts 8:13, 23). Consequently, there has to be free will and human responsibility involved in staying free. Instead of conforming to the evil desires we had when unsaved, Christians are commanded to _**be holy in all you do:**_ 
+Der Apostel schrieb auch von derselben Möglichkeit die denen wieder geschieht, welche wirklich gerettet waren. In 1 Peter, war seine Zuhörerschaft bereits _wiedergeboren_ (1,23) und durch **[Jesu _kostbares Blut_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jesusblood.html)** _losgekauft_ (1:18), but such would not, in itself, prevent them from becoming _captive_ to sin again, wie es Simon geschah (Apg 8,13, 23). Konsequenterweise muss freier Wille und menschliche Verantwortung daran beteiligt sein, frei zu bleiben. Anstatt sich den bösen Lüsten zu fügen, die wir hatten, als wir nicht gerettet waren, sind wird Christen befohlen, **_heilig zu sein in allem was sie tun:_**
 > As obedient children, **do not conform to the evil desires you had when you lived in ignorance**. But just as he who called you is holy, so **be holy in all you do**; for it is written: "**Be holy**, because I am holy" (1 Pet. 1:14-16). 
 
 ## _Sei Heilig in Allem Was Du Tust_
 
-**Peter knew a real Christian could once again _conform to the evil desires_ he had when he _lived in ignorance_**. The preventive is to **_be holy_ in all we do**. Christians are in a constant, day in and day out battle with sin. This and more are clear from the following: 
+**Petrus wusste, dass ein wahrer Christ wiederum could _conform to the evil desires_ die er hatte, als er _lived in ignorance_**. Das Schutzmittel hierzu ist **_heilig zu sein_ in allem was wir tun**.  Christen sind in einem konstanten, unaufhörlichen Kampf mit Sünde. Dies und mehr sind klar aus dem Folgenden:
 > Ihr habt noch nicht bis aufs Blut widerstanden **im Kampf wider die Sünde** (Heb. 12,4).
 
-In Peter's second epistle, he wrote about certain **[false teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm),** who _have left the straight way and wandered off to follow the way of Balaam_ (2 Pet. 2:15). Besides being covetous, they were also guilty of **[mental adultery](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)** (v. 14 cf. Mt. 5:28). Hence, Peter declared them to be _slaves of depravity_ [again]: 
+In Petrus' zweitem Brief schrieb er über gewisse **[falsche Lehrer/Irrlehrer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm),** welche _den straight Weg verlassen hatten und wandered off to follow the way of Balaam_ (2 Pet. 2:15). Besides being covetous, waren sie auch des **[mentalen Ehebruches](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)** schuldig (v. 14 cf. Mt. 5:28). Daher erklärte sie Petrus to be _slaves of depravity_ [wiederum]: 
 > They promise them freedom, while they themselves are **slaves of depravity**--for a man is a **slave** to whatever has mastered him (2:19).
 
-But that is not all the Apostle wrote about those apostates, that is, Christians who leave _the straight way_ (or faith): 
+Aber das ist nicht alles, was der Apostel über jene apostates schrieben, das heisst, Christen welche _den straight Weg_ (des Glaubens) verlassen: 
 > If they have **escaped** [past tense] the corruption of the world by knowing our Lord and Savior Jesus Christ and are **again entangled in it and overcome**, they are worse off at the end than they were at the beginning. **It would have been better for them not to have known the way of righteousness, than to have known it and then to turn their backs on the sacred command**[(1)](#1) **that was passed on to them**. Of them the proverbs are true: "A dog **returns** to its vomit," and, "A sow that is washed **goes back** to her wallowing in the mud" (2 Pet. 2:20-22). 
 
-**Not only did Peter know the believer's security was conditional, but he boldly and unequivocally taught that a true Christian can _leave the straight way_. Some, however, refuse to accept this Scriptural fact and in opposition to it parrot: _They were [never really saved to begin with](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/neversavedargument.htm)_. To live in _the straight way_ carries the same benefit as _having escaped the corruption of the world by knowing our Lord and Savior Jesus Christ_**. But such a person, who departs from _the straight way_, will then become _entangled_ and _overcome_ by sin's corruption _again_! It is about such former Christians, who _turn their backs on the sacred command_ that Peter stated: 
+**Petrus wusste nicht nur, dass des Gläubigen Sicherheit konditionell/bedingt war, sondern lehrte mutig und eindeutig dass ein wahrer Christ _den straight Weg verlassen_ kann. Einige verweigern jedoch diese biblische Tatsache zu akzeptieren und im Gegensatz dazu schwatzen sie nach [engl. parrot]: _Sie waren [von Anfang an nie wirklich errettet](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/neversavedargument.htm)_. To live in _the straight way_ carries the same benefit as _having escaped the corruption of the world by knowing our Lord and Savior Jesus Christ_**. But such a person, who departs from _the straight way_, will then become _entangled_ and _overcome_ by sin's corruption _again_! It is about such former Christians, who _turn their backs on the sacred command_ that Peter stated: 
 > It would have been better for them not to have **known the way of righteousness**, than to have known it and then to **turn their backs** on the sacred command that was passed on to them. 
 
 ## Die Gefahr des Rückfalls
 
-In other words, **do not [backslide](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/backslider.html)** or sin's _entanglement_ and _slavery_ will be worse than it was before initial salvation! But if backsliding has already occurred, **one can get saved (and _freed_) again**, according to the Biblical record: 
+Mit anderen Worten, **do not [backslide](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/backslider.html)** or sin's _entanglement_ and _slavery_ will be worse than it was before initial salvation! But if backsliding has already occurred, **one can get saved (and _freed_) again**, according to the Biblical record: 
 > Denn dieser mein Sohn war tot und **ist wieder lebendig geworden; er war verloren und ist wiedergefunden worden**. Und sie fingen an, fröhlich zu sein. (Lk. 15,24).
 
 > **Brethren, if anyone among you wanders from the truth, and someone turns him back**, let him know that **he who turns a sinner from the error of his way will save a soul from death and cover a multitude of sins** (James 5:19, 20, NKJV).
@@ -180,13 +182,13 @@ May multitudes in our day become aware of the _freedom_ from sin's slavery found
 
 **OTHER TOPICS:** 
 
-- **[Live Holy And Keep Yourself Pure](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html)**
-- **[Freed From Sin Addictions](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)**
-- **[Plan Of Salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
+- **[Lebe Heilig Und Bewahre Dich Selbst Rein](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html)**
+- **[Befreit Von Sündhaften Abhängigkeiten](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)**
+- **[Plan Der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
 - **[Wicked People and How To Be Forgiven](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wicked-people-forgiven.html)**
-- **[The New Creation In Christ Radical Change](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/new-creation.html)**
+- **[Die Neue Schöpfung In Christus Radikale Veränderung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/new-creation.html)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical Outreach](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)**  
 PO Box 265  

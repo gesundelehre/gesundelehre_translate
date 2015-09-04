@@ -53,6 +53,7 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 ##Irrlehrer die sich im Internet rumtreiben
 |Name|Bild|Irrlehren|Kontext/steht in Kontakt mit|mehr Infos|
 |:--|:--|:--|:--|:--|
+|119ministries.com / testeverything.net|![alt][picture 119ministries.com] ![alt][picture prueftalles.com]|Judaizer/Judaisierer, Saturday-Sabbath-Keeping, Hebrew-Roots-Cult|[www.119ministries.com](http://gesundelehre.tk/forwarder.php?url=http://www.119ministries.com/),[testeverything.net/](http://gesundelehre.tk/forwarder.php?url=http://testeverything.net/)||
 |Dieter Potzel|![alt][picture der_theologe] ![alt][picture dieter_potzel]|Die Bibel sei verfälscht worden (hier ist nicht die Rede von den falschen Bibelübersetzungen), Jesus sei Vegetarier gewesen bzw. man müsse vegetarisch leben, Paulus habe das Evangelium verändert|[DerTheologe](http://gesundelehre.tk/forwarder.php?url=www.theologe.de), in Zusammenhang mit Matthias Holzauer von [www.das-weisse-pferd.com/](http://gesundelehre.tk/forwarder.php?url=http://www.das-weisse-pferd.com/)|bezüglich vegetarisch, siehe seine Beteiligung an einem [PRO-vegarisch-Event](http://gesundelehre.tk/forwarder.php?url=http://www.donoteatus.org/munich_sep_2_2006_demo.htm), bezüglich seiner Verbindung zur "christlich-vegetarischen" Sekte Universelles Leben mehr infos unter [www.theologe.de/universelles-leben.htm](http://gesundelehre.tk/forwarder.php?url=http://www.theologe.de/universelles-leben.htm)|
 |[www.InfokriegerMcM.de](http://gesundelehre.tk/forwarder.php?url=http://www.infokriegermcm.de/) sowie auf Youtube: [InfokriegerMcM](http://gesundelehre.tk/forwarder.php?url=http://www.youtube.com/user/InfokriegerMcM) / [EndzeitreporterMcM](http://gesundelehre.tk/forwarder.php?url=http://www.youtube.com/user/EndzeitreporterMcM) / [Nature23Infokrieger](http://gesundelehre.tk/forwarder.php?url=http://www.youtube.com/user/Nature23Infokrieger)|![alt][picture infokriegermcm]|Judaisierer/Judaizer, lehrt dass Sabbat & jüdische Feste halten heilsnotwendig sei, Hölle sei nicht ewig|wirbt für Jim Staley, Mike Okunola||
 |Harold Graf |![alt][picture harold_graf]|Sabbathalten, Hölle sei nicht ewig bzw. existiere nicht|[www.jesus-christus-erloesungsweg-zum-ewigen-leben.de/](http://gesundelehre.tk/forwarder.php?url=http://www.jesus-christus-erloesungsweg-zum-ewigen-leben.de/), sowie auf [Facebook](http://gesundelehre.tk/forwarder.php?url=https://www.facebook.com/HaroldGraf), auf [Twitter](http://gesundelehre.tk/forwarder.php?url=https://twitter.com/HaroldGraf), auf [Youtube](http://gesundelehre.tk/forwarder.php?url=https://www.youtube.com/user/HaroldHLGraf), [haroldgraf.blog.de](http://gesundelehre.tk/forwarder.php?url=haroldgraf.blog.de)||
@@ -66,6 +67,8 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 
 
 
+[picture prueftalles.com]: files/false_teachers/prueftalles.com.jpg
+[picture 119ministries.com]: files/false_teachers/119ministries.com.jpg
 [picture der_theologe]: files/false_teachers/der_theologe.jpg
 [picture dieter_potzel]: files/false_teachers/dieter_potzel.jpg
 [picture infokriegermcm]: files/false_teachers/infokriegermcm.jpg

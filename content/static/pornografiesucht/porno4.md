@@ -8,7 +8,7 @@ Porno4: Mit Pornografie Kämpfend
 
 # Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/porno4.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno4.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/porno4.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [www.evangelicaloutreach.org/porno4.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno4.htm)
+Quelle: [www.evangelicaloutreach.org/porno4.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno4.htm)
 
 # Mit Pornografie Kämpfend, 4
 
@@ -41,4 +41,4 @@ Not only that I am so thankful to God and Christ for my life and my family I fee
 **www.EvangelicalOutreach.org**  
 **www.EternalLifeBlog.com**
 
-[Contact Us or Join Our Internet Church](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)

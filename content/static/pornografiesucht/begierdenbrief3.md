@@ -1,5 +1,5 @@
-<!--t Begierdenbrief3: Pornografie führte zu einer Affäre - in Arbeit (0% übersetzt) t-->
-<!--d Begierdenbrief3: Pornografie führte zu einer Affäre - in Arbeit (0% übersetzt) d-->
+<!--t Begierdenbrief3: Pornografie führte zu einer Affäre - in Arbeit (99% übersetzt) t-->
+<!--d Begierdenbrief3: Pornografie führte zu einer Affäre - in Arbeit (99% übersetzt) d-->
 
 Begierdenbrief3: Pornografie Führte zu einer Affäre
 
@@ -8,26 +8,24 @@ Begierdenbrief3: Pornografie Führte zu einer Affäre
 
 # Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/lustltr3.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr3.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/begierdenbrief3.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [www.evangelicaloutreach.org/lustltr3.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr3.htm)
+Quelle: [www.evangelicaloutreach.org/lustltr3.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr3.htm)
 
 # <font color="blue">Pornografie Führte zu einer Affäre</font>
 
-Permission to reproduce this in its entirety only.
+Erlaubnis ist gewährt den Artikel nur in seiner Gesamtheit zu reproduzieren.
 
-[The Slavery, Bondage and Controlling Power of Sin](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)
+[Die Sklaverei, Knechtschaft und Kontrollierende Kraft der Sünde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)
 
 ![](../files/pictures/006.gif)
 
+Ich las soeben die Emails bezüglich [Begierde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html) und Pornografie. Ich musste euch einfach schreiben. Ich war unter SÜNDE unterjocht seit ich etwa zehn Jahre alt war. Ich versuchte, mein Leben GOtt zu geben, doch Satan zerschmetterte mich damit jedes Mal -- er tat es überall hin. **[Fernseher/TV](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tv.htm) ist das schlimmste.** Schliesslich führte es zu einer Affäre (Gott sei Dank meine wunderbare Frau vergab/verzieh mir). Nachdem ich wirklich GERETTET wurde, bat ich Gott, mir meine vergangen Sünden zu vergeben und mich zu heilen und gottlob tat er solches. Das Verlangen, jede Frau auszuziehen war und ist gegangen. Dies war vor über fünf Jahren.
 
-
-I just read the e-mails on [lust](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html) and pornography. I just had to write to you. I was enslaved to that SIN since I was about ten years old. I would try to give my life to God but Satan would crush me with it every time -- he would put it everywhere. **[TV](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tv.htm) is the worst.** Finally it led to an affair (thank God my wonderful wife forgave me). After I truly got SAVED I asked God to forgive me for my past Sins and to heal me and praise God He did. The desire to undress every woman was and is gone. That was over five years ago.
-
-Something great happened to me on Monday. We stopped to use the restroom and when I washed my hands I saw a Porno book in the trash. [Satan](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devil.html) tried to get me to look but I serve a wonderful God who can give grace to overcome. I carefully took the book and hid it under my shirt and took it to my wife in our van. I put it in the console and told her what I found. When we got home I started a good hot fire while she tore it up on our porch; then I went in the house while she burned them. Thank God for answered prayer. I thank Him daily for His help to overcome this SIN that nearly killed my marriage (ADULTERY). Thank you for the stand you take in teaching God's word the way it is written. God bless you.
+Etwas grossartiges geschah mir am Montag. Wir hielten an, um ein WC zu benutzen und als ich meine Hände wusch, sah ich ein Pornografiebuch im Abfall. [Satan](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devil.html) versuchte, mich dazu zu bringen, zu schauen, aber ich diene einem wunderbaren Gott, der Gnade geben kann, zu überwinden. Sorgfältig nahm ich das Buch und versteckte es unter meinem Hemd und nahm es zu meiner Frau in unseren Lieferwagen [engl. van]. Ich tat es in die Konsole und erzählte ihr, was ich gefunden hatte. Als wir nach Hause kamen, entfachten wir ein gutes heisses Feuer, währen sie es auf unserer Veranda zerfetzte; Danach ging ich ins Haus während sie sie verbrannte. Gott sei Dank für beantwortetes Gebet. Ich danke Ihm täglich für seine Hilfe, diese SÜNDE zu überwinden, welche fast meine Ehe zerstört hat (EHEBRUCH). Danke für die Stellung, die ihr bezieht im Lehren von Gottes Wort auf die Art, wie es geschrieben steht. Gott segne euch.
 
 * * *
 
-[Contact Us Or Join Our Email List](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[Kontaktiere Uns Oder Tritt Unserem Email-Verteiler Bei](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 [Evangelical Outreach](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)  
 PO Box 265, Washington, PA 15301  
- www.evangelicaloutreach.org
+www.evangelicaloutreach.org

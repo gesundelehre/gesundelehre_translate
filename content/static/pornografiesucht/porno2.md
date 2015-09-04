@@ -8,7 +8,7 @@ Porno2: Pornografie, Begierde und Errettung
 
 # Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/porno2.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno2.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/porno2.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [www.evangelicaloutreach.org/porno2.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno2.htm)
+Quelle: [www.evangelicaloutreach.org/porno2.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno2.htm)
 
 
 # Pornografie, Begierde und Errettung
@@ -16,7 +16,7 @@ Source: [www.evangelicaloutreach.org/porno2.htm](http://www.gesundelehre.tk/forw
 **(This is an actual email that we received. His remarks are italicized. Our responses are bolded.)**
 
 **[Lust is Another Name for Adultery and Will Damn](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)**  
-**[The Slavery, Bondage and Controlling Power of Sin](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)**
+**[Die Sklaverei, Knechtschaft und Kontrollierende Kraft der Sünde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)**
 
 
 * * *
@@ -113,4 +113,4 @@ Source: [www.evangelicaloutreach.org/porno2.htm](http://www.gesundelehre.tk/forw
 
 **www.evangelicaloutreach.org**
 
-[Contact Us Or Join Our Internet Church](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)

@@ -1,7 +1,7 @@
 <!--t Vital Truths For New Converts Or New Christians t-->
 <!--d  d-->
 
-Source: [www.evangelicaloutreach.org/newconverts.htm](newconverts.htm)
+Source: [www.evangelicaloutreach.org/newconverts.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/newconverts.htm)
 
 
 # Vital Truths For _New Converts_ Or _New Christians_
@@ -12,11 +12,11 @@ Source: [www.evangelicaloutreach.org/newconverts.htm](newconverts.htm)
 <iframe width="504" height="378" src="http://www.youtube.com/embed/WymYkGLlfm8?rel=0" frameborder="0" allowfullscreen=""></iframe>
 **The Radical Change into a New Creation**
 
- **[Vitals For New Converts](images/NewConverts.pdf) (print free tract pdf)**
+ **[Vitals For New Converts](../../files/pictures/NewConverts.pdf) (print free tract pdf)**
 
-![new converts](images/evangelical-outreach-new-converts.jpg)
+![new converts](../../files/pictures/evangelical-outreach-new-converts.jpg)
 
-![New Converts](013.gif)
+![New Converts](../../files/pictures/013.gif)
 
 [![baby christian](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
@@ -25,11 +25,11 @@ Source: [www.evangelicaloutreach.org/newconverts.htm](newconverts.htm)
 ## New Christians (New Converts) Have Cause To Rejoice, But Also Need To Be WARNED OF REAL DANGERS
 
 
-[![New Convert](images/diffwld.jpg "vital truths for new converts")](new-creation.html)
+[![New Convert](../../files/pictures/diffwld.jpg "vital truths for new converts")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/new-creation.html)
 
-[![new convert set free from sin](images/difficult-road-to-life.jpg "New converts to Christianity must endure to the end to be saved")](romans6.html)
+[![new convert set free from sin](../../files/pictures/difficult-road-to-life.jpg "New converts to Christianity must endure to the end to be saved")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)
 
-**When a person becomes a true Christian (a _new convert_) he enters a brand new life. In a moment of time he passes from death to life, from darkness to light and from the power of Satan to the power of God. Many things start to happen to him that may be surprising.** (I can still remember what it was like for me when I came to salvation over 35 years ago.) What you are going to read in this article is what I would have greatly benefitted by had I been presented with these vital Scriptural truths back then. **These are not the kinds of things you will readily hear from the typical _pastor_ of our day or [TV](tv.htm) or radio teachers who seem more interested in getting people under their influence than spreading the word of life. Nonetheless, these [basic Christian truths](christian-basics.htm) are precious _pearls_ for the new convert.** Let's go to the Scriptures and see what they declare.
+**When a person becomes a true Christian (a _new convert_) he enters a brand new life. In a moment of time he passes from death to life, from darkness to light and from the power of Satan to the power of God. Many things start to happen to him that may be surprising.** (I can still remember what it was like for me when I came to salvation over 35 years ago.) What you are going to read in this article is what I would have greatly benefitted by had I been presented with these vital Scriptural truths back then. **These are not the kinds of things you will readily hear from the typical _pastor_ of our day or [TV](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tv.htm) or radio teachers who seem more interested in getting people under their influence than spreading the word of life. Nonetheless, these [basic Christian truths](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-basics.htm) are precious _pearls_ for the new convert.** Let's go to the Scriptures and see what they declare.
 
 
 ## The New Convert and Family Division
@@ -38,9 +38,9 @@ Source: [www.evangelicaloutreach.org/newconverts.htm](newconverts.htm)
 
 <big>**[Do You Know The Spiritual Danger Of Your Old Friends](#newconverts)**</big> 
 
-[![wolves in sheeps clothing are real dangers for new converts](images/wolves-in-sheeps-clothing.jpg "Wolves in sheeps clothing are real dangers for new converts")](false.htm)
+[![wolves in sheeps clothing are real dangers for new converts](../../files/pictures/wolves-in-sheeps-clothing.jpg "Wolves in sheeps clothing are real dangers for new converts")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)
 
-**It is very common for one's family to be _divided_ because of Christ, even to the point where dear family members become the new Christian's spiritual _enemies_**. If this occurs to you, please know that it has also happened to multitudes of others as well. It is possible your unsaved family might want you to stop reading and talking about the Bible. They could also be _ashamed_ of you being so _religious_ all the time and will try to cool you down. Dear new Christian, regardless who or what might try to hinder your love, zeal and **[devotion to Jesus](devotion-to-the-lord-jesus-christ.htm), you must not yield to their ungodly desires**. You must _**love Jesus first**_, which will be shown by obeying him over others who would want you to go against the Lord's teachings or to just ignore them. This is vitally important. **To be _worthy_ of Jesus, we must love him supremely**. Notice the following two Scriptures about those who **_love_** God:
+**It is very common for one's family to be _divided_ because of Christ, even to the point where dear family members become the new Christian's spiritual _enemies_**. If this occurs to you, please know that it has also happened to multitudes of others as well. It is possible your unsaved family might want you to stop reading and talking about the Bible. They could also be _ashamed_ of you being so _religious_ all the time and will try to cool you down. Dear new Christian, regardless who or what might try to hinder your love, zeal and **[devotion to Jesus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devotion-to-the-lord-jesus-christ.htm), you must not yield to their ungodly desires**. You must _**love Jesus first**_, which will be shown by obeying him over others who would want you to go against the Lord's teachings or to just ignore them. This is vitally important. **To be _worthy_ of Jesus, we must love him supremely**. Notice the following two Scriptures about those who **_love_** God:
 
 > However, as it is written: "No eye has seen, no ear has heard, no mind has conceived what God has prepared for **those who love him**" (1 Cor 2:9)
 > 
@@ -53,7 +53,7 @@ We show our love for God by obeying his commands (John 14:15).
 
 Another important fact of your new life in Christ is that you will bother people outside your family who don't have a heart for truth - old friends, coworkers, neighbors, etc. Some of these people will show their annoyance with _persecution_ in various ways. Take heart and be encouraged by what Jesus (and Peter) taught:
 
-[![new converts to christianity baby christians](images/new-convert.jpg "New converts to Christianity")](new-creation.html)
+[![new converts to christianity baby christians](../../files/pictures/new-convert.jpg "New converts to Christianity")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/new-creation.html)
 
 > **Blessed are those who are persecuted because of righteousness, for theirs is the kingdom of heaven. Blessed are you when people insult you, persecute you and falsely say all kinds of evil against you because of me**. Rejoice and be glad, because great is your reward in heaven, for in the same way they persecuted the prophets who were before you. (Mat 5:10-12)
 > 
@@ -61,7 +61,7 @@ Another important fact of your new life in Christ is that you will bother people
 > 
 > They think it strange that **you do not plunge with them into the same flood of dissipation, and they heap abuse on you**. (1 Pet 4:4)
 
-**[Persecution](persecut.htm)** for righteousness, even in the milder form of being excluded or insulted, is a _test_. Loneliness will probably result. That is something all godly people have to deal with from time to time. Sadly, some Christians have _fallen away_ from salvation over the _test of persecution_ or just the fear of it:[![new convert set free from sin](images/guy-set-free.jpg)](romans6.html)
+**[Persecution](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/persecut.htm)** for righteousness, even in the milder form of being excluded or insulted, is a _test_. Loneliness will probably result. That is something all godly people have to deal with from time to time. Sadly, some Christians have _fallen away_ from salvation over the _test of persecution_ or just the fear of it:[![new convert set free from sin](../../files/pictures/guy-set-free.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)
 
 > ... **They believe for a while, but in the time of testing they fall away**. (Luke 8:13)
 
@@ -88,16 +88,16 @@ Similarly, Jesus taught:
 
 
 
-## New Converts Are Called To Be **[_Witnesses_](witnessing.html)**
+## New Converts Are Called To Be **[_Witnesses_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/witnessing.html)**
 
 Jesus stated that the knowledge we need so we won't go astray is that **we will be persecuted and we must testify about Jesus**. We have all been called to be _witnesses_ for the Lord in this dark, sin-cursed age (Acts 1:8). This is how the first-century Christians were, according to the book of Acts.
 
 When I started witnessing (or testifying) about Jesus to others, I simply gave people the word of God. Sometimes I was asked a question I could not answer. I would tell them, "I'll get back with you on that." That gave me a chance to search for an answer in the Bible. After awhile, your ability to fluently witness will become more and more polished as you continue to read and study God's word. **Remember, people are going to Hell all around us and desperately need to know the truth about salvation.**
 
-**An excellent way to spread God's eternal truths to others is by having a [personal tract ministry](tracts.htm), but be sure to use only Biblically sound literature - literature that clearly tells one he must repent (turn from sin) to be saved from Hell. Moreover, don't distribute literature that teaches or implies the lie of [eternal security](eternal-security.html), even if it is free**. Our ministry makes available an excellent and very popular dual-colored salvation tract on _Heaven and Hell_ with the vitals about the **[plan of salvation](plan-of-salvation.html)**. We also have an important article on _tract evangelism._
+**An excellent way to spread God's eternal truths to others is by having a [personal tract ministry](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tracts.htm), but be sure to use only Biblically sound literature - literature that clearly tells one he must repent (turn from sin) to be saved from Hell. Moreover, don't distribute literature that teaches or implies the lie of [eternal security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html), even if it is free**. Our ministry makes available an excellent and very popular dual-colored salvation tract on _Heaven and Hell_ with the vitals about the **[plan of salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**. We also have an important article on _tract evangelism._
 
 
-<big>**[Learn How EASY _Gospel Tract Evangelism_ Is](tracts.htm)**</big>
+<big>**[Learn How EASY _Gospel Tract Evangelism_ Is](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tracts.htm)**</big>
 
 The true gospel, which we are to spread, includes the following truth:
 
@@ -109,19 +109,19 @@ The true gospel, which we are to spread, includes the following truth:
 
 **If you are like many other new converts, when you first came to the Lord, all your friends are ungodly**. In fact, some new converts don't even know a single Christian! But now that you are a follower of Jesus, at least some if not all of these old friends won't like your new priorities. In fact, some might even try to get you to sin or snare you somehow with wickedness. They want you back the way you were when you readily sinned as they still do. Scripture states:
 
-> ... do not share in the sins of others. **[Keep yourself pure](keep-yourself-pure.html)**. (1 Tim 5:22)
+> ... do not share in the sins of others. **[Keep yourself pure](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html)**. (1 Tim 5:22)
 
-<big>**[How To Be Victorious Over Sexual Temptation](sexualtemptation.htm)**</big>
+<big>**[How To Be Victorious Over Sexual Temptation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sexualtemptation.htm)**</big>
 
-<big><big>**[Can Your Name Be Blotted From The Book Of Life](book-of-life.html)**</big></big>
+<big><big>**[Can Your Name Be Blotted From The Book Of Life](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-life.html)**</big></big>
 
-**Sin can make a holy person unholy and a pure person impure and no longer fit to enter heaven**. It can bring a true Christian to his **[spiritual death](spiritual-death.html)** (Rom. 8:13; James 1:14,15 cf. Lk. 15:24,32; etc.). Hence, after you tell your old friends your stand for God, if they want to continue in their sin, don't hang out with them anymore. DANGER: To continue to spend time and go places with such people will open you to spiritual dangers that would never exist otherwise:
+**Sin can make a holy person unholy and a pure person impure and no longer fit to enter heaven**. It can bring a true Christian to his **[spiritual death](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)** (Rom. 8:13; James 1:14,15 cf. Lk. 15:24,32; etc.). Hence, after you tell your old friends your stand for God, if they want to continue in their sin, don't hang out with them anymore. DANGER: To continue to spend time and go places with such people will open you to spiritual dangers that would never exist otherwise:
 
 > Do not be misled: "**Bad company corrupts good character**." (1 Cor 15:33)
 
 **Remember, your old unsaved friends are in darkness and spiritual death. They do not think or react like you. They are also on the road to Hell, even though they don't know it.**
 
-One of the shocking (and vital) truths I learned in the Bible is that Christians are to _avoid_ certain people, places and things. Remember also if Eve would never have gone near that tree with the forbidden fruit she would have never been tempted, which led to her sin and leading Adam into sin also. So avoid places of temptation like swimming pools, beaches, discos, Las Vegas, etc. It is also important to dress modestly so you won't cause another to sin (1 Tim. 2:9). The wicked dress to get others, if possible, to **[lust](lust.html)** after their body! Remember also Rom. 12:2:
+One of the shocking (and vital) truths I learned in the Bible is that Christians are to _avoid_ certain people, places and things. Remember also if Eve would never have gone near that tree with the forbidden fruit she would have never been tempted, which led to her sin and leading Adam into sin also. So avoid places of temptation like swimming pools, beaches, discos, Las Vegas, etc. It is also important to dress modestly so you won't cause another to sin (1 Tim. 2:9). The wicked dress to get others, if possible, to **[lust](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)** after their body! Remember also Rom. 12:2:
 
 > **Do not conform any longer to the pattern of this world**, but be transformed by the renewing of your mind. Then you will be able to test and approve what God's will is - his good, pleasing and perfect will. (Rom 12:2)
 > 
@@ -139,14 +139,14 @@ One of the shocking (and vital) truths I learned in the Bible is that Christians
 
 > **Holding on to faith and a good conscience. Some have rejected these and so have shipwrecked their faith**. Among them are Hymenaeus and Alexander, whom I have handed over to Satan to be taught not to blaspheme. (1 Tim 1:19,20)
 
-**Paul knew the same horrible thing that happened to Hymenaeus and Alexander could also happen to his faithful co-laborer, Timothy. Hence, he gave him these vital responsibilities to follow which would prevent the [loss of salvation](eternal-security.html). For us to enter the kingdom of God we will have to endure to the end to be saved (Mt. 10:22). See also Hebrews 3:14 and Rev. 2:10,11.** Follow Paul's example and advice to Timothy about keeping a clear conscience. This is also one of the reasons you need to be water baptized by immersion now that you have become a Christian (1 Pet. 3:21). **Any true Christian can water baptize you and it doesn't have to be done in a church building.**
+**Paul knew the same horrible thing that happened to Hymenaeus and Alexander could also happen to his faithful co-laborer, Timothy. Hence, he gave him these vital responsibilities to follow which would prevent the [loss of salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html). For us to enter the kingdom of God we will have to endure to the end to be saved (Mt. 10:22). See also Hebrews 3:14 and Rev. 2:10,11.** Follow Paul's example and advice to Timothy about keeping a clear conscience. This is also one of the reasons you need to be water baptized by immersion now that you have become a Christian (1 Pet. 3:21). **Any true Christian can water baptize you and it doesn't have to be done in a church building.**
 
 
 ## New Converts, False Teachers and False Prophets
 
-**All new Christians are hungry for God's truth**. Oftentimes they can never get enough of His precious word. This is clear evidence of God's saving grace in one's life. But with this hunger for God's truth a new danger is opened up - **[false teachers](false.htm)**! One of the great dangers at the end of our age especially is _**[religious deception](religious-deception.html)**_. There are false teachers around us. Examples are Calvinists, [**Jehovah's Witnesses**](jehovahs-witnesses-answered.html), Mormons, [**Catholics**](catholic.html), Muslims, the Church of Christ, [**Jesus Only**](apostolics.html) people and [**Seventh Day Adventists**](sabbath.htm). These people can be very friendly and zealous, but they are spreading deadly false doctrines, especially about salvation and Jesus himself. See Matt. 7:15.
+**All new Christians are hungry for God's truth**. Oftentimes they can never get enough of His precious word. This is clear evidence of God's saving grace in one's life. But with this hunger for God's truth a new danger is opened up - **[false teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)**! One of the great dangers at the end of our age especially is _**[religious deception](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/religious-deception.html)**_. There are false teachers around us. Examples are Calvinists, [**Jehovah's Witnesses**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html), Mormons, [**Catholics**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html), Muslims, the Church of Christ, [**Jesus Only**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/apostolics.html) people and [**Seventh Day Adventists**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sabbath.htm). These people can be very friendly and zealous, but they are spreading deadly false doctrines, especially about salvation and Jesus himself. See Matt. 7:15.
 
-**Beyond them there are also many more false teachers on religious TV and radio, as well as authors of books, articles and tracts, which are not readily known as false teachers.** These would especially include **the eternal security teachers and people compromising with the Catholic church**. (Eternal security is, for the most part, an unrecognized rampant heresy in our dark day.) Without writing a mini book on why these people are so dangerous, suffice it to say they dangerously downplay sin in the life of a Christian and de-emphasize the importance of bringing forth good fruit. **Because of eternal security teachers, multitudes are on the road to hell but think they are on the road to heaven. Consequently, their false doctrine needs to be exposed and refuted, not supported. To support such ministries and local congregations will cause you to share in their wicked work.** (For an exhaustive presentation of this teaching with Scriptural refutation, please see our 801 page book entitled, "[**The Believer's Conditional Security**](dan-corner-the-believers-conditional-security.html).") **Don't just trust what you hear someone teach, even if they are a popular teacher over TV, radio or from a pulpit in a local church. Verify and test everything with the Bible, including miracles. You might be surprised to know that both God and the devil can perform _miracles!_ Click here to read Bible facts about such [miracles](miracles.html) or obtain it from our ministry.**
+**Beyond them there are also many more false teachers on religious TV and radio, as well as authors of books, articles and tracts, which are not readily known as false teachers.** These would especially include **the eternal security teachers and people compromising with the Catholic church**. (Eternal security is, for the most part, an unrecognized rampant heresy in our dark day.) Without writing a mini book on why these people are so dangerous, suffice it to say they dangerously downplay sin in the life of a Christian and de-emphasize the importance of bringing forth good fruit. **Because of eternal security teachers, multitudes are on the road to hell but think they are on the road to heaven. Consequently, their false doctrine needs to be exposed and refuted, not supported. To support such ministries and local congregations will cause you to share in their wicked work.** (For an exhaustive presentation of this teaching with Scriptural refutation, please see our 801 page book entitled, "[**The Believer's Conditional Security**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/dan-corner-the-believers-conditional-security.html).") **Don't just trust what you hear someone teach, even if they are a popular teacher over TV, radio or from a pulpit in a local church. Verify and test everything with the Bible, including miracles. You might be surprised to know that both God and the devil can perform _miracles!_ Click here to read Bible facts about such [miracles](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/miracles.html) or obtain it from our ministry.**
 
 
 ## Churches or _Death Traps?_
@@ -161,7 +161,7 @@ Finally, oftentimes the so-called spiritual leaders themselves and the other peo
 **Godly music will definitely prove to be a tremendous blessing to the new convert. On the other hand, secular music in the form of rock 'n roll, country, oldies, etc. will adversely affect you spiritually. Hence, all music which is not spiritually edifying is potentially dangerous and should be avoided. Again, don't listen to such music at all.** I remember hearing a testimony of a woman who fell away from the Lord for a time, which all began because she started listening to country music. Also, remember that just because music might be religious doesn't mean it is doctrinally sound. **Many dangerous anti-scriptural concepts are conveyed in so-called "gospel" music! You should examine the words of a song as you would a teaching - checking it with the Scriptures.**
 
 
-## [TV](tv.htm) and the New Convert
+## [TV](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tv.htm) and the New Convert
 
 **Perhaps the greatest tool the devil has in the early part of the twenty-first century is television**, which can be magnetizing. The sights and sounds can stay with a person long after the show is over. The Bible says:
 
@@ -172,7 +172,7 @@ Since TV shows are produced by ungodly people to draw ungodly people, much harm 
 
 ## The Bible is Final Authority
 
-**Another vitally important fact for new Christians is the [Bible is final authority](bible.html). This means if an experience, vision, dream, prophecy, teaching, testimony, sensation, feeling, etc. contradicts the written word of God then reject it. It is not God's truth. Furthermore, you won't ever need more than the Bible to accurately learn about salvation and what God wants from you in this life. Some dangerously think you need to supplement the Bible with Sacred Tradition, the [Book of Mormon](book-of-mormon.htm), the Koran, the writings of the ante-Nicene Fathers, etc.** The Bible reads:
+**Another vitally important fact for new Christians is the [Bible is final authority](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html). This means if an experience, vision, dream, prophecy, teaching, testimony, sensation, feeling, etc. contradicts the written word of God then reject it. It is not God's truth. Furthermore, you won't ever need more than the Bible to accurately learn about salvation and what God wants from you in this life. Some dangerously think you need to supplement the Bible with Sacred Tradition, the [Book of Mormon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon.htm), the Koran, the writings of the ante-Nicene Fathers, etc.** The Bible reads:
 
 > All Scripture is God-breathed and is useful for teaching, rebuking, correcting and training in righteousness, so that the man of God may be thoroughly equipped for every good work. (2 Tim 3:16,17)
 
@@ -181,19 +181,19 @@ The man of God is thoroughly equipped for every good work with the Scriptures al
 
 ## What Bible Translation for the New Convert
 
-**As a new Christian, I was misled into thinking the [King James Version of the Bible is the most accurate translation](kjvonly.html) we can read. Consequently, I spent a number of years struggling over this hard to read and misleading Elizabethan English translation. Many [words in the KJV are words that readers have never seen before](kjvo.htm). Hence, readers of the KJV will often just take a guess at their meanings, while many other words seem to be commonly known but in reality have a different meaning from everyday life. All this adds up to frustration and hindrances in understanding God's precious, eternal word. Don't be deceived by KJV Onlyites who say the KJV is not hard to understand**. Obtain a reliable, easy to read and understand translation of the Bible like the New American Standard, New International Version or ESV. In fact, switch off from these three translations for shades of meanings that are not apparent otherwise. Stay in the New Testament to learn especially what Jesus and his apostles taught about salvation. After you read through it perhaps 10 times, then start to learn the Old Testament while you also continue to read the New Testament.
+**As a new Christian, I was misled into thinking the [King James Version of the Bible is the most accurate translation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/kjvonly.html) we can read. Consequently, I spent a number of years struggling over this hard to read and misleading Elizabethan English translation. Many [words in the KJV are words that readers have never seen before](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/kjvo.htm). Hence, readers of the KJV will often just take a guess at their meanings, while many other words seem to be commonly known but in reality have a different meaning from everyday life. All this adds up to frustration and hindrances in understanding God's precious, eternal word. Don't be deceived by KJV Onlyites who say the KJV is not hard to understand**. Obtain a reliable, easy to read and understand translation of the Bible like the New American Standard, New International Version or ESV. In fact, switch off from these three translations for shades of meanings that are not apparent otherwise. Stay in the New Testament to learn especially what Jesus and his apostles taught about salvation. After you read through it perhaps 10 times, then start to learn the Old Testament while you also continue to read the New Testament.
 
 
-## New Converts Should [Memorize Scripture](audio/Memorize.mp3)
+## New Converts Should [Memorize Scripture](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/Memorize.mp3)
 
-**Memorizing God's eternal word will have various benefits throughout your entire [Christian life](christian-life.html)**. There are various reasons why this will help to strengthen, guide and encourage you as it also bolsters your faith to face each new day. The [**devil**](devil.html) will try to hinder you from memorizing God's word. Stick with it and your blessings from such will be great:
+**Memorizing God's eternal word will have various benefits throughout your entire [Christian life](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)**. There are various reasons why this will help to strengthen, guide and encourage you as it also bolsters your faith to face each new day. The [**devil**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devil.html) will try to hinder you from memorizing God's word. Stick with it and your blessings from such will be great:
 
 > How can a young man keep his way pure? By living according to your word. I seek you with all my heart; do not let me stray from your commands. **I have hidden your word in my heart that I might not sin against you.** (Psa 119:9-11)
 
 
 ## New Convert, Your Soul Is Most Precious
 
-**Nothing you own now or ever will own can compare with the value of your soul. Therefore, you need to [guard your SOUL](safegard.html) carefully. See Prov. 4:23\. Heaven is real, but so is Hell. To enter the kingdom of Heaven and escape Hell there are things you must do for yourself now that you are saved, so that you will stay saved. There is salvation maintenance and effort that needs to be exerted to stay with God. That is true [salvation security](salvation-security.htm). See 2 Peter 1:5-12\. Also, notice what the Lord Jesus taught:**
+**Nothing you own now or ever will own can compare with the value of your soul. Therefore, you need to [guard your SOUL](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/safegard.html) carefully. See Prov. 4:23\. Heaven is real, but so is Hell. To enter the kingdom of Heaven and escape Hell there are things you must do for yourself now that you are saved, so that you will stay saved. There is salvation maintenance and effort that needs to be exerted to stay with God. That is true [salvation security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/salvation-security.htm). See 2 Peter 1:5-12\. Also, notice what the Lord Jesus taught:**
 
 > Someone asked him, "Lord, are only a few people going to be saved?" He said to them, **"Make every effort to enter through the narrow door, because many, I tell you, will try to enter and will not be able to."** (Luke 13:23,24)
 
@@ -217,25 +217,25 @@ Several good daily prayers are:
 
 GOD BLESS YOU.
 
-Please also see [**What Does God Want From Me Now That I'm Saved**](godwants.htm) and [**Do Not Be Deceived**](kingdom.htm). Both also have truths for new converts.
+Please also see [**What Does God Want From Me Now That I'm Saved**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/godwants.htm) and [**Do Not Be Deceived**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/kingdom.htm). Both also have truths for new converts.
 
 ![New Christians](../../files/pictures/a-colorb.gif)
 
 Other Subjects:
 
-- **[Universalism](universalism.htm)**
+- **[Universalism](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/universalism.htm)**
 
-- **[The Real Blessed Mother of Jesus, Mary](mother-of-Jesus.html)**
+- **[The Real Blessed Mother of Jesus, Mary](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mother-of-Jesus.html)**
 
-- **[Latter Day Saints (Witnessing To Mormons)](mormon.html)**
+- **[Latter Day Saints (Witnessing To Mormons)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html)**
 
-- **[Calvinism Refuted](calvinismrefuted.html)**
+- **[Calvinism Refuted](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/calvinismrefuted.html)**
 
-- **[Skull And Crossbones Awards For False Prophets And False Teachers](Skull_And_Crossbones.html)**
+- **[Skull And Crossbones Awards For False Prophets And False Teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Skull_And_Crossbones.html)**
 
-**[Contact Us Or Join Our Internet Church](contact.html)**
+**[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
 
-**[Evangelical Outreach](index.html)**  
+**[Evangelical Outreach](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)**  
 **PO Box 265**  
 **Washington, PA 15301**
 

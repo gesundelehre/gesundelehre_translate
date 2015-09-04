@@ -1,5 +1,5 @@
-<!--t Ich Bin Ein Pornografiesüchtiger - in Arbeit (0% übersetzt) t-->
-<!--d Ich Bin Ein Pornografiesüchtiger - in Arbeit (0% übersetzt) d-->
+<!--t Ich Bin Ein Pornografiesüchtiger - in Arbeit (60% übersetzt) t-->
+<!--d Ich Bin Ein Pornografiesüchtiger - in Arbeit (60% übersetzt) d-->
 
 Ich Bin Ein Pornografiesüchtiger
 
@@ -8,24 +8,24 @@ Ich Bin Ein Pornografiesüchtiger
 
 # Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/pornaddict.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornaddict.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/pornografiesuechtiger.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [ww.evangelicaloutreach.org/pornaddict.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornaddict.htm)
+Quelle: [ww.evangelicaloutreach.org/pornaddict.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornaddict.htm)
 
 
 # Ich Bin Ein Pornografiesüchtiger
 
 ![pornography is mental adultery which will damn you to Hell](../files/pictures/sexcoun.jpg)
 
-My name is __________ and I am a porn addict. I have been addicted to pornography since I was 12 years, I am now __ years old, which makes it _ years of addiction. **Pornography is getting the best out of me. It is making me so weak, brain numb and bringing out so much negativity out of me. I use to be a really smart student, but since I turned 18 years old it seems as if I can't do anything right anymore due to the affects I'm suffering from pornography.** I am talking about the loss of seeds. The after effects have gotten much worse for me and **I still can't stop watching pornography. . . . if it wasn't for porn I would've gotten really high marks and gotten scholarships and would've been going to a better university . . . .I'm worried that it is going to destroy . . . my social life, my education, my relationship with my family, basically everything that matter to me the most. P L E A S E H E L P M E ! ! !**
+Mein Name ist __________ und ich bin ein Pornografiesüchtiger. Ich pornografiesüchtig seit ich 12 Jahre alt bin, ich bin nun __ Jahre alt, das bedeutet _ Jahre in der Sucht. **Pornography is getting the best out of me. Es macht mich so schwach, brain numb and bringing out so much negativity out of me. Ich war ein sehr schlauer Student, aber seitdem ich 18 Jahre alt wurde scheint es wie wenn ich nichts mehr richtig machen kann aufgrund der Beeinträchtigungen, die ich von der Pornografie erleide.** Ich spreche vom Verlust von Samen. Die Nachwirkungen wurden viel schlimmer für mich und **ich kann immer noch nicht aufhören, Pornografie zu schauen. . . . wenn es nicht was for porn, so hätte ich wirklich gute Noten gehabt und hätte Stipendien bekommen und wäre auf einere bessere Universität gegangen . . . .Ich bin besorgt darum, dass es . . . mein Sozialleben, meine Bildung, meine Beziehung mit meiner Familie, im Grunde genommen alles was mir am Wichtigsten ist zerstören wird. B I T T E H I L F M I R ! ! !**
 
-## Bible Answer To Porn Addict
+## Bibel Antwort An Pornografiesüchtiger
 
-Dear ________________:
+Lieber ________________:
 
-Greetings in Jesus' name.
+Grüsse in Jesu Namen.
 
-**THERE IS HELP AND VICTORY FOR YOU. There is no doubt you can and will be set free, but there is only one way -- you are going to have to become a Bible-defined Christian.**
+**ES GIBT HILFE UND SIEG FÜR DICH. Es gibt keinen Zweifel daran, dass du frei sein kannst und wirst, aber es gibt nur einen Weg -- du muss ein Bibel-definierter Christ werden.**
 
- You are addicted to **[SIN](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html). It is SIN that is wrecking your life.** The problem is therefore spiritual and needs to be addressed with spiritual medicine. The ONLY remedy is the **[BLOOD OF JESUS](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jesusblood.html)**, which you will contact when you sincerely repent and place a submissive faith in JESUS for your salvation. If you were once saved and backslid to this present condition, you need to be saved again. **No adulterer is saved from the fires of Hell, according to JESUS (Mt. 5:28,29).**
+ Du bist Abhängig von **[SÜNDE](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html). Es ist SÜNDE, die dein Leben is wrecking.** Das Problem ist daher geistlich und muss mit geistlicher Medizin adressiert/behandelt werden. Das EINZGIE Heilmittel/Gegenmittel ist das **[BLUT VON JESUS](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jesusblood.html)**, welches du berühren wirst, wenn du aufrichtig Busse tust und unterwürfig/gehorsam an JESUS glaubst für deine Errettung. Falls du einmal gerettet warst und in diesen Zustand rückfällig wurdest, so musst du wiederum gerettet werden. **Kein Ehebrecher ist laut JESUS gerettet/sicher vor den Feuern der Hölle (Mt. 5,28-29).**
 
 Number 1: After you sincerely repent, ask God for mercy and TRUST JESUS for your soul’s salvation, then DESTROY all porn you presently have and cancel all porn subscriptions, etc. MAKE UP YOUR MIND here and now that you will NOT look at it again ever as long as you live.
 
@@ -34,40 +34,40 @@ Number 2: Please know that TV is a lust generator. Therefore you need to shut of
 **In the place of TV and secular music, MEMORIZE SCRIPTURE and READ/STUDY THE BIBLE. Memorizing Scripture will help through your entire life and it is something that ALL CHRISTIANS SHOULD DO.**
 
  
-When the devil tempts you to commit adultery with porn go over to a fireplace or stove and get close to the fire and think about the pain and agony of hell.
+Wenn dich der Teufel versucht, mit Pornografie Ehebruch zu begehen, dann gehe zu einer Feuerstelle oder einem Kochherd und gehe nahe an das Feuer heran und denke über den Schmerz und die Qualen in der Hölle nach.
 
-**This is VERY SERIOUS and for ALL [ETERNITY](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternity.html). You are fighting the forces of darkness that want your soul in hell. YOU MUST GET SERIOUS ABOUT THESE RESPONSIBILITIES or you will be lost.** Your earthly life will also be ruined.
-
- 
-We know people who were addicted to porn at one time and got the victory through these things. You WILL TOO, if you do them. **Draw near to God and he'll draw near to you.**
+**Dies ist SEHR ERNST und für ALLE [EWIGKEIT](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternity.html). Du kämpfst gegen die Kräfte der Finsternis, die deine Seele in der Hölle haben wollen. DU MUSST GET SERIOUS ABOUT THESE RESPONSIBILITIES oder du wirst verloren gehen.** Auch wird dein irdisches Leben ruiniert werden.
 
  
-**If you are going to a church that teaches eternal security you need to leave it as fast as possible. This is vital too.**
+Wir kennen Leute, die einst pornografiesüchtig waren und den Sieg darüber errungen durch diese Dinge. Das WIRST du AUCH, falls du sie tust. **Draw near to God and he'll draw near to you.**
 
  
-Here are some other stories and materials related to this spiritual attack on your soul
+**Falls du eine Kirche besuchst, welche ewige Sicherheit lehrt, so musst du sie so schnell wie möglich verlassen. Dies ist auch hochwichtig.**
 
-- **[Pornography, Lust and Salvation](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno2.html)**
+ 
+Hier sind einige andere Berichte und Material in Bezug auf diese geistliche Attacke auf deine Seele
 
-- **[Letter From A Man Struggling With Pornographic Lust](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr.html)**
+- **[Pornografie, Begierde und Errettung](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno2.html)**
 
-- **[Pornography Led To An Affair](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr3.html)**
+- **[Brief Von Einem Mann Der Mit Pornografischer Begierde Kämpft](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr.html)**
 
-- **[Lust: Another Name For Adultery](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)**
+- **[Pornografie Führte zu einer Affäre](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr3.html)**
 
-- **[Exposed To Porn Since Age 9](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno3.html)**
+- **[Begierde: Ein Anderer Name Für Ehebruch](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)**
 
-- **[Help! I’m Struggling With Pornography Addiction](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porn6.html)**
+- **[Der Pornografie seit dem Alter von 9 Jahren ausgesetzt](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno3.html)**
 
-- **[Struggling With Pornography](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno.html)**
+- **[Hilfe! Ich Kämpfe Mit Pornografiesucht](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porn6.html)**
 
- Write us back in a month and let us know how things are going.
+- **[Mit Pornografie Kämpfend](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno.html)**
 
- GOD BLESS YOU.
+ Schreib uns in einem Monat zurück und lass uns wissen, wies läuft.
+
+ GOTT SEGNE DICH.
 
 <)><
 
-**Find many articles on various Christian topics at:**
+**Finde viele Artikel über verschiedene Christliche Themen auf:**
 
 **[Evangelical](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

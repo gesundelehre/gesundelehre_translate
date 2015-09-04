@@ -19,20 +19,20 @@ Quelle: [www.evangelicaloutreach.org/godwants.htm](http://gesundelehre.tk/forwar
 
 **[The True Servant of God](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/true-servant.mp3)** (mp3)
 
-**[What Does God Want?](../../files/pictures/WhatDoesGodWant.pdf)** (pdf)  
-**[Fruit or Fire](../../files/pictures/John15Tract.pdf)** (pdf)
+**[What Does God Want?](../files/pictures/WhatDoesGodWant.pdf)** (pdf)  
+**[Fruit or Fire](../files/pictures/John15Tract.pdf)** (pdf)
 </big></big>
 
-![what does God want](../../files/pictures/evangelical-what-does-god-want.jpg "What Does God Want")
+![what does God want](../files/pictures/evangelical-what-does-god-want.jpg "What Does God Want")
 
-![what does God want](../../files/pictures/021.gif "What Does God Want From Me")
+![what does God want](../files/pictures/021.gif "What Does God Want From Me")
 
 [![Encourage Yourself](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 
 ## Here Is The Answer To _What Does God Want From Me_
 
-[![what does God want](../../files/pictures/what-does-God-want.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/fruit-or-fire.htm)
+[![what does God want](../files/pictures/what-does-God-want.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/fruit-or-fire.htm)
 
 **_What does God want?_** That is a very important question to find the correct answer for! I remember before I came to the Lord from my darkened, spiritually-dead perspective, I thought God was to be there for me when I needed Him. I believed if I was in a jam or had a problem then I should be able to call out to Him and He should come to my rescue. Also, I thought then, I was to live my life basically as I chose, while abstaining from certain sins, but when trouble would strike then God was to bail me out.
 
@@ -206,7 +206,7 @@ So to _seek_ the LORD means to turn from your sins and give attention to his tru
 
 Among other things, Christians are told in the Bible to LOVE, SERVE, TRUST and SEEK God, but in all the lead verses showing these from the Bible are the words **_with all your heart_. God wants us to be serious and responsible about these and not _lukewarm_**. What's at stake? **Eternal souls are at stake** - yours, mine and other people whom we can reach with God's word. If you do that, you'll **[bear fruit and won't perish](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/fruit-or-fire.htm)**. That is what God wants.
 
-![what does God want](../../files/pictures/a-colorb.gif)
+![what does God want](../files/pictures/a-colorb.gif)
 
 **Other Subjects:**
 

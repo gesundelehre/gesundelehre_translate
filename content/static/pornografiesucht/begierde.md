@@ -1,4 +1,4 @@
-<!--t Begierde: Ein Anderer Name Für Ehebruch - in Arbeit (0% übersetzt) t-->
+<!--t Begierde: Ein Anderer Name Für Ehebruch - in Arbeit (5% übersetzt) t-->
 <!--d Begierde: Ein Anderer Name Für Ehebruch d-->
 
 Begierde: Ein Anderer Name Für *Ehebruch*
@@ -8,7 +8,7 @@ Begierde: Ein Anderer Name Für *Ehebruch*
 
 # Nachfolgend die Übersetzung der Datei von [evangelicaloutreach.org/lust.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-lehren/begierde.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [www.evangelicaloutreach.org/lust.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)
+Quelle: [www.evangelicaloutreach.org/lust.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)
 
 
 Begierde: Ein Anderer Name Für *Ehebruch*
@@ -21,28 +21,28 @@ Begierde: Ein Anderer Name Für *Ehebruch*
 [**LISTEN To A Teaching Related To Lust and Pornography**](http://media10.cqservers.com/evangelicaloutreach.org/052505.wma) (wma)  
 [**PRINT OUT: Lust Another Name For Adultery**](../../files/eomin.org/lust.pdf) (pdf)  
 
-![lust mental adultery](../files/pictures/evangelical-lust-mental-adultery.jpg)  
+![begierde mentaler ehebruch](../files/pictures/evangelical-lust-mental-adultery.jpg)  
 ![- - -](../files/pictures/021.gif)
 
-[![Lust](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
+[![Begierde](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 <script type="text/javascript" src="http://s7.addthis.com/js/250/addthis_widget.js#username=xa-4ce723c86d857fe0"></script>
 
-## The Sin Of Lust Is *Adultery*
+## Die Sünde Der Begierde Ist _Ehebruch_
 
 In the Sermon on the Mount, the Lord Jesus must have shocked the people of His day when **He equated *lust* in the heart to ADULTERY and added that, that sin of *mental adultery* will send people to HELL!**
 
-[![lust in the heart is adultery mental adultery](../files/pictures/PornGuy.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornography.htm)
+[![im Herzen zu begehren ist mentaler Ehebruch](../files/pictures/PornGuy.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornography.htm)
 
-His actual words about lust being adultery are:
+Seine effektiven Worte bezüglich dass Begierde Ehebruch ist sind folgende:
 > "But I tell you that anyone who looks at a woman **lustfully** has already committed **ADULTERY with her in his heart.** If your right **eye causes you to sin**, gouge it out and throw it away. It is better for you to lose one part of your body than for your whole body to be thrown into **[HELL](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html)**"
 
  **[READ: Do You Realize That HELL Is The Greatest Danger?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/greatest-danger.html)**  
  **[How To Become Victorious Over Sexual Temptation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sexualtemptation.htm)**
  
- Please note the **serious consequences** of lust (mental adultery). **According to Jesus**, it's possible to end up in Hell over lust
+ Bitte beachte die **ernsthaften Konsequenzen** der Begierde (mentaler Ehebruch). **Laut Jesus**, ist es möglich in der Hölle zu enden auf Grund von Begierde.
 
-[![lust mental adultery hell](../files/pictures/lust-hell-warning_de.jpg )](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/crucify-the-flesh.html)
+[![begierde mentaler ehebruch hölle](../files/pictures/lust-hell-warning_de.jpg )](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/crucify-the-flesh.html)
 
 Therefore, the sin of lust must not be taken lightly, as many church people do.
  While driving down the road and listening to a teaching, my wife and I heard a prime example of taking lust far too lightly. The following dialog transpired between a phone caller [Archie] and the host [Gil] after the host presented a hypothetical situation involving lusting over a woman while driving. This is what Archie referred to when he told Gil that he used his "example of driving in the car."
@@ -51,15 +51,17 @@ Therefore, the sin of lust must not be taken lightly, as many church people do.
  **Archie**: "Oh, yeah, all the time."  
  **Gil**: [an outburst of laughter].  
 
-## The Sobering Facts About Lust
+ 
+## Die Ernüchternden Fakten Bezüglich Begierde
 
 The chief aim of this teaching is to provide the sobering facts regarding "lust," as used in Matthew 5:28. While some downplay the serious consequences of lust and mental adultery, others wrongly think the slightest and quickest visual contact on another's body is always adultery. The latter will be greatly relieved to learn this is not so! Similarly, remember this: Temptation in itself is not a sin. Jesus was tempted (Heb. 2:18; 4:15), yet Jesus never sinned (2 Cor. 5:21). Therefore, temptation is not a sin. It only becomes a sin when you yield to it and that leads to ***[spiritual death](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)*** (James 1:14-16). 
 
 **[Your Thought Life Is Very Important](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/our-thought-life.html)**
 
-## Lust Equals *Longing To*
 
-[![lust mental adultery](../files/pictures/lust-mental-adultery-sin-unto-death.jpg "lust is mental adultery which will damn your soul")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html)
+## Begierde ist gleich _Sehnen Nach_
+
+[![begierde mentaler ehebruch](../files/pictures/lust-mental-adultery-sin-unto-death.jpg "lust is mental adultery which will damn your soul")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html)
 
 The Greek word rendered "**lustfully**" (Matt. 5:28, NIV) is found elsewhere and translated in such a way as to help us know the *lust* the Lord equated to mental adultery. This same exact word is found in Lk. 15:16 and Lk. 16:21. It's also significant to note that Jesus gave us these other usages. Hence, he chose to use the same exact word in these other teachings as he chose to use in Matt. 5:28! Respectfully, those verses say:
 
@@ -69,7 +71,7 @@ The Greek word rendered "**lustfully**" (Matt. 5:28, NIV) is found elsewhere and
  
  The facts surrounding the sad circumstances of the **[Prodigal Son](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.html)** and Lazarus, two other places where Jesus also used the word rendered "lustfully" as mentioned in Matt. 5:28, help us to better understand its meaning. Regarding its usage by the Lord in Luke's gospel, it seems evident that **this word carries a meaning with it that makes it much deeper than just a casual glance at a woman, as some wrongly think.** To substantiate this, Strong's Concordance defines this word as **"to set the heart upon, i.e. long for"** (emphasis his, Greek Dictionary, p.31, no. 1937). 
 
-![Eph.5:3-5 includes lust mental adultery](../files/pictures/ZERO.JPG)
+![Eph.5,3-5 umfasst Begierde mentaler Ehebruch](../files/pictures/ZERO.JPG)
 
 Again, a casual glance at the opposite sex is not the lust in the heart being referred to in Matt. 5:28. However, when actual lust does occur, that is, when one **"longs for"** another, then adultery is actually committed! To deny that it is *adultery* is to indirectly doubt the Lordship of Jesus Christ! This also clearly refutes the statement I've often heard -- "It's okay to look [meaning lust], but not to touch." Jesus never taught lust was okay! **Nowhere is this form of adultery through lust, though solely mental, less serious than other forms, although many treat it as such!** Remember, Jesus said it can send one to Hell (Matt. 5:29)! Could He be wrong?
 
@@ -77,15 +79,16 @@ Again, a casual glance at the opposite sex is not the lust in the heart being re
  
  Recently, while waiting to see someone with whom I had an appointment, his office radio was tuned in to a secular station which had a "Penthouse Pet" on as a guest. This woman posed 60 times for Penthouse magazine, yet was hailed as some great celebrity and heroine. She showed no remorse for those sinful acts. Only on Judgment Day will it be revealed how many millions of men committed adultery through lust with that whorish woman. What a fine servant **[Satan](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devil.html)** has in that woman, who shamefully is the envy of many women in our country!
  
- **[READ An Actual Email And Reply To A Man *Struggling With Pornography*](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno.html)**
+ **[LIES Eine Wirkliche Email Und Antwort Von Einem Mann Der _Mit Pornografie Kämpft_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno.html)**
 
-## Sources Of Lustful Adulterous Temptation
+ 
+## Quellen Von Lustful Adulterous Versuchung
 
 [![lust in the heart is mental adultery](../files/pictures/woman.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm)
 
 Men committing mental adultery through lust should also be a sobering thought for women who profess to be Christian and desire to please their Lord. Paul wrote that women are to dress "modestly" (1 Tim. 2:9), yet at the same time, Paul was a grace teacher in the truest sense. So this isn't "law" as some accuse, but simple obedience! To disregard the way you dress might possibly be stumbling another into adultery! (The same applies to a man and his dress, for women can lust too.) Read what Jesus said in Matt. 18:6 about stumbling another into sin and marvel at this! Furthermore, regarding this whole matter of mental adultery, **a woman who dresses with the intent to make men lust after her is on a par with a [prostitute](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm)!**
 
- [![TV is a lust generator. > This picture is copyrighted.](../files/pictures/tvcartoon.jpg "TV is of the devil and should be avoided ")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tv.htm)
+ [![TV ist ein Erzeuger/Generator von Begierden. > Dieses Bild ist urheberrechtlich geschützt.](../files/pictures/tvcartoon.jpg "TV ist vom Teufel und sollte gemieden werden")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tv.htm)
  
 In our generation, **[TV](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tv.htm)** is the prime way people lust and commit mental adultery. Even while watching the news report sometimes one is exposed to spiritually unwholesome scenes, which the devil is pleased to present. These spiritual pollutants flood into homes across our land, then people wonder why they are having trouble with lust! I personally believe that more adultery is committed before the TV set through lust than anywhere else!
 
@@ -117,35 +120,35 @@ The unnamed writer of Ps. 119 both **prayed and hid God's word in his heart** so
 
 Unlike the **[Calvinists](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/calvinismrefuted.html)**, Paul emphasized free will and human responsibility. (He did this without contradicting his own grace message.) He wrote, **"Keep yourself pure"** (1 Tim. 5:22). Undoubtedly, many will have to make MAJOR TV changes to **[obey](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/obey.html)** this command! Victory over TV and lust will benefit you and others in this life and throughout eternity, but get ready for the battle regarding it!
 
- **[Job](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/job.htm)** was the most righteous man on earth in his day -- being blameless, upright, a man that feared God and shunned evil (Job 1:8). This man said of himself, "**I made a covenant with my eyes not to look lustfully at a girl**" (31:1). This is also very important in our day in light of Matt. 5:28,29 and the rampancy of pornographic literature, movies and commercials in our vile country, which generates lust.  
- Paul wrote,
+**[Job](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/job.htm)** was the most righteous man on earth in his day -- being blameless, upright, a man that feared God and shunned evil (Job 1:8). This man said of himself, "**I made a covenant with my eyes not to look lustfully at a girl**" (31:1). This is also very important in our day in light of Matt. 5:28,29 and the rampancy of pornographic literature, movies and commercials in our vile country, which generates lust.  
+Paulus schrieb,
  > Put to death, therefore, whatever belongs to your earthly nature: sexual immorality, impurity, **lust**, evil desires and greed, which is idolatry" (Col. 3:5).
  
- Please note: it's your responsibility coupled with the power of God (Rom. 8:13) that is the victory over lust! It is a **[fight to the death](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/crucify-the-flesh.html)**! It might surprise some to learn that Jesus used the Greek word from which we get our word "**[pornography](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornography.htm)**" in Rev. 22:15, and stated that along with some others, such are "outside" the city of New Jerusalem. (In that verse, the word is rendered "the sexually immoral," NIV.) **If we compare Rev. 21:8 to this same verse, we know their specific location is clearly the lake of fire! Hence, *lust* in the heart equals *adultery* and will send the *mental adulterers* to eternal fire unless they get forgiven and set free through repentance!**
+Please note: it's your responsibility coupled with the power of God (Rom. 8:13) that is the victory over lust! It is a **[fight to the death](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/crucify-the-flesh.html)**! It might surprise some to learn that Jesus used the Greek word from which we get our word "**[pornography](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornography.htm)**" in Rev. 22:15, and stated that along with some others, such are "outside" the city of New Jerusalem. (In that verse, the word is rendered "the sexually immoral," NIV.) **If we compare Rev. 21:8 to this same verse, we know their specific location is clearly the lake of fire! Hence, *lust* in the heart equals *adultery* and will send the *mental adulterers* to eternal fire unless they get forgiven and set free through repentance!**
 
 
 - - - - - -
 
-- [**Prostitute and Prostitution Research and Education**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm)  
-- [**The Slavery, Bondage and Controlling Power of Sin**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)  
-- [**I am a Porn Addict**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornaddict.html)  
-- [**Internet porn**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr5.html)  
-- [**Trying to stop pornography**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr4.html)  
-- [**Help! I'm struggling with porn**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porn6.html)  
-- [**I really want to stop**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/stopporn.html)  
-- [**... lust of the flesh (sexual)**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno5.html)  
-- [**I am a 19 year old struggling with porn**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno4.html)  
-- [**Exposed to pornography since the age of 9**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno3.html)  
-- [**Pornography led to an adulterous affair**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr3.html)  
-- [**If a man gets saved and lusts after women, does he lose his salvation?**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno2.html)  
-- [**Struggling with Pornography**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno.html)  
-- [**Men and Modesty**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr2.html)  
-- [**Pornographic Lust**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr.html)  
-- [**I have been addicted to pornography since age 12**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornography.htm)
+- [**Prostituierte und Prostitution Forsch und und Bildung**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm)  
+- [**Die Sklaverei, Knechtschaft und Kontrollierende Kraft der Sünde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)  
+- [**Ich Bin Ein Pornografiesüchtiger**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornaddict.html)  
+- [**Internetpornografie**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr5.html)  
+- [**Am Versuchen, Mit Pornografie Aufzuhören**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr4.html)  
+- [**Hilfe! Ich Kämpfe Mit Pornografie**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porn6.html)  
+- [**Ich will wirklich aufhören.**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/stopporn.html)  
+- [**... Begierde des Fleisches (sexuelle)**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno5.html)  
+- [**Ich bin ein 19 Jahre alter der mit Pornografie kämpft**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno4.html)  
+- [**Der Pornografie seit dem Alter von 9 Jahren ausgesetzt**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno3.html)  
+- [**Pornografie Führte zu einer ehebrecherischen Affäre**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr3.html)  
+- [**Wenn ein Mann gerettet wird und nach Frauen begehrt/gelüstet, verliert er seine Errettung?**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno2.html)  
+- [**Mit Pornografie Kämpfend**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno.html)  
+- [**Männer und Sittsamkeit/Anstand**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr2.html)  
+- [**Pornografische Begierde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr.html)  
+- [**Ich Bin Pornografiesüchtig Seit Dem Alter Von 12**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornography.htm)
 
 - - - - - -  
 
-[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 [ Evangelical Outreach](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)  
 PO Box 265  
 Washington, PA 15301  
