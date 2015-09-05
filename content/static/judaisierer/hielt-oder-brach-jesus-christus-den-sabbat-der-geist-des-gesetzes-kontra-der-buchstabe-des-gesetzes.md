@@ -1,15 +1,18 @@
-<!--fi  fi-->
+<!--t Hielt oder Brach Jesus Christus den Sabbat? Der Geist des Gesetztes kontra Der Buchstabe des Gesetzes - in Arbeit (0% übersetzt) t-->
+<!--d Sabbat, Samstagssabbat, Buchstabe des Gesetztes, Geist des Gesetzes, Gesetzlichkeit, Judaisierer, Sabbathalten d-->
 
-<!--vid  vid-->
+Hielt oder Brach Jesus Christus den Sabbat? Der Geist des Gesetztes kontra Der Buchstabe des Gesetzes
 
-<!--t Did Jesus Christ Keep or Break the Sabbath? The Spirit of the Law vs. The Letter of the Law t-->
-<!--d Saturday Sabbath, Letter of the Law, Sunday Sabbath, Legalism, Galatianism, Judaizers, Sabbathkeeping d-->
+- - - 
+- - -
 
-Source: [biblicaltruthresources.wordpress.com/2013/12/19/a-greek-study-on-whores-and-whoremongers-jesse-morrell/](https://biblicaltruthresources.wordpress.com/2013/12/19/a-greek-study-on-whores-and-whoremongers-jesse-morrell/)
+# Nachfolgend die Übersetzung der Datei von [https://biblicaltruthresources.wordpress.com/2014/09/22/did-jesus-christ-keep-or-break-the-sabbath-the-spirit-of-the-law-vs-the-letter-of-the-law-jesse-morrell/](http://gesundelehre.tk/forwarder.php?url=https://biblicaltruthresources.wordpress.com/2014/09/22/did-jesus-christ-keep-or-break-the-sabbath-the-spirit-of-the-law-vs-the-letter-of-the-law-jesse-morrell/) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/judaisierer/hielt-oder-brach-jesus-christus-den-sabbat-der-geist-des-gesetzes-kontra-der-buchstabe-des-gesetzes.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-# Did Jesus Christ Keep or Break the Sabbath? The Spirit of the Law vs. The Letter of the Law
+Quelle: [https://biblicaltruthresources.wordpress.com/2014/09/22/did-jesus-christ-keep-or-break-the-sabbath-the-spirit-of-the-law-vs-the-letter-of-the-law-jesse-morrell/](https://biblicaltruthresources.wordpress.com/2014/09/22/did-jesus-christ-keep-or-break-the-sabbath-the-spirit-of-the-law-vs-the-letter-of-the-law-jesse-morrell/)
 
-### By Jesse Morrell
+# Hielt oder Brach Jesus Christus den Sabbat? Der Geist des Gesetztes kontra Der Buchstabe des Gesetzes
+
+### Von Jesse Morrell
 
 Published on September 22, 2014 by OpenAirOutreach.com
 

@@ -17,7 +17,7 @@ Jim Gilles: I keep Sabbath each and every day per Hebrews.
 
 Cult Member: do you wear your best clothes when you do common jobs such as yardwork or working on your car?  If you keep Sabbath everyday, then you don't work but spend every single day and every single moment reading your Bible and worshiping Heavenly Father.  Correct?
 
-Jim Gilles:  Christ is my Sabbath.  I rest in Him!
+Jim Gilles: Christ is my Sabbath.  I rest in Him!
 
 Cult Member: I keep my Heavenly Father's 4th Command.
 
@@ -27,7 +27,7 @@ Cult Member: Your god must be the one created by the pagan Roman Catholic Church
 
 Jim Gilles: Which words are you talking about? The book of Hebrews was written well before the creation of the RCC.
 
-Cult Member:  "I keep Sabbath each and every day" Now where is that Instruction of YHVH found in Leviticus 23?
+Cult Member: "I keep Sabbath each and every day" Now where is that Instruction of YHVH found in Leviticus 23?
 
 Jim Gilles: It is found in the book of Hebrews.
 
@@ -39,7 +39,7 @@ Cult Member: Types and shadows of what is to come....Future events..... YES or N
 
 Jim Gilles: You must be specific as to what you are talking about.  I have no clue what you mean.  The OT gives types and shadows.  The NT reveals and explains the OT types and shadows.
 
-Jim Gilles: For example?
+Cult Member: For example?
 
 Jim Gilles: The 4th commandment of the Sabbath Day rest is explained in the book of Hebrews as a type and shadow of the believer's rest in Christ.
 
@@ -59,7 +59,7 @@ Jim Gilles: Do you hold the book of Hebrews of equal validity as the Torah?
 
 Cult Member: The first 5 Books are the Words of Yeshua spoken to and through Moses.  They are the foundation Word which gives LIFE.
 
-Jim Gilles: Do you offer red hefers, goats, turtle doves and lambs as blood sacrifices?
+Jim Gilles: Do you offer red heifers, goats, turtle doves and lambs as blood sacrifices?
 
 Cult Member: Deuteronomy 8:3 CJB He humbled you, allowing you to become hungry, and then fed you with man, which neither you nor your ancestors had ever known, to make you understand that a person does not live on food alone but on everything that comes from the Mouth of YHVH.
 
@@ -71,7 +71,7 @@ Jim Gilles: Oh, so now you admit that there is a NT.  Great, we are getting some
 
 Cult Member: Melchizedek is in Genesis. It is Yeshua who meets with Abraham, Isaac, Jacob, Moses, etc.
 
-Jim Gilles:  If you acknowledge that Jesus is the antitype to the types and shadows of the high priestly ministry of the OT then why do you not accept that Jesus is also our Sabbath rest per Hebrews?  If Jesus is your high priest then why is Jesus not your Sabbath?
+Jim Gilles: If you acknowledge that Jesus is the antitype to the types and shadows of the high priestly ministry of the OT then why do you not accept that Jesus is also our Sabbath rest per Hebrews?  If Jesus is your high priest then why is Jesus not your Sabbath?
 
 Cult Member: Your god is the one created by the pagan Roman Catholic Church 1700 years ago.  You even use his pagan name.
  

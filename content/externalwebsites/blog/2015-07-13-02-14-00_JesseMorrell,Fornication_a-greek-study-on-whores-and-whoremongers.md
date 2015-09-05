@@ -1,7 +1,3 @@
-<!--fi  fi-->
-
-<!--vid  vid-->
-
 <!--t Greek Study on Whores and Whoremongers t-->
 <!--d Whore Whoremongers Porneia Pornos Porne; Thayer defines πορνεία as “illicit sexual intercourse” of any kind, including “adultery, fornication, homosexuality, lesbianism, intercourse with animals etc… sexual intercourse with close relatives… sexual intercourse with a divorced man or woman… d-->
 
@@ -11,14 +7,14 @@ Source: [biblicaltruthresources.wordpress.com/2013/12/19/a-greek-study-on-whores
 
 ### By Jesse Morrell
 
-Published on December 19, 2013	by OpenAirOutreach.com
+Published on December 19, 2013 by OpenAirOutreach.com
 
 - - -
 
 This is an interesting Greek Bible study on whores, whoremongers, harlots, fornicators, fornication, etc.
 
 - The New Testament Greek word for harlot and whore is porne (πόρνη).
-- The New Testment Greek word fornicator and whoremonger is pornos (πόρνος)
+- The New Testment Greek word fornicator and whoremonger is pornos (πόρνος).
 - The New Testament Greek word for fornication is porneia (πορνεία).
 
 Thayer defines πορνεία as “illicit sexual intercourse” of any kind, including “adultery, fornication, homosexuality, lesbianism, intercourse with animals etc… sexual intercourse with close relatives… sexual intercourse with a divorced man or woman…”

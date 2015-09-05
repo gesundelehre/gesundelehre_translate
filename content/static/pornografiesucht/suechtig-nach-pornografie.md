@@ -1,5 +1,5 @@
-<!--t Süchtig nach Pornografie - in Arbeit (40% übersetzt) t-->
-<!--d Süchtig nach Pornografie - in Arbeit (40% übersetzt) d-->
+<!--t Süchtig nach Pornografie - in Arbeit (99% übersetzt) t-->
+<!--d Pornografie, Sucht, Freiheit d-->
 
 Süchtig nach Pornografie
 
@@ -15,9 +15,9 @@ Quelle: [www.evangelicaloutreach.org/stopporn.htm](http://gesundelehre.tk/forwar
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-[Das folgende ist eine Email erhalten von Evangelical Outreach]
+[Das Folgende ist eine Email erhalten von Evangelical Outreach]
 
-Ich bin 15 Jahre [süchtig nach Pornografie] und im Begriff in die 11te Klasse zu kommen. Ich kämpfe mit diesem Problem schon immer seit der sechsten Klasse. Meine Familie ist christilch und wir gehen alle zur Kirche obwohl ich kein treuer Christ bin, wie du sehen kannst Ich kann nicht aufhören, Pornografie zu schauen, sei es am **[Fernseher/TV](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tv.htm)** oder im Internet. Jedes Mal wenn ich Pornografie anschaue, fühle ich mich anschliessend schuldig, aber das Gefühl geht wieder weg. Ich versuchte, um Vergebung zu bitten, aber lediglich ein Tag oder so später finde ich mich selbst wieder vor, es anschauend. Ich möchte wirklich aufhören. Meine Eltern haben das Vertrauen in mich verloren und ich kann ihnen nicht länger in ihre Augen schauen. Ich habe sie um das Geld beraubt, wofür sie hart gearbeitet hatten. Täglich ist es wie ein ein Kampf in meinem Verstand, Versuchung abzuwehren. Ich will wirklich aufhören.
+Ich bin 15 Jahre [süchtig nach Pornografie] und im Begriff in die 11te Klasse zu kommen. Ich kämpfe mit diesem Problem schon immer seit der sechsten Klasse. Meine Familie ist christlich und wir gehen alle zur Kirche obwohl ich kein treuer Christ bin, wie du sehen kannst Ich kann nicht aufhören, Pornografie zu schauen, sei es am **[Fernseher/TV](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tv.htm)** oder im Internet. Jedes Mal wenn ich Pornografie anschaue, fühle ich mich anschliessend schuldig, aber das Gefühl geht wieder weg. Ich versuchte, um Vergebung zu bitten, aber lediglich ein Tag oder so später finde ich mich selbst wieder vor, es anschauend. Ich möchte wirklich aufhören. Meine Eltern haben das Vertrauen in mich verloren und ich kann ihnen nicht länger in ihre Augen schauen. Ich habe sie um das Geld beraubt, wofür sie hart gearbeitet hatten. Täglich ist es wie ein ein Kampf in meinem Verstand, Versuchung abzuwehren. Ich will wirklich aufhören.
 
 * * *
 
@@ -25,25 +25,25 @@ Ich bin 15 Jahre [süchtig nach Pornografie] und im Begriff in die 11te Klasse z
 
 Grüsse in Jesu Namen.
 
-We are very sorry to read about your sin addiction to **[mental adultery](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)**. Please know that Jesus' blood liberates from ALL sins, including that one.
+Es tut uns leid, über deine sündhafte Abhängigkeit nach **[mentalem Ehebruch](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)** zu lesen. Bitte wisse, dass Jesu Blut von ALLER Sünde befreit, einschliesslich dieser.
 
-It is VITAL for you to know that you are unsaved because of this sin. See Mt. 5:28,29\. Since NO SIN is worth going to hell over, this must be turned from. It is dragging you to hell. YOU can do it with God's help.
+Es ist HOCHWICHTIG/ENTSCHEIDEND für dich zu wissen, dass du aufgrund dieser Sünde Unerrettet/Nichterlöst bist. Siehe Mt. 5,28-29\. Da KEINE SÜNDE es wert ist, deshalb zur Hölle zu gehen, muss man sich hiervon abwenden. Sie zieht dich in die Hölle. DU kannst es tun mit mit Gottes Hilfe.
 
-The first step is to get down on your knees and ask God for mercy and salvation. Tell him you are sorry and will turn from such demonic material as that and serve God all the days of your life. After you mourn and grieve over your sin, get off your knees and DESTROY ALL porno you have and cancel all such DEMONIC magazine subscriptions, etc.
+Der erste Schritt, ist auf deine Knie zu gehen und Gott um Barmherzigkeit und Errettung/Heil/Seelenheil zu bitten. Sage ihm, dass es dir leid tut, und dass du von solchem dämonischen Material umkehren wirst und Gott alle Tage deines Lebens dienen wirst. Nachdem du über deine Sünde getrauert hast und bekümmert wars, steh wieder auf und ZERSTÖRE ALLE Pornografie die du hast und kündige alle solche DÄMONISCHEN Zeitschriftenabonnemente, etc.
 
-The next step is to fill your mind with PURE THINKING. That will come by reading and meditating on the Bible. We know a grown man who once was addicted to porno. After repenting he read the Bible daily and was doing fine. COMPLETE VICTORY IS YOURS, but you must do your part. God will give you the strength.
+Der nächste Schritt ist, dein Gemüt/Verstand mit REINEM DENKEN zu füllen. Dies wird geschehen durch das lesen der und das Nachsinnen/Nachdenken/Meditieren über die Bibel. Wir kennen einen erwachsenen Mann, der einst süchtig war nach Pornografie. Nachdem er Busse tat, las er die Bibel täglich und hatte guten Erfolg. KOMPLETTER SIEG IST DEIN, aber du musst deinen Teil tun. Gott wird dir die Kraft geben.
 
-Read at least 3 chapters of the Bible twice a day. Perhaps at first you should read 5 chapters three times a day. You have to make to call on this. It will get EASIER and EASIER as you WASH out that filth in your mind with the water of God's word.
+Lies mindestens 3 Kapitel der Bibel zweimal täglich. Vielleicht solltest du zu Beginn täglich drei Mal 5 Kapitel lesen. Du musst es in Anspruch nehmen. Es wird EINFACHER und EINFACHER werden während du diesen Schmutz in deinem Verstand mit dem Wasser von Gottes Wort HERAUSWÄSCHST.
 
-By the way, read an easy to read, reliable translation like the NIV, NRSV or NASB. MEMORIZING Scripture will help just as much or more.
+Übrigens, lies eine einfach zu lesende, zuverlässige Übersetzung wie die NIV, NRSV oder NASB. [Anmerkung: im Deutschen ist die Schlachter2000 empfehlenswert] Die Heilige Schrift AUSWENDIG zu LERNEN wird dir genauso und mehr helfen.
 
-You can do MUCH with your mind for God rather than letting the devil use it as he has. The choice is yours.
+Du kannst mit deinem Verstand VIEL für Gott tun anstatt zulassen, dass der Teufel ihn gebraucht, wie er getan hat. Du hast die Wahl.
 
-PLEASE keep in touch. GOD BLESS YOU.
+BITTE bleibe weiterhin in Kontakt. GOTT SEGNE DICH.
 
 * * *
 
-[Contact Us Or Join Our Email List](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[Kontaktiere Uns Oder Tritt Unserem Emailverteiler Bei](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical Outreach](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)**  
 **PO Box 265**  

@@ -1,17 +1,17 @@
-<!--t Von Heirat-Scheidung-Wiederheirat-Ehebruch - in Arbeit (0% übersetzt) t-->
-<!--d Von Heirat-Scheidung-Wiederheirat-Ehebruch d-->
+<!--t Von Heirat-Scheidung-Wiederverheiratung-Ehebruch - in Arbeit (0% übersetzt) t-->
+<!--d Heirat, Ehe, Ehebruch, Scheidung, Wiederverheiratung, Wiederheirat, Unzucht, Hurerei d-->
 
-Lehre bezüglich Heirat-Scheidung-Wiederheirat-Ehebruch
+Lehre bezüglich Heirat-Scheidung-Wiederverheiratung-Ehebruch
 
 - - -
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [evangelicaloutreach.org/divorce.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/divorce.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-lehren/heirat-scheidung-wiederheirat-ehebruch.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Nachfolgend die Übersetzung der Datei von [evangelicaloutreach.org/divorce.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/divorce.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/unzucht-homosexualitaet-ehebruch/heirat-scheidung-wiederverheiratung-ehebruch.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
 Source: [www.evangelicaloutreach.org/divorce.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/divorce.html)
 
 
-Divorce, Remarriage and Adultery
+Scheidung, Wiederverheiratung und Ehebruch
 ===
 
 **An actual post and a Biblical response.**

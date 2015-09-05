@@ -23,7 +23,7 @@ In the meantime ... I’m struggling with pornography addiction. I picked this u
 
 I am very worried about this now. I believe that I’m committing a sin against Christ. I don’t want to go to hell. I am also worried about the way this alters my feelings inwardly. I feel guilty and weird. Alienated from Jesus Christ afterwards. I can’t dare ask for true forgiveness after these sins!
 
-What can I do ? How long will I have to wait before I can ask forgiveness? I’m not good enough to ask now because I just looked at it yesterday. Why aren’t there any REAL groups lobbying the government and showing them what’s really going on and how sick, twisted and evil these people are and how far they are taking this pornography. I AM ONLY __ YEARS OLD. I HOPE I STILL HAVE TIME LEFT. PLEASE PRAY FOR ME.
+What can I do ? How long will I have to wait before I can ask forgiveness? I’m not good enough to ask now because I just looked at it yesterday. Why aren’t there any REAL groups lobbying the government and showing them what’s really going on and how sick, twisted and evil these people are and how far they are taking this pornography. ICH BIN LEDIGLICH __ JAHRE ALT. ICH HOFFE DASS ICH IMMER NOCH ZEIT ÜBRIGT HABE. BITTE BETE(T) FÜR MICH.
 
 Shedding tears,
 

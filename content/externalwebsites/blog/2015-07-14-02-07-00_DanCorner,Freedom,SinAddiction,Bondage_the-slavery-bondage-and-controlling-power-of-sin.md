@@ -69,7 +69,7 @@ Another example of idolatry _ensnaring_ those that are involved in it is found i
 
 The imagery of these Scriptures shows the powerless spiritual condition the unsaved are in (Rom. 5:6), that is, as a _captured_ victim ensnared by _cords_ (or _ropes_) of sin. Beyond all of that he is also a _slave to sin._ 
 
-## [This Proves Sin Is Still The Issue](sin-is-the-issue.htm)
+## [This Proves Sin Is Still The Issue](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin-is-the-issue.htm)
 
 ## Jesus Will Set You _Free_ From The Power of Sin
 

@@ -6,7 +6,7 @@ Ist Geschlechtsverkehr/Sexuelle Vereinigung der Zeitpunkt der Heirat?
 - - - 
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/point-of-marriage.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/point-of-marriage.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-lehren/heirat-ist-geschlechtsverkehr-der-zeitpunkt-der-heirat.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/point-of-marriage.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/point-of-marriage.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/unzucht-homosexualitaet-ehebruch/heirat-ist-geschlechtsverkehr-der-zeitpunkt-der-heirat.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
 Source: [www.evangelicaloutreach.org/point-of-marriage.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/point-of-marriage.html)
 

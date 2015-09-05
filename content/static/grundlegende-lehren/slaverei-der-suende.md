@@ -71,9 +71,11 @@ Ein weiteres Beispiel dafür dass Götzendienst jene, die daran beteiligt sind _
 
 The imagery of these Scriptures shows the powerless spiritual condition the unsaved are in (Rom. 5:6), that is, as a _captured_ victim ensnared by _cords_ (or _ropes_) of sin. Beyond all of that he is also a _slave to sin._ 
 
-## [Dies Beweist, dass Sünde Immer Noch Das Problem Ist](sin-is-the-issue.htm)
+## [Dies Beweist, dass Sünde Immer Noch Das Problem Ist](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin-is-the-issue.htm)
+
 
 ## Jesus Wird Dich _Befreien_ Von Der Macht der Sünde
+
 
 Im folgenden Abschnitt, wird **_die Wahrheit_ (welche einen von Sünde befreien wird) mit _dem Sohn_, das heisst, mit Jesus Christ selbst gleichgestellt:** 
 > Da sprach Jesus zu den Juden, die an ihn gläubig geworden waren: Wenn ihr in meinem Worte bleibet, so seid ihr wahrhaftig meine Jünger, und ihr werdet die Wahrheit erkennen, und **die Wahrheit wird euch frei machen!** Sie antworteten ihm: Wir sind Abrahams Same und sind nie jemandes **Knechte** gewesen; **wie sprichst du denn: Ihr sollt frei werden?** Jesus antwortete ihnen: Wahrlich, wahrlich, ich sage euch: **Wer Sünde tut, ist der Sünde Knecht**. Der Knecht aber bleibt nicht ewig im Hause; der Sohn bleibt ewig. **Wird euch nun der Sohn frei machen, so seid ihr wirklich frei.** (Johannes 8,31-36).
@@ -91,6 +93,7 @@ nachdem ihr dem in der Welt durch die Lust herrschenden Verderben entflohen seid
 
 > His divine power has given us everything we need for life and godliness through **our knowledge of him** who called us by his own glory and goodness. Through these he has given us his very great and precious promises, so that through them you may participate in the divine nature and **escape** the corruption in the world caused by evil desires (2 Pet. 1:3,4).
 
+
 ## [Klicke Für Mehr Wahrheit Über JESU Blut](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jesusblood.html) 
 ## Wiederum _Gefangen_ In der Sünde
 
@@ -99,6 +102,7 @@ nachdem ihr dem in der Welt durch die Lust herrschenden Verderben entflohen seid
 
 Der Apostel schrieb auch von derselben Möglichkeit die denen wieder geschieht, welche wirklich gerettet waren. In 1 Peter, war seine Zuhörerschaft bereits _wiedergeboren_ (1,23) und durch **[Jesu _kostbares Blut_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jesusblood.html)** _losgekauft_ (1:18), but such would not, in itself, prevent them from becoming _captive_ to sin again, wie es Simon geschah (Apg 8,13, 23). Konsequenterweise muss freier Wille und menschliche Verantwortung daran beteiligt sein, frei zu bleiben. Anstatt sich den bösen Lüsten zu fügen, die wir hatten, als wir nicht gerettet waren, sind wird Christen befohlen, **_heilig zu sein in allem was sie tun:_**
 > As obedient children, **do not conform to the evil desires you had when you lived in ignorance**. But just as he who called you is holy, so **be holy in all you do**; for it is written: "**Be holy**, because I am holy" (1 Pet. 1:14-16). 
+
 
 ## _Sei Heilig in Allem Was Du Tust_
 
@@ -114,9 +118,10 @@ Aber das ist nicht alles, was der Apostel über jene apostates schrieben, das he
 **Petrus wusste nicht nur, dass des Gläubigen Sicherheit konditionell/bedingt war, sondern lehrte mutig und eindeutig dass ein wahrer Christ _den straight Weg verlassen_ kann. Einige verweigern jedoch diese biblische Tatsache zu akzeptieren und im Gegensatz dazu schwatzen sie nach [engl. parrot]: _Sie waren [von Anfang an nie wirklich errettet](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/neversavedargument.htm)_. To live in _the straight way_ carries the same benefit as _having escaped the corruption of the world by knowing our Lord and Savior Jesus Christ_**. But such a person, who departs from _the straight way_, will then become _entangled_ and _overcome_ by sin's corruption _again_! It is about such former Christians, who _turn their backs on the sacred command_ that Peter stated: 
 > It would have been better for them not to have **known the way of righteousness**, than to have known it and then to **turn their backs** on the sacred command that was passed on to them. 
 
+
 ## Die Gefahr des Rückfalls
 
-Mit anderen Worten, **do not [backslide](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/backslider.html)** or sin's _entanglement_ and _slavery_ will be worse than it was before initial salvation! But if backsliding has already occurred, **one can get saved (and _freed_) again**, according to the Biblical record: 
+Mit anderen Worten, **werde nicht [rückfällig/abtrünnig](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/backslider.html)** or sin's _entanglement_ and _slavery_ will be worse than it was before initial salvation! But if backsliding has already occurred, **one can get saved (and _freed_) again**, according to the Biblical record: 
 > Denn dieser mein Sohn war tot und **ist wieder lebendig geworden; er war verloren und ist wiedergefunden worden**. Und sie fingen an, fröhlich zu sein. (Lk. 15,24).
 
 > **Brethren, if anyone among you wanders from the truth, and someone turns him back**, let him know that **he who turns a sinner from the error of his way will save a soul from death and cover a multitude of sins** (James 5:19, 20, NKJV).
@@ -132,6 +137,7 @@ Dear reader, **do not be deceived by the false _grace_ message of OSAS (**[once 
 
 **According to true grace teaching, eternal life is a _hope_ (Titus 3:7), yet to be _reaped_ (Gal. 6:8,9), in the _age to come_ (Mk. 10:30), for only the ones who _persist in doing good_ (Rom. 2:7) and don't grow weary and _give up_ (Gal. 6:9).** 
 
+
 ## Des Teufels _Gefangener_
 
 The apostle Paul also noted the spiritual _captivity_ that an unsaved person is in. Hence, he informed Timothy how God's truth is to be presented _to those who oppose him_: 
@@ -145,6 +151,7 @@ Johannes erwähnte auch die geistliche Knechtschaft der Ungeretteten, benannt al
 
 Paul also wrote of a Christian's past life of being a _slave_ to sin, but went further to explicitly state that  **they _have been set free from sin_**: 
 > **Nachdem ihr aber von der Sünde befreit wurdet**, seid ihr der Gerechtigkeit dienstbar [= Sklaven] geworden. Ich muß menschlich davon reden wegen der Schwachheit eures Fleisches. Gleichwie **ihr eure Glieder in den Dienst der Unreinigkeit und der Gesetzwidrigkeit gestellt habt, um gesetzwidrig zu handeln**, so stellet nun eure Glieder in den Dienst [= Sklaverei] der Gerechtigkeit zur Heiligung. Denn **als ihr Knechte der Sünde waret, da waret ihr frei gegenüber der Gerechtigkeit**. Was hattet ihr nun damals für Frucht? Solche, deren ihr euch jetzt schämet; **denn das Ende derselben ist der Tod. Nun aber, da ihr von der Sünde frei und Gott dienstbar [=Sklaven] geworden seid, habt ihr als eure Frucht die Heiligung, als Ende aber das ewige Leben.** (Röm. 6,18-22; Schlachter1951).
+
 
 ## Das Heutige Falsche _Evangelium_
 
@@ -172,6 +179,7 @@ Remember, what Jude called a counterfeit _grace_ message and _license for immora
 May multitudes in our day become aware of the _freedom_ from sin's slavery found in Jesus' blood through his one and only _gospel_ of grace, and afterwards faithfully work out their own salvation with _fear and trembling_ (Phil. 2:12), being mindful that a true Christian can go back to their old sinful life, die spiritually and become _entangled_ by sin all over again. 
 
 **Finally, may the Lord raise up millions, all over the world, who will fearlessly _contend_ for these Biblical truths, like good Christian soldiers, in spite of how they might suffer for obeying the Lord and opposing the popular, false prophets! Precious eternal souls are hanging in the balance over these issues. _Slaves of sin_ can be set free! The _power of sin_ can be broken through the Lord Jesus Christ!** 
+
 
 ### Endnote
 
