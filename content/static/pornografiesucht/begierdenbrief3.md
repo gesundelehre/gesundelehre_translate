@@ -1,4 +1,4 @@
-<!--t Begierdenbrief3: Pornografie führte zu einer Affäre - in Arbeit (99% übersetzt) t-->
+<!--t Begierdenbrief3: Pornografie führte zu einer Affäre (99% übersetzt) t-->
 <!--d Begierdenbrief3: Pornografie führte zu einer Affäre - in Arbeit (99% übersetzt) d-->
 
 Begierdenbrief3: Pornografie Führte zu einer Affäre
@@ -6,7 +6,7 @@ Begierdenbrief3: Pornografie Führte zu einer Affäre
 - - - 
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/lustltr3.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr3.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/begierdenbrief3.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Übersetzungsvorschläge können [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/begierdenbrief3.md) auf github gemacht werden.
 
 Quelle: [www.evangelicaloutreach.org/lustltr3.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr3.htm)
 

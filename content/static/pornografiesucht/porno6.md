@@ -1,12 +1,12 @@
-<!--t Porno6: Hilfe! Ich Kämpfe Mit Pornografiesucht - in Arbeit (0% übersetzt) t-->
-<!--d Porno6: Hilfe! Ich Kämpfe Mit Pornografiesucht - in Arbeit (0% übersetzt) d-->
+<!--t Porno6: Hilfe! Ich Kämpfe Mit Pornografiesucht - in Arbeit (95% übersetzt) t-->
+<!--d Pornografiesucht, Pornografie, Porno, Sucht, Süchtig, Pornografiesüchtig, Freiheit von Pornografiesucht, Freiheit von Pornografie, Begierde, Begierden, Lust, Geil, Wollust, Schmutzige Gedanken, Freiheit von Schmutzigen Gedanken d-->
 
 Porno6: Hilfe! Ich Kämpfe Mit Pornografiesucht
 
 - - - 
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/porn6.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porn6.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/porno6.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Übersetzungsvorschläge können [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/porno6.md) auf github gemacht werden.
 
 Quelle: [www.evangelicaloutreach.org/porn6.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porn6.htm)
 
@@ -14,44 +14,45 @@ Quelle: [www.evangelicaloutreach.org/porn6.htm](http://gesundelehre.tk/forwarder
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-[Bible Question]
- I am __ years old. When I was younger I was in a long relationship with a girl in which I "knew" I found "the one" and would live happily ever after. After we broke up I refused to have sex with anyone because my "Juliet" was gone for good and never to return. Ever since I have had chances to be with other women. I am good looking and have open and easy invitations for sex on multiple occasions and I always turn it down - mostly because of fear of the unknown and the number of sexual partners these girls have spread themselves open for.
+[Bibel Frage]
+ Ich bin __ Jahre alt. Als ich jünger war, war ich in einer langen Beziehung mit einem Mädchen von welchem ich "wusste" dass ich "die eine" gefunden hatte und mit ihr bis dass der Tod uns scheiden würde zusammenleben würde. Nachdem wir Schluss gemacht hatten, verweigerte ich Sex mit irgendjemandem, zu haben, da meine "Juliet" gegangen war for good und niemals zurückkehren würde [_engl. was gone for good and never to return_]. Seitdem hatte ich die Gelegenheit mit andern Frauen zusammen zu sein. Ich sehe gut aus und habe easy invitations für Sex an mehreren Gelegenheiten [_eng. have open and easy invitations for sex on multiple occasions_] und ich lehne es immer ab - hauptsächlich auf Grund von Angst vor dem Unbekannten und der Zahl der Sex Partner für welche sich die Mädchen gespreizt haben.
+ [_engl. mostly because of fear of the unknown and the number of sexual partners these girls have spread themselves open for._]
 
-My friends can’t understand why I won’t have sex and what my problem is. But as a result of this fear I have not had sex in over __ years. God has been generous and good to me in all other aspects. But after __ years of celibacy I feel like I’m going INSANE. If I did not have ______, a stable family that’s loves me, and ______ in my life I don’t know what I would do. God has been good to me in every other respect but this __ years of loneliness (I have not even kissed ANYONE in __ years) is more than I can bear. Nobody really knows it has been this long I am afraid if I tell people will shun me. So I lie and lie and lie about it.
+Meine Freunde können nicht verstehen, warum ich keinen Sex haben will und was mein Problem ist. Aber als ein Resultat dieser Angst hatte ich keinen Sex in über __ Jahren. Gott war grosszügig und gut zu mir in allen anderen Aspekten. Aber nach __ Jahren von Zölibat fühlt es sich so an, als ob ich VERRÜCKT würde. Wenn ich in meinem Leben nicht ______, eine stabile Familie, die mich liebt, und ______ hätte, so wüsste ich nicht, was ich tun würde. Gott war gut zu mir in jeder anderen Hinsicht aber diese __ Jahre der Einsamkeit (Ich habe nicht einmal IRGENDJEMANDEN in __ Jahren geküsst) sind mehr als ich ertragen kann. Niemand weiss wirklich, dass es so lange war. Ich habe Angst davor, wenn ich es sage, dass mich Leute meiden werden. Daher lüge und lüge und lüge ich darüber.
 
-In the meantime ... I’m struggling with pornography addiction. I picked this up about 4 years ago. I'd seen it before that as "fun" but never with any real interest beyond laughing at the poor acting, B grade dialogue, and ugly "actors". I never used to look at this before and if I was married I would have no reason to!!!! Time after time again I say I will not look at it anyone. Sometimes I succeed and am able refuse to look at it or turn it off in the midstream. Sometimes I’ll go for weeks or months on end and not look at it. I feel better at these times like drug addiction it gets easier as time progresses. But invariably I go back to it again. The things they have on the internet are worse than sodom and Gomorrah these days - times have changed - and they are effecting everybody and nobody’s doing anything about it. ... It’s in the privacy of my own home in "secret" too ...This makes it even worse sin and more temptation. It’s like offering the chance to steal a BMW with a known guarantee that you will never get caught (by humans).
+In der Zwischenzeit .... Ich kämpfe mit Pornografiesucht. Ich hab das etwa vor 4 Jahren aufgelesen. Davor sah ich es als "Spass" [_engl. fun] an aber nie mit irgendeinem wirklichen Interesse jenseits der armseligen Schauspielkunst, B-klassige Dialoge und hässliche "Akteure". Vorher schaute ich sowas niemals an und wenn ich verheiratet wäre, so hätte ich kein Grund dazu!!!! Jedes Mal von Neuem sage ich, dass ich es nicht mehr anschauen werde. Manchmal habe ich Erfolg und kann ablehnen es anzuschauen oder mittendrin abzuschalten. Manchmal schaffe ich es, es Wochen oder Monate in Folge [_engl. on end_] nicht anzuschauen. Während diesen Zeiten fühle ich mich besser, wie Drogenabhängigkeit fühlt es sich besser an, wenn die Zeit fortschreitet. Aber ich gehe ausnahmslos wieder dahin zurück. Die Dinge die sie im Internet haben sind schlimmer als Sodom und Gomorra - heutzutage haben sich die Zeiten geändert - und es hat Auswirkungen auf jeden und niemand tut etwas dagegen. ... Es ist im Privatbereich meines eigenen Zuhause auch im "Geheimen" ... Dies macht es noch schlimmere Sünde und mehr Versuchung. Es ist wie jemandem die Chance anzubieten, einen BMW zu stehlen, mit einer bewussten Garantie, dass man niemals dabei (von Menschen) erwischt wird.
 
-I am very worried about this now. I believe that I’m committing a sin against Christ. I don’t want to go to hell. I am also worried about the way this alters my feelings inwardly. I feel guilty and weird. Alienated from Jesus Christ afterwards. I can’t dare ask for true forgiveness after these sins!
+Ich bin momentan sehr besorgt darüber. Ich glaube, dass ich Sünde gegen Christus begehe. Ich will nicht in die Hölle kommen. Ich bin auch besorgt darüber, wie dies meine Gefühle innerlich verändert. Ich fühle mich schuldig und komisch. Von Jesus Christus anschliessend entfremdet. Ich kann es nicht wagen, nach diesen Sünden um wahre Vergebung zu bitten!
 
-What can I do ? How long will I have to wait before I can ask forgiveness? I’m not good enough to ask now because I just looked at it yesterday. Why aren’t there any REAL groups lobbying the government and showing them what’s really going on and how sick, twisted and evil these people are and how far they are taking this pornography. ICH BIN LEDIGLICH __ JAHRE ALT. ICH HOFFE DASS ICH IMMER NOCH ZEIT ÜBRIGT HABE. BITTE BETE(T) FÜR MICH.
+Was kann ich tun? Wie lange muss ich warten, bevor ich um Vergebung bitten kann? Ich bin momentan nicht gut genug, um zu fragen, da ich es erst gestern angeschaut habe. Warum gibt es keine WIRKLICHEN Gruppen die bei der Regierung Lobbying betreiben und ihnen zeigen, was wirklich abgeht und wie krank, verdreht und böse diese Leute sind und wie weit sie mit dieser Pornografie gehen. ICH BIN LEDIGLICH __ JAHRE ALT. ICH HOFFE DASS ICH IMMER NOCH ZEIT ÜBRIGT HABE. BITTE BETE(T) FÜR MICH.
 
-Shedding tears,
+Tränen vergiessend,
 
 * * *
 
 [EVANGELICAL OUTREACH'S **[BIBLE ANSWER](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible-answers.html)** TO HIM:]
 
-Greetings in Jesus’ name.
+Grüsse in Jesu Namen.
 
-We are very sorry for all the pain you have been suffering. Please know that we get emails from many different kinds of people and there are many others that are hurting too.
+Es tut uns sehr Leid für all den Schmerz, den du erleiden musstest. Bitte wisse, dass wir Email bekommen von vielen verschiedenen Arten von Leuten und es gibt viele die auch schmerzend sind.
 
-The answer to your problems is God. It sounds too simple to be true, but it is still true. First, you need forgiveness. You can NOW cry out to God for forgiveness and deliverance from this slavery and addiction to porn and He will do it. You must be sincere and must be willing to turn from all known sin. After you pray, DESTROY all of your porn. Tear it up, burn it, etc. but make sure no one else will be hurt by that devilish stuff. If you ever are tempted to look at pornography on-line, hold your hand over the flames on your stove and think about were the unsaved will go, according to Scripture.
+Die Antwort auf deine Probleme ist Gott. Es klingt zu einfach um wahr zu sein, aber dennoch wahr. Zuerst brauchst du Vergebung. Du kannst JETZT zu Gott um Vergebung und Befreiung/Erlösung von dieser Sklaverei und Pornografiesucht rufen und Er wird es tun. Du musst aufrichtig und gewillt sein, von aller bekannter Sünde abzulassen. Nachdem du gebetet hast, ZERSTÖRE alle deine Pornografie. Zerfetze es, verbrenne es, etc. aber sorge dafür, dass sonst niemand von diesem teuflischen Zeugs verletzt wird. Falls du versucht bist, Pornografie on-line anzuschauen, halte deine Hand über die Flammen auf deinem Herd und denke daran wo die Unerretteten/Unerlösten laut der Bibel hinkommen.
 
-Memorize Mark 9:43-48 and recite it out loud often. Jesus wasn’t joking when he gave us Mt. 5:8, "Blessed are the pure in heart for they will see God."
+Lerne Mark 9:43-48 auswendig und sage es oft laut auf. Jesus machte keine Witze, als er uns Mt. 5,8 gab, "Selig sind, die reines Herzens sind; denn sie werden Gott schauen/sehen."
 
-Next, read through the New Testament and change accordingly. God’s children put his words into practice. As you draw near to God, He will draw near to you. You can have PEACE and JOY from God that is unmatched by anything the world can offer, even what you mentioned in your email.
+Als nächstes, lies durch das Neue Testament und ändere dementsprechend. Gottes Kinder setzen seine Worte in die Tat um. Wenn du dich Gott nahest/näherst so wird er sich sich dir nahen. Du kannst FRIEDE und FREUDE von Gott haben die unvergleichlich zu alldem ist, was die Welt bieten kann, sogar was du in deinem Email erwähnt hast.
 
-If you live for God, your life will be well spent and you will be a blessing to many who are in desperate need along the way. Many don’t know they are on the road to the lake of fire or how to find forgiveness. They need to learn about JESUS, "our life, sweetness and hope."
+Wenn du für Gott lebst, so wird dein Leben gut verbracht [_engl. spent_] sein und du wirst ein Segen für viele sein, die entlang dem Weg in verzweifelter Not sind. Viele wissen nicht, dass sie auf dem Weg zum Feuersee sind oder wie man Vergebung findet. Sie müssen über JESUS lernen, "unser Leben, Süssigkeit und Hoffnung."
 
-You will have "rest for your soul" (Mt. 11:29) as long as you keep the Lord’s yoke on yourself and follow him. He is worthy to be loved, served and worshiped.
+Du wirst "Ruhe haben für deine Seele" (Mt. 11,29) solange du des Herrn Joch auf dir behältst und ihm folgst. Er ist es wert, geliebt, bedient (/im zu dienen) und angebetet zu werden.
 
-We have much information on porn addiction and the related at [Lust: Another Name For Adultery](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html). Please note related emails in the past from others on this subject.
+Wir haben viel Informationen bezüglich Pornografiesucht und ähnliches auf [Begierde: Ein Anderer Name Für Ehebruch](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html). Bitte beachte verwandte Email in der Vergangenheit von Anderen bezüglich diesem Thema.
 
-Write again if we can help more.
+Schreib wieder, falls wir dir mehr helfen können.
 
 * * *
 
-[Lust: Another name for "adultery"](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)
+[Begierde: Ein anderer Name für "Ehebruch"](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)
 
 * * *
 

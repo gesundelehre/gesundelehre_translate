@@ -1,5 +1,5 @@
-<!--t Begierde: Ein Anderer Name Für Ehebruch - in Arbeit (5% übersetzt) t-->
-<!--d Begierde: Ein Anderer Name Für Ehebruch d-->
+<!--t Begierde: Ein Anderer Name Für Ehebruch - in Arbeit (15% übersetzt) t-->
+<!--d Pornografiesucht, Pornografie, Porno, Sucht, Süchtig, Pornografiesüchtig, Freiheit von Pornografiesucht, Freiheit von Pornografie, Begierde, Begierden, Lust, Geil, Wollust, Schmutzige Gedanken, Freiheit von Schmutzigen Gedanken d-->
 
 Begierde: Ein Anderer Name Für *Ehebruch*
 
@@ -19,7 +19,7 @@ Begierde: Ein Anderer Name Für *Ehebruch*
 
 [**LISTEN TO: _Causing_ Another To Sin**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/causing-another-to-sin.mp3) (mp3)  
 [**LISTEN To A Teaching Related To Lust and Pornography**](http://media10.cqservers.com/evangelicaloutreach.org/052505.wma) (wma)  
-[**PRINT OUT: Lust Another Name For Adultery**](../../files/eomin.org/lust.pdf) (pdf)  
+[**DRUCKE AUS: Begierde Ein Anderer Name Für Ehebruch**](../../files/eomin.org/lust.pdf) (pdf)  
 
 ![begierde mentaler ehebruch](../files/pictures/evangelical-lust-mental-adultery.jpg)  
 ![- - -](../files/pictures/021.gif)
@@ -30,69 +30,69 @@ Begierde: Ein Anderer Name Für *Ehebruch*
 
 ## Die Sünde Der Begierde Ist _Ehebruch_
 
-In the Sermon on the Mount, the Lord Jesus must have shocked the people of His day when **He equated *lust* in the heart to ADULTERY and added that, that sin of *mental adultery* will send people to HELL!**
+In der Bergpredigt musste Jesus die Leute seinerzeit schockiert haben, als er **_Begierde_ im Herzen mit EHEBRUCH gleichstellte und dazu hinzufügte, dass die Sünde des _mentalen Ehebruches_ Leute in die Hölle bringen wird!**
 
 [![im Herzen zu begehren ist mentaler Ehebruch](../files/pictures/PornGuy.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornography.htm)
 
 Seine effektiven Worte bezüglich dass Begierde Ehebruch ist sind folgende:
-> "But I tell you that anyone who looks at a woman **lustfully** has already committed **ADULTERY with her in his heart.** If your right **eye causes you to sin**, gouge it out and throw it away. It is better for you to lose one part of your body than for your whole body to be thrown into **[HELL](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html)**"
+> "Ich aber sage euch: Wer ein Weib ansieht, ihrer zu **begehren**, der hat **in seinem Herzen schon EHEBRUCH** mit ihr begangen. Wenn dir aber dein rechtes **Auge ein Anstoß zur Sünde** wird, so reiß es aus und wirf es von dir. Denn es ist besser für dich, daß eins deiner Glieder verloren gehe, als daß dein ganzer Leib in die [**HÖLLE**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html) geworfen werde." (Mt 5,28-29; Schlachterbibel 1951)
 
- **[READ: Do You Realize That HELL Is The Greatest Danger?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/greatest-danger.html)**  
- **[How To Become Victorious Over Sexual Temptation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sexualtemptation.htm)**
+**[LIES: Begreifst Du Dass Die HÖLLE Die Grösste Gefahr Ist?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/greatest-danger.html)**  
+**[Wie Man Den Sieg Über Sexuelle Versuchung Erringt](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sexualtemptation.htm)**
  
- Bitte beachte die **ernsthaften Konsequenzen** der Begierde (mentaler Ehebruch). **Laut Jesus**, ist es möglich in der Hölle zu enden auf Grund von Begierde.
+Bitte beachte die **ernsthaften Konsequenzen** der Begierde (mentaler Ehebruch). **Laut Jesus**, ist es möglich in der Hölle zu enden auf Grund von Begierde.
 
 [![begierde mentaler ehebruch hölle](../files/pictures/lust-hell-warning_de.jpg )](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/crucify-the-flesh.html)
 
 Therefore, the sin of lust must not be taken lightly, as many church people do.
  While driving down the road and listening to a teaching, my wife and I heard a prime example of taking lust far too lightly. The following dialog transpired between a phone caller [Archie] and the host [Gil] after the host presented a hypothetical situation involving lusting over a woman while driving. This is what Archie referred to when he told Gil that he used his "example of driving in the car."
- > **Archie**: "Gil, you used my example of driving in the car."  
- **Gil**: "Oh, so you been looking at [lusting after] women, too, huh?"  
- **Archie**: "Oh, yeah, all the time."  
- **Gil**: [an outburst of laughter].  
+ > **Archie**: "Gil, du gebrauchtest mein Beispiel vom Fahren im Auto."  
+ **Gil**: "Oh, du schautest [begehrtest] also auch andere Frauen an, he?"  
+ **Archie**: "Oh ja, die ganze Zeit."  
+ **Gil**: [ein Ausbruch von Gelächter].  
 
  
 ## Die Ernüchternden Fakten Bezüglich Begierde
 
 The chief aim of this teaching is to provide the sobering facts regarding "lust," as used in Matthew 5:28. While some downplay the serious consequences of lust and mental adultery, others wrongly think the slightest and quickest visual contact on another's body is always adultery. The latter will be greatly relieved to learn this is not so! Similarly, remember this: Temptation in itself is not a sin. Jesus was tempted (Heb. 2:18; 4:15), yet Jesus never sinned (2 Cor. 5:21). Therefore, temptation is not a sin. It only becomes a sin when you yield to it and that leads to ***[spiritual death](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)*** (James 1:14-16). 
 
-**[Your Thought Life Is Very Important](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/our-thought-life.html)**
+**[Dein Gedankenleben Ist Sehr Wichtig](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/our-thought-life.html)**
 
 
 ## Begierde ist gleich _Sehnen Nach_
 
 [![begierde mentaler ehebruch](../files/pictures/lust-mental-adultery-sin-unto-death.jpg "lust is mental adultery which will damn your soul")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html)
 
-The Greek word rendered "**lustfully**" (Matt. 5:28, NIV) is found elsewhere and translated in such a way as to help us know the *lust* the Lord equated to mental adultery. This same exact word is found in Lk. 15:16 and Lk. 16:21. It's also significant to note that Jesus gave us these other usages. Hence, he chose to use the same exact word in these other teachings as he chose to use in Matt. 5:28! Respectfully, those verses say:
+Das griechische Wort, welches mit "**begehren**" (Matt. 5,28, NIV) findet man auch anderswo und wird auf solche Weise übersetzt, dass es uns hilft, die _Begierde_ zu kennen, welche der Herr mit mentalem Ehebruch gleichgestellt hat. Das genau gleiche Wort findet man in Lk. 15,16 und Lk. 16,21. Es ist auch bedeutsam, dass Jesus uns diese anderen Verwendungen gab. Hence, he chose to use the same exact word in these other teachings as he chose to use in Matt. 5:28! Respectfully, those verses say:
 
-> He [the Prodigal] **longed** to fill his stomach with the pods that the pigs were eating, but no one gave him anything.  
+> Und er [der verlorene Sohn] **begehrte**, sich zu sättigen mit den Schoten, welche die Schweine fraßen; und niemand gab sie ihm. (Lukas 15,16, Schlachterbibel 1951)
 
- > And [Lazarus was] **longing** to eat what fell from the rich man's table. Even the dogs came and licked his sores.
- 
- The facts surrounding the sad circumstances of the **[Prodigal Son](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.html)** and Lazarus, two other places where Jesus also used the word rendered "lustfully" as mentioned in Matt. 5:28, help us to better understand its meaning. Regarding its usage by the Lord in Luke's gospel, it seems evident that **this word carries a meaning with it that makes it much deeper than just a casual glance at a woman, as some wrongly think.** To substantiate this, Strong's Concordance defines this word as **"to set the heart upon, i.e. long for"** (emphasis his, Greek Dictionary, p.31, no. 1937). 
+> und [Lazarus] **begehrte**, sich zu sättigen von dem, was von des Reichen Tische fiel; und es kamen sogar Hunde und leckten seine Geschwüre. (Lukas 16,21, Schlachterbibel 1951)
+
+The facts surrounding the sad circumstances of the **[Prodigal Son](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.html)** and Lazarus, two other places where Jesus also used the word rendered "lustfully" as mentioned in Matt. 5:28, help us to better understand its meaning. Regarding its usage by the Lord in Luke's gospel, it seems evident that **this word carries a meaning with it that makes it much deeper than just a casual glance at a woman, as some wrongly think.** To substantiate this, Strong's Concordance defines this word as **"to set the heart upon, i.e. long for"** (emphasis his, Greek Dictionary, p.31, no. 1937). 
 
 ![Eph.5,3-5 umfasst Begierde mentaler Ehebruch](../files/pictures/ZERO.JPG)
 
 Again, a casual glance at the opposite sex is not the lust in the heart being referred to in Matt. 5:28. However, when actual lust does occur, that is, when one **"longs for"** another, then adultery is actually committed! To deny that it is *adultery* is to indirectly doubt the Lordship of Jesus Christ! This also clearly refutes the statement I've often heard -- "It's okay to look [meaning lust], but not to touch." Jesus never taught lust was okay! **Nowhere is this form of adultery through lust, though solely mental, less serious than other forms, although many treat it as such!** Remember, Jesus said it can send one to Hell (Matt. 5:29)! Could He be wrong?
 
- How awesome to ponder this fact in regard to all of the pornographic literature that can be found in this country, which generates lust. Mental adultery is rampant! Truly, this is an "adulterous generation," as Jesus said.
+How awesome to ponder this fact in regard to all of the pornographic literature that can be found in this country, which generates lust. Mental adultery is rampant! Truly, this is an "adulterous generation," as Jesus said.
  
- Recently, while waiting to see someone with whom I had an appointment, his office radio was tuned in to a secular station which had a "Penthouse Pet" on as a guest. This woman posed 60 times for Penthouse magazine, yet was hailed as some great celebrity and heroine. She showed no remorse for those sinful acts. Only on Judgment Day will it be revealed how many millions of men committed adultery through lust with that whorish woman. What a fine servant **[Satan](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devil.html)** has in that woman, who shamefully is the envy of many women in our country!
+Recently, while waiting to see someone with whom I had an appointment, his office radio was tuned in to a secular station which had a "Penthouse Pet" on as a guest. This woman posed 60 times for Penthouse magazine, yet was hailed as some great celebrity and heroine. She showed no remorse for those sinful acts. Only on Judgment Day will it be revealed how many millions of men committed adultery through lust with that whorish woman. What a fine servant **[Satan](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devil.html)** has in that woman, who shamefully is the envy of many women in our country!
  
  **[LIES Eine Wirkliche Email Und Antwort Von Einem Mann Der _Mit Pornografie Kämpft_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno.html)**
 
  
-## Quellen Von Lustful Adulterous Versuchung
+## Quellen Von Geiler/Wollüstiger Ehebrecherischer Versuchung
 
-[![lust in the heart is mental adultery](../files/pictures/woman.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm)
+[![Begierde im Herz ist mentaler Ehebruch](../files/pictures/woman.png)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm)
 
-Men committing mental adultery through lust should also be a sobering thought for women who profess to be Christian and desire to please their Lord. Paul wrote that women are to dress "modestly" (1 Tim. 2:9), yet at the same time, Paul was a grace teacher in the truest sense. So this isn't "law" as some accuse, but simple obedience! To disregard the way you dress might possibly be stumbling another into adultery! (The same applies to a man and his dress, for women can lust too.) Read what Jesus said in Matt. 18:6 about stumbling another into sin and marvel at this! Furthermore, regarding this whole matter of mental adultery, **a woman who dresses with the intent to make men lust after her is on a par with a [prostitute](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm)!**
+Men committing mental adultery through lust should also be a sobering thought for women who profess to be Christian and desire to please their Lord. Paulus schrieb, dass sich Frauen "bescheiden/sittsam" kleiden sollen (1 Tim. 2,9), dennoch war Paulus gleichzeitig ein Gnadenlehrer im wahrsten Sinne. Dies ist also nicht "Gesetz" wie einige anklagen, sondern schlichten/einfachen Gehorsam! Die Art und Weise wie man sich anzieht könnte vielöeicht jemand andern dazu verleiten in Ehebruch zu Straucheln! (Dasselbe gilt auch für einen Mann und sein Kleid, denn Frauen können auch begehren.) Lies was Jesus in Mt 18,6 sagte bezüglich jemand anderem Ärgernis (zum Stolpern & Fallen & Sündigen) zu geben und staune/wundere dich darüber! Des Weiteren bezüglich dieser ganzen Angelegeneheit des mentalen Ehebruches, **eine Frau, die sich kleidet mit der Absicht, dass Männer ihrer begehren, ist auf gleicher Augenhöhe mit einer [Prostituierten](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm)!**
 
  [![TV ist ein Erzeuger/Generator von Begierden. > Dieses Bild ist urheberrechtlich geschützt.](../files/pictures/tvcartoon.jpg "TV ist vom Teufel und sollte gemieden werden")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tv.htm)
  
-In our generation, **[TV](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tv.htm)** is the prime way people lust and commit mental adultery. Even while watching the news report sometimes one is exposed to spiritually unwholesome scenes, which the devil is pleased to present. These spiritual pollutants flood into homes across our land, then people wonder why they are having trouble with lust! I personally believe that more adultery is committed before the TV set through lust than anywhere else!
+In our generation, **[TV](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tv.htm)** is the prime way people lust and commit mental adultery. Even while watching the news report sometimes one is exposed to spiritually unwholesome scenes, which the devil is pleased to present. These spiritual pollutants flood into homes across our land, then people wonder why they are having trouble with lust! Ich persönlich glaube, dass mehr Ehebruch vor dem TV-Set begangen wird durch Begierde/Lust als irgendwo sonst!
 
- Furthermore, it's a sad day when people who profess to be God's servants are ensnared by their TV as their precious free time is spent never to be regained! Our generation will have to account for this incredible waste of time at the Judgment. Please note I mentioned "our generation" since television has only been available commercially since just after World War II. (TV as a means of distraction and **[sexual temptation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sexualtemptation.htm)**, is something which the Twelve never had. Moreover, there will be no TV's in Heaven!) Remember this: Before the invention of TV, Christians got along fine without ever watching it! You can too! In fact, since my wife and I stopped watching all secular TV of any kind, including the Super Bowl, we get along much better without it! By this I mean we have much more time to labor for the Kingdom in one form or another besides the other advantages of not being tempted to lust or adopt the world's values in the first place.
+Furthermore, it's a sad day when people who profess to be God's servants are ensnared by their TV as their precious free time is spent never to be regained! Our generation will have to account for this incredible waste of time at the Judgment. Please note I mentioned "our generation" since television has only been available commercially since just after World War II. (TV as a means of distraction and **[sexual temptation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sexualtemptation.htm)**, is something which the Twelve never had. Moreover, there will be no TV's in Heaven!) Remember this: Before the invention of TV, Christians got along fine without ever watching it! You can too! In fact, since my wife and I stopped watching all secular TV of any kind, including the Super Bowl, we get along much better without it! By this I mean we have much more time to labor for the Kingdom in one form or another besides the other advantages of not being tempted to lust or adopt the world's values in the first place.
 
 ## The Remedy For Lust and Mental Adultery
 
@@ -100,11 +100,11 @@ In our generation, **[TV](http://gesundelehre.tk/forwarder.php?url=http://www.ev
 
 Furthermore, to get victory over lust, you should START spending more time in the **[Bible](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html)** meditating on and memorizing certain verses! Hiding **[God's word](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wordgod.html)** in your heart will stop those mental temptations. 
 
-![The truth in Psalm 119:11 > applies to lust.](../files/pictures/PSALM119.JPG)
+![Die Wahrheit in Psalm 119,11 > bezieht sich auf Begierde.](../files/pictures/PSALM119.JPG)
 
 The unnamed writer of Ps. 119 both **prayed and hid God's word in his heart** so he would not **[sin](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)** against God: "Do not let me stray from your commands. I have hidden your word in my heart **that I might not sin against you**" (Ps. 119:10,11). We all need to humbly follow this example.
 
- In summary, victory over sin (including lust) is not just what you do but also what you don't do! In other words, **starve** your sinful nature (by not thinking about how to gratify it) and **feed** your spirit with God's word (by meditating in Scripture). Your **[voluntary thoughts](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/our-thought-life.html)**, that is, the thoughts you choose to ponder when free to think about anything you want, are extremely important. Relevantly, Rom. 8:5 says, "Those who live according to the sinful nature have their minds set on what that nature desires; but those who live in accordance with the Spirit have their minds set on what the Spirit desires." The following poem states it beautifully.
+Kurz zusammengefasst, Sieg über Sünde (einschliesslich Begierde) ist nicht nur was du tust, sondern auch was du nicht tust! Mit andern Worten, **verhungere** deine sündhafte Natur (indem du nicht darüber nachdenkst wie du sie befriedigst) und **tüttere** deinen Geist mit Gottes Wort (indem du in der Bibel meditierst/nachsinnst). Deine **[freiwilligen Gedanken](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/our-thought-life.html)**, das heisst, die Gedanken die denen du nachgehst, wenn du frei bist über irgendetwas nachzudenken, sind extrem wichtig. Entsprechend dazu sagt Röm. 8:5 (Sch1951): "Denn die nach dem Fleische leben, sinnen auf das, was des Fleisches ist, die aber nach dem Geiste leben, auf das, was des Geistes ist." Das folgende Gedicht besagt es schön.
  > Two natures beat within my breast.  
  The one is cursed, the other is blessed.  
  The one I love, the other I hate.  
@@ -113,18 +113,18 @@ The unnamed writer of Ps. 119 both **prayed and hid God's word in his heart** so
  Similarly, Paul wrote *salvation* with these important words: 
  > The one who sows to please his sinful nature, from that nature will reap destruction; the one who sows to please the Spirit, from the Spirit will reap **[eternal life](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternallife.html)**. Let us not become weary in doing good, for at the proper time we will reap a harvest **IF we do not give up.** (Gal 6:8,9)
  
- In the Old Testament, lust is referred to in passages like Prov. 6:25,26:
- > Do not lust in your heart after her beauty or let her captivate you with her eyes, for the prostitute reduces you to a loaf of bread, and the adulteress preys upon your very life.
-
+ Im Alten Testamen, wird auf Begierde hingewiesen in Stellen wie Sprüche. 6,25-26 (Schlachter2000):
+ > Begehre nicht in deinem Herzen nach ihrer Schönheit, und laß dich nicht fangen von ihren Blicken! Denn um einer hurerischen Frau willen kommt man an den Bettelstab, und die Frau eines anderen gefährdet die kostbare Seele!
+ 
  **Again, *lust* leads to disaster in this life and in eternity too! Therefore, do not take mental adultery through *lust* lightly.** By the way, the word rendered "lustfully" in Matt. 5:28 is used in a good sense in 1 Tim. 3:1 and Heb. 6:11. This latter verse reads: *And we **desire** that every one of you do show the same diligence to the full assurance of hope unto the end.*
 
-Unlike the **[Calvinists](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/calvinismrefuted.html)**, Paul emphasized free will and human responsibility. (He did this without contradicting his own grace message.) He wrote, **"Keep yourself pure"** (1 Tim. 5:22). Undoubtedly, many will have to make MAJOR TV changes to **[obey](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/obey.html)** this command! Victory over TV and lust will benefit you and others in this life and throughout eternity, but get ready for the battle regarding it!
+Im Gegensatz zu den **[Calvinisten](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/calvinismrefuted.html)**, betonte Paulus den freien WIllen und menschliche Verantwortung. (Er tat dies, ohne seiner eigenen Gnadenbotschaft zu widersprechen.) Er schrieb, **"Bewahre dich selbst rein"** (1 Tim. 5,22). Unzweifelhaft werden viele SCHWERWIEGENDE TV Veränderungen machen müssen, um diesem Befehl zu **[gehorchen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/obey.html)**! Sieg über TV und Begierde wird dir und andern in diesem Leben und durch die Ewigkeit hindurch zugute kommen, aber mache dich bereit für den Kampf diesbezüglich!
 
-**[Job](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/job.htm)** was the most righteous man on earth in his day -- being blameless, upright, a man that feared God and shunned evil (Job 1:8). This man said of himself, "**I made a covenant with my eyes not to look lustfully at a girl**" (31:1). This is also very important in our day in light of Matt. 5:28,29 and the rampancy of pornographic literature, movies and commercials in our vile country, which generates lust.  
+**[Hiob](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/job.htm)** war der most righteous Mann auf Erden seinerzeit -- being blameless, upright, a man that feared God and shunned evil (Job 1:8). Dieser Mann sagte von sich selbst, "**„Mit meinen Augen habe ich einen Bund abgeschlossen, dass ich ja nicht lüstern nach einer Jungfrau blickte.**" (Hiob 31:1, Menge). Dies ist heutzutage auch sehr wichtig im Lichte von Matt. 5:28,29 und der Wildheit [Anm. weit und wuchernd verbreitet] von pornografischer Literatur, Filmen und Werbungen in unserem widerlichen Land, welche Begierde erzeugen.
 Paulus schrieb,
  > Put to death, therefore, whatever belongs to your earthly nature: sexual immorality, impurity, **lust**, evil desires and greed, which is idolatry" (Col. 3:5).
  
-Please note: it's your responsibility coupled with the power of God (Rom. 8:13) that is the victory over lust! It is a **[fight to the death](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/crucify-the-flesh.html)**! It might surprise some to learn that Jesus used the Greek word from which we get our word "**[pornography](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornography.htm)**" in Rev. 22:15, and stated that along with some others, such are "outside" the city of New Jerusalem. (In that verse, the word is rendered "the sexually immoral," NIV.) **If we compare Rev. 21:8 to this same verse, we know their specific location is clearly the lake of fire! Hence, *lust* in the heart equals *adultery* and will send the *mental adulterers* to eternal fire unless they get forgiven and set free through repentance!**
+Bitte beachte: Es ist unsere Verantwortung gekoppelt mit der Kraft Gottes (Röm. 8:13) welches den Sieg bringt über Begierde! Es ist ein **[Kampf bis zum Tode](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/crucify-the-flesh.html)**! Es wird vielleicht einige überraschen, zu lernen, dass Jesus in Off. 22,15 das griechische Wort gebrauchte, woher wir unser Wort "**[Pornografie](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pornography.htm)**" haben , und besagte, dass solche zusammen mit einigen andern, "ausserhalb" der Stadt des Neuen Jerusalems sein werden. (In diesem Vers wird das Wort mit "sexuell unmoralisch" in der NIV (New International Version, direktübersetzt) widergegeben - Schlachter(1905/1951/2000 & Zürcher 1860) schreiben "Unzüchtige", Elberfelder "Hurer") **Wenn wir Off. 21,8 mit demselben Vers vergleichen, so wissen wir, dass ihre spezifischer Ort deutlich der Feuersee ist! Deshalb, _Begierde_ im Herzen ist gleich _Ehebruch_ und wird wird die _mentalen Ehebrecher_ in den Feuersee bringen,  sofern sie nicht Vergebung bekommen und durch Busse befreit werden!**
 
 
 - - - - - -

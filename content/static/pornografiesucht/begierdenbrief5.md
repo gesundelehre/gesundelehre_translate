@@ -12,9 +12,9 @@ Quelle: [www.evangelicaloutreach.org/lustltr5.htm](http://www.gesundelehre.tk/fo
 
 # Internet Pornografie
 
-An actual letter and our response.
+Ein wirklicher Brief und unsere Antwort.
 
-Permission to reproduce this in its entirety only.
+Erlaubnis ist gewährt um dies nur ins einer Gesamtheit zu reproduzieren.
 
 [**Die Sklaverei, Knechtschaft und Kontrollierende Kraft der Sünde**](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)
 

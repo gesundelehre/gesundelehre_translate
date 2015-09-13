@@ -1,5 +1,5 @@
 <!--t Begierdenbrief4: Am Versuchen, Mit Pornografie Aufzuhören - in Arbeit (0% übersetzt) t-->
-<!--d Begierdenbrief4: Am Versuchen, Mit Pornografie Aufzuhören - in Arbeit (0% übersetzt) d-->
+<!--d Pornografiesucht, Pornografie, Porno, Sucht, Süchtig, Pornografiesüchtig, Freiheit von Pornografiesucht, Freiheit von Pornografie, Begierde, Begierden, Lust, Geil, Wollust, Schmutzige Gedanken, Freiheit von Schmutzigen Gedanken d-->
 
 Begierdenbrief4: Am Versuchen, Mit Pornografie Aufzuhören
 

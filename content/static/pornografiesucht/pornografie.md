@@ -1,5 +1,5 @@
 <!--t Pornografiesüchtig Seit Dem Alter Von 12 - in Arbeit (10% übersetzt) t-->
-<!--d Pornografiesüchtig Seit Dem Alter Von 12 - in Arbeit (10% übersetzt) d-->
+<!--d Pornografiesucht, Pornografie, Porno, Sucht, Süchtig, Pornografiesüchtig, Freiheit von Pornografiesucht, Freiheit von Pornografie, Begierde, Begierden, Lust, Geil, Wollust, Schmutzige Gedanken, Freiheit von Schmutzigen Gedanken d-->
 
 Pornografiesüchtig Seit Dem Alter Von 12
 

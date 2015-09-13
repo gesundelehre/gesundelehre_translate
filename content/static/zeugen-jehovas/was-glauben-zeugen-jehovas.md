@@ -1,4 +1,4 @@
-<!--t Was Glauben Zeugen Jehovas? - in Arbeit (0% übersetzt) t-->
+<!--t Was Glauben Zeugen Jehovas? - in Arbeit (5% übersetzt) t-->
 <!--d Zeugen Jehovas, Wachturmgesellschaft, Wachturm, Falscher Prophet, Neue Welt Übersetzung d-->
 
 Was Glauben Zeugen Jehovas?
@@ -100,49 +100,49 @@ Note that in the first paragraph of the second section on page 2 of their tract 
 
 In the last paragraph on page 2 of their tract is quoted John 6:57\. A common practice of the WT is to pick a few select verses out of context to support their claims and beliefs. An example of this is found right here. In Chapter 6 of John, verse 51 it shows that IF you are a true believer Christ dwells within you. The JW’s reject this clear teaching. (Please see also 1 Jn. 5:12,13; 1 Cor. 3:16; 1 Jn. 4:4; 2 Cor. 6:14-16).
 
-Why do the Jehovah's Witnesses use their own Bible? The reason is that it has many changes that are not in agreement with the original Greek and Hebrew text, but was made to be in agreement with their unique beliefs. What does God say in his word, the Bible, will happen to those who add, subtract and change words from the Bible (Rev. 22:18)?
+Warum benutzen die Zeugen Jehovas ihre eigene Bibel? Der Grund ist, dass sie viele Veränderungen hat, die nicht in Übereinstimmung mit dem originalen griechischen und hebräischen Text sind, but was made to be in agreement with their unique beliefs. Was sagt Gott in seinem Wort, der Bibel, wird denen geschehen, die Worte von der Bibel hinzufügen, wegnehmen und verändern (Off 22:18, Schlachterbibel 1951)?
 
-> I warn everyone who hears the words of the prophecy of this book: If anyone adds anything to them, God will add to him the plagues described in this book.
+> Ich bezeuge jedem, der die Worte der Weissagung dieses Buches hört: Wenn jemand etwas hinzufügt, so wird Gott ihm die Plagen zufügen, von denen in diesem Buche geschrieben ist; 
 
-In reference to their quoting Mt. 6:9 and Jn. 17:6 in the first complete paragraph of page 3 of this tract and to their stating that Jesus prayed to the Father, ask yourself the following question: Why did Jesus allow and not reproach Stephen, who prayed specifically to him (Acts 7:59)?
+In reference to their quoting Mt. 6:9 and Jn. 17:6 in the first complete paragraph of page 3 of this tract and to their stating that Jesus prayed to the Father, ask yourself the following question: Why did Jesus allow and not reproach Stephen, who prayed specifically to him (Apg 7,59, Schlachterbibel 1951)?
 
-> While they were stoning him, Stephen prayed, "Lord Jesus, receive my spirit."
+> Und sie steinigten den Stephanus, welcher ausrief und sprach: Herr Jesus, nimm meinen Geist auf! 
 
-On page 3 of their tract in the second paragraph, the WT quotes Rev. 1:5\. In the immediately preceding verse (4), who is "him who is and was and who is to come," and where is he seated? Does God the Father share his throne with a lesser God? Note the NWT indicates that Jesus is a lesser God, "a god," in John 1:1\. (See Isa. 42:8.)
+Auf Seite 3 ihres Traktates im zweiten Absatz, zitiert die WTG Rev. 1:5\. In the immediately preceding verse (4), who is "him who is and was and who is to come," and where is he seated? Does God the Father share his throne with a lesser God? Note the NWT indicates that Jesus is a lesser God, "a god," in John 1:1\. (See Isa. 42:8.)
 
 In the second paragraph of page 3 of their tract, the WT states that Jesus is appointed invisible King. What Bible verses show this and how does this compare with his physical, visible return (Rev. 1:7 cf. Mt. 26:63,64)?
 
-At the end of the first paragraph of page 4 the WT quotes Rev. 14:1,3 to try to support that only 144,000 people will enter heaven. Do all Jehovah's Witnesses who claim to be of the 144,000 meet the requirements outlined in the next two verses, verses 4 and 5 of this chapter? Should a believer trying to understand God's truths read all of this chapter in context to get the full meaning? Who decides what is to be taken as literal or figurative, the WT or the guidance of the Holy Spirit? (1 Jn. 2:27; Jn. 16:13)
+Am Ende des ersten Absatzes auf Seite 4 zitiert die WTG Rev. 14:1,3 to try to support that only 144,000 people will enter heaven. Do all Jehovah's Witnesses who claim to be of the 144,000 meet the requirements outlined in the next two verses, verses 4 and 5 of this chapter? Should a believer trying to understand God's truths read all of this chapter in context to get the full meaning? Who decides what is to be taken as literal or figurative, the WT or the guidance of the Holy Spirit? (1 Jn. 2:27; Jn. 16:13)
 
 Remembering that the WT has made prophecies that have failed about the following years: 1914, 1915, 1918, 1925, 1931, 1941, 1975 and 1995, ask yourself the question, "Why has the WT Society continued to falsely prophesy about Jesus' return, when not even the Son (Jesus Christ) knows the date and hour?"
 
-The WT references Mark 12:31 in the second paragraph of page 5 of their tract and states that they are "widely noted for the love that is manifested among our Christian brothers," the key word being "our." The Bible states love for our "neighbor." What are the Jehovah's Witnesses doing to show their love for those outside of their own organization?
+Die WTG references Mark 12:31 im zweiten Absatz auf Seite 5 ihres Traktates and states that they are "widely noted for the love that is manifested among our Christian brothers," the key word being "our." The Bible states love for our "neighbor." What are the Jehovah's Witnesses doing to show their love for those outside of their own organization?
 
-The WT references Acts 15:28-29 in the second paragraph of page 2 of their tract, to support their teaching against blood transfusions used to save lives. When one reads all of the chapter for each reference to the use of blood it becomes apparent that these are in reference to the blood of sacrifices to idols, not for saving human lives. Reference what the Bible says about intent versus tradition in Lk. 14:5\.
+Die WTG references Acts 15:28-29 im zweiten Absatz auf Seite 2 ihres Traktates, to support their teaching against blood transfusions used to save lives. When one reads all of the chapter for each reference to the use of blood it becomes apparent that these are in reference to the blood of sacrifices to idols, not for saving human lives. Reference what the Bible says about intent versus tradition in Lk. 14:5\.
 
-On page 6 in the first paragraph of their tract, the WT quotes Jn. 5:28,29 as the Jehovah's Witnesses believe that the unsaved simply die rather than going to eternal punishment in Hell, why according to vs. 29 will the unsaved dead be raised during the judgment, to be informed that they will continue to be dead?
+Auf Seite 6 im ersten Absatz ihres Traktates, zitiert die WTG Joh. 5,28-29 da die Zeugen Jehovas glauben, dass die unerlösten/unerretteten einfach sterben anstatt in ewige Bestrafung in die Hölle zu gehen, warum laut Vers 29 werden die unerlösten Toten während des Gerichtes auferstehen, um informiert zu werden, dass sie weiterhin tot sein werden?
 
-The WT quotes Mt. 24:36-39 in the second paragraph of page 6 of their tract. Why do the Jehovah's Witnesses quote this as their belief, especially vs. 36, when they have continued to disregard this council by having a long documented history of false prophecies? Why also do the Jehovah's Witnesses state verse 39 if they believe that Christ has already returned invisibly? Have the events mentioned in verse 40 which happen at Christ's return happened yet?
+Die WTG zitiert Mt. 24,36-39 im zweiten Absatz auf Seite 6 ihres Traktates. Why do the Jehovah's Witnesses quote this as their belief, especially vs. 36, when they have continued to disregard this council by having a long documented history of false prophecies? Why also do the Jehovah's Witnesses state verse 39 if they believe that Christ has already returned invisibly? Have the events mentioned in verse 40 which happen at Christ's return happened yet?
 
-The WT quotes 2 Peter 3:5-7, 13 in the second paragraph of page 6 of their tract. Note again according to verse 7 the judgment of those already dead.
+Die WTG zitiert 2 Peter 3:5-7, 13 im zweiten Absatz auf Seite 6 ihres Traktates. Note again according to verse 7 the judgment of those already dead.
 
-The WT quotes Rev. 7:9, 13-15; 21:1-5 in the second paragraph of page 6 of their tract. Verses 21:1-5 indicate that God will dwell with men. Is this what the WT teaches about the paradise on earth? Who is the first and last spoken of in the next verse, Jesus or Jehovah? Reference verses 22:12-13: is Jehovah coming soon to judge mankind or is Jesus?
+Die WTG zitiert Rev. 7:9, 13-15; 21:1-5 im zweiten Absatz auf Seite 6 ihres Traktates. Verses 21:1-5 indicate that God will dwell with men. Is this what the WT teaches about the paradise on earth? Who is the first and last spoken of in the next verse, Jesus or Jehovah? Reference verses 22:12-13: is Jehovah coming soon to judge mankind or is Jesus?
 
 ![Jehovah's Witnesses Beliefs are not CHRISTIAN BELIEFS or christianity beliefs](../files/pictures/line3.gif)
 
 ### We have other articles dealing with Jehovah's Witnesses:
 
-- **[The Watchtower Society](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jws.htm)**  
-- **[The Jesus of the Jehovah's Witnesses](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jws2.html)**  
-- **[The New World Translation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)**   
-- **[Jehovah's Witnesses and the Name _Jehovah_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/name-of-jehovah.html)**   
+- **[Die Wachturmgesellschaft](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jws.htm)**  
+- **[Der Jesus der Zeugen Jehovas](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jws2.html)**  
+- **[Die Neue Welt Übersetzung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)**   
+- **[Zeugen Jehovas und der Name _Jehova_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/name-of-jehovah.html)**   
 - **[The Trinity](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/trinity.html)**  
 - **[The Deity of Christ](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/deity-of-Christ.html)**  
 - **[The Wicked Dead -- Will They Experience Annihilation or Eternal Torment?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternaltorment.html)**
 
 * * *
 
-[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 [**Evangelical**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

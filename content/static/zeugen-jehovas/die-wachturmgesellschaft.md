@@ -131,10 +131,10 @@ NOTICE: There are only true prophets and false prophets. The Bible doesn't menti
 
 (5) Could Prov. 4:18 be a factor to consider to know a false prophet, since Jehovah gave only two considerations and this wasn't one of them? (v.22) ____YES ____NO, Proverbs 4:18 is not relevant here.
 
-(6) Should YOU be afraid of what a false prophet says? (v.22) ____YES ____NO.
+(6) Solltest DU dich fürchten vor dem, was ein falscher Prophet sagt? (v.22) ____YES ____NO.
 
 
-## [The Watchtower's Deadly Distortion of John 17:3](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john173.html)
+## [Die Tödliche Verzerrung der Wachturmgesellschaft von Johannes 17,3](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john173.html)
 
 
 ## Read Matt. 7:15-20 for questions 7-14.

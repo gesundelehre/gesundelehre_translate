@@ -25,7 +25,7 @@ Die [Westminster-Confession](to-do) ist DAS Calvinisten-Bekenntnis.
 
 ### **I**rresistible Grace / unwiderstehliche Gnade
 
-### **P**erseverance of the Saints / Beharrlichkeit
+### **P**erseverance of the Saints / Beharrlichkeit der Heiligen/Gläubigen
 
 
 - - -
@@ -241,11 +241,11 @@ Spurgeons Verteidigung des Calvinismus Widerlegt [**mp3**](http://media10.cqserv
 >Eternal security teacher, Ray Comfort, is often held up as the standard on how to evangelize the unsaved. He has untold numbers using his unsound approach, but seemingly they are not aware of it. His primary approach is... 
 [**Examining Ray Comfort's True/False Conversion and Law-Preaching Evangelism (Audio)**](http://media10.cqservers.com/evangelicaloutreach.org/CornerOnComfort.wma) 
 
-[![John Calvin infant baptism](../files/pictures/john-calvin-infant-baptism-calvinism-click.jpg "John Calvin taught infant baptism")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/infantbaptism.htm)
+[![Johannes Calvin Säuglingstaufe](../files/pictures/john-calvin-infant-baptism-calvinism-click.jpg "John Calvin taught infant baptism")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/infantbaptism.htm)
 
 [**God's Sovereignty And Man's Free Will In Salvation**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Godswill.htm) 
 
->The Calvinisten and the Universalists both misinterpret God's sovereignty and will. The Calvinisten think it is God's will for only some (the elect) to be regenerated and afterwards always retain that salvation. Dan Corner refutes Calvinism. 
+>The Calvinisten and the Universalists both misinterpret God's sovereignty and will. The Calvinisten think it is God's will for only some (the elect) to be regenerated and afterwards always retain that salvation. Dan Corner widerlegt Calvinismus.
 Dan Corner Vs Jeff Oliver Of Truth Talk Live: [**Eternal Security Debate**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/061107Radio.mp3) (mp3) 
 >Radio debate with Jeff Oliver on eternal security. 
 [**Four Final Comments**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/breakcovenant.htm) 
@@ -255,7 +255,7 @@ Dan Corner Vs Jeff Oliver Of Truth Talk Live: [**Eternal Security Debate**](http
 [**Gene Cook**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/cook.htm) 
 >Two part debate on eternal security where Gene gets cooked. 
 
-[**Refuting Calvinism**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/ResponseToCalvinism.mp3)(mp3) 
+[**Calvinismus Widerlegend**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/ResponseToCalvinism.mp3)(mp3) 
 [**Critiquing CARMs (Matt Slick) False Gospel**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/matt-slick-exposed.htm) 
 >Auf Video widerlegen wir den Calvinismus von Matt Slick (CARM) for teaching falsehood. 
 
@@ -265,12 +265,12 @@ Dan Corner Vs Jeff Oliver Of Truth Talk Live: [**Eternal Security Debate**](http
 Calvinist, [**Kent Hekel**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/kent-hekel.htm) erhält den Skull und Crossbones Award. Der Calvinist Kent Hekel ist extrem ketzerisch, aber declares Calvinism! He is refuted with Scripture. 
 
 
-Klicke hier umd das Buch [![eternal security book](../files/pictures/BIGBOOK.jpg) **_The Believer's Conditional Security_**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html) zu bestellen - die gründlichste Widerlegung der Einmal-Gerettet-Immer-Gerettet-Lehre, die jemals geschrieben wurde! Klicke hier, um unser 230-seitiges Buch, [**_The Myth of Eternal Security_**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html) zu bestellen, welches _The Believer's Conditional Security_ ergänzt.
+Klicke hier um das Buch [![Ewige Sicherheit Buch](../files/pictures/BIGBOOK.jpg) **_The Believer's Conditional Security_**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html) zu bestellen - die gründlichste Widerlegung der Einmal-Gerettet-Immer-Gerettet-Lehre, die jemals geschrieben wurde! Klicke hier, um unser 230-seitiges Buch, [**_The Myth of Eternal Security_**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html) zu bestellen, welches _The Believer's Conditional Security_ ergänzt.
 
-![Calvinismus is a LIE](../files/pictures/a-colorb.gif)
+![Calvinismus ist eine LÜGE](../files/pictures/a-colorb.gif)
 
 
-## Emails Regarding Calvinismus 
+## Emails Bezüglich Calvinismus 
 
 (EMAIL #1) As a family, we have been attending a '_____Baptist' church in _________, Germany for the past 2+ years. My husband's parents are non-believers, but I grew up in a Penticostal church and my husband started attending church with me and gave his heart to the Lord in 2007\. Then we moved to Germany in 2008 and started looking for a suitable church. We came upon this Baptist church with an Afrikaans pastor (I am also Afrikaans, from South Africa. My husband is German) and loved them straight away. 
 We had no idea what doctorine they followed as I had no idea such doctorines existed and was furthest from my mind - I was a little naive. They believed in baptising grown-ups and therefore I assumed that we believed the same thing (gospel). I had several questions and got answers regarding salvation etc., but always told my husband that the Holy Spirit warns me and that I somehow cannot fully except this teaching. I didn't really want to attend at this church, but for my husbands (penticost praise and worship and sermons were too loud in his opinion) sake went there, but never felt 'at home'. I always maintained that i will never be a Baptist and that it was too dead as they did not practice the spiritual gifts, etc. Later on it came to light that they are Calvinisten. Then it started getting serious. The situation escalated to such a degree that I refused to attend church anymore (about 4 weeks now) as it feels to me like I am getting forced to decide what doctorine I will accept and that I am caught up in something I don't want to be in. 
@@ -293,7 +293,7 @@ Everything I have observed, even in the secular world, has opposite views on alm
 
 **Regarding the fifth point of Calvinism, please consider getting our 801 page book refuting eternal security entitled, "The Believer's Conditional Security: Eternal Security Refuted." There is MUCH in it that can help you better understand this salvation related subject. This book is the greatest work ever written refuting eternal security. Your money will be fully refunded if not satisfied upon the return of the book in a re-sellable condition. It is available in hardback, softback and voicebook. Prompt shipment plus free materials with your book order. Order with credit card at 724-632-3210 or online at [The Believers Conditional Security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html)**
 
-**...God bless you.** 
+**...Gott segne dich.** 
 ___________________________________ 
 (EMAIL #2) How I love your subject! Thank you very much for this insight. It just confirmed what I already believe. I have hope now and thank the Lord for people standing up for the truth like yourselves. Continue this good work in the Lord as there are many people like myself being under the attack. I believe that the message of the gospel has been made simple for all (even little children like Jesus said) to understand. God is holy and therefore we have to live holy lives and do His will. I am not a major intellectual and certainly do not want to study any man-made doctorine. I just want to read the Word and let Jesus be in control of my life and no man. Thank your for your invitation. We will certainly visit your on-line church. God bless, 
 

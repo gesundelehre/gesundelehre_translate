@@ -1,4 +1,4 @@
-<!--t Begierdenbrief2: Männer und Sittsamkeit/Anstand - in Arbeit (98% übersetzt) t-->
+<!--t Begierdenbrief2: Männer und Sittsamkeit/Anstand (98% übersetzt) t-->
 <!--d Begierdenbrief2: Männer und Sittsamkeit/Anstand - in Arbeit (98% übersetzt) d-->
 
 Begierdenbrief2: Männer und Sittsamkeit/Anstand
@@ -6,7 +6,7 @@ Begierdenbrief2: Männer und Sittsamkeit/Anstand
 - - - 
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/lustltr2.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr2.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/begierdenbrief2.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Übersetzungsvorschläge können [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/begierdenbrief2.md) auf github gemacht werden.
 
 Quelle: [www.evangelicaloutreach.org/lustltr2.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lustltr2.htm)
 

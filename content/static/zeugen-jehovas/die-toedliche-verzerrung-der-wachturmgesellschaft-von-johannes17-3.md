@@ -15,15 +15,15 @@ Quelle: [www.evangelicaloutreach.org/john173.htm](http://gesundelehre.tk/forward
 
 ### Dan Corner
 
-![taking in knowledge](../files/pictures/evangelical-taking-in-knowledge-john-173.jpg)
+![erkenntnis in sich aufnehmen](../files/pictures/evangelical-taking-in-knowledge-john-173.jpg)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-![taking in knowledge](../files/pictures/a-colorb.gif)
+![erkenntnis in sich aufnehmen](../files/pictures/a-colorb.gif)
 
 
 
-## _Taking In Knowledge_ For Everlasting Life
+## _Erkenntnis In Sich Aufnehmen_ Für Ewiges Leben
 
 **Jehovah's Witnesses study Watchtower literature to _take in knowledge!_** Here is why! A very important Scripture to a Jehovah’s Witness regarding _salvation_ is John 17:3, that is, as it reads from their strange so-called “Bible,” **_[The New World Translation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)_**
 
@@ -31,7 +31,7 @@ Quelle: [www.evangelicaloutreach.org/john173.htm](http://gesundelehre.tk/forward
 
 According to their customized translation, John 17:3 reads:
 
-> This means everlasting life, their **<font color="red">taking in knowledge</font>** of you, the only true God, and of the one whom you sent forth, Jesus Christ (bold emphasis mine).
+> "Dies bedeutet ewiges Leben, daß sie **<font color="red">fortgesetzt Erkenntnis in sich aufnehmen</font>** über dich, den allein wahren Gott, und über den, den du ausgesandt hast, Jesus Christus." (fette Betonung von mir)
 
 <big><big>**[How To ENSLAVE A Jehovah's Witness](#taking%20in%20knowledge)**</big></big>
 
@@ -43,7 +43,7 @@ According to their customized translation, John 17:3 reads:
 
 ## The JW _Taking In Knowledge_ Is Impossible
 
-[![taking in knowledge](../files/pictures/taking-in-knowledge.jpg "Jehovah's Witnesses are NOT really taking in accurate knowledge!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)
+[![erkenntnis in sich aufnehmen](../files/pictures/taking-in-knowledge.jpg "Jehovah's Witnesses are NOT really taking in accurate knowledge!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)
 
 By declaring this false rendering of John 17:3 we notice the following problems for the Jehovah’s Witness:
 
@@ -77,7 +77,7 @@ If one would compare Matt. 1:25 with John 17:3 and note that _ginosko_ is found 
 
 
 <a name="taking%20in%20knowledge"></a>
-## _Taking In Knowledge_ And Slavery
+## _Erkenntnis In Sich Aufnehmen_ Und Sklaverei/Knechtschaft
 
 The Watchtower Society is ensnaring sincere people to a lifelong study of their own literature by twisting the meaning of John 17:3\. The worst part of all of this for those that do get deceived by them is, **they have missed the true understanding of _salvation_ shown in the Bible and, therefore, remain _unsaved_ and _spiritually dead_ in their sins. We have [answered Jehovah's Witnesses](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html) biblically in various ways, showing their errors.**
 
@@ -97,7 +97,7 @@ The Watchtower Society is ensnaring sincere people to a lifelong study of their 
 
 - **[Angels, Demons and Satan](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/angels.html)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

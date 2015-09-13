@@ -65,7 +65,7 @@ Quelle: [www.evangelicaloutreach.org/jehovahs-witness-mind.htm](http://gesundele
 
 - **[The 144,000 and The Jehovah's Witnesses](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/144000.html)**
 
-**[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+**[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

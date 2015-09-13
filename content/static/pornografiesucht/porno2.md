@@ -1,5 +1,5 @@
 <!--t Porno2: Pornografie, Begierde und Errettung - in Arbeit (0% übersetzt) t-->
-<!--d Porno2: Pornografie, Begierde und Errettung - in Arbeit (0% übersetzt) d-->
+<!--d Pornografiesucht, Pornografie, Porno, Sucht, Süchtig, Pornografiesüchtig, Freiheit von Pornografiesucht, Freiheit von Pornografie, Begierde, Begierden, Lust, Geil, Wollust, Schmutzige Gedanken, Freiheit von Schmutzigen Gedanken d-->
 
 Porno2: Pornografie, Begierde und Errettung
 
@@ -13,7 +13,7 @@ Quelle: [www.evangelicaloutreach.org/porno2.htm](http://www.gesundelehre.tk/forw
 
 # Pornografie, Begierde und Errettung
 
-**(This is an actual email that we received. His remarks are italicized. Our responses are bolded.)**
+**(Dies ist eine wirkliche Email, die wir empfangen haben. Seine Bemerkungen sind kursiv geschrieben. Unsere Antworten sind fett geschrieben.)**
 
 **[Lust is Another Name for Adultery and Will Damn](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)**  
 **[Die Sklaverei, Knechtschaft und Kontrollierende Kraft der Sünde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)**
@@ -21,9 +21,9 @@ Quelle: [www.evangelicaloutreach.org/porno2.htm](http://www.gesundelehre.tk/forw
 
 * * *
 
-**Dear (Name):**
+**Lieber (Name):**
 
-**Greetings in Jesus' name.**
+**Grüsse in Jesu Namen.**
 
 > _I would like to say (as much under control as I can possibly be) that I am quite outraged about your views on the perseverance of the saints. We obviously do not believe in the same salvation, but I must express my belief and make known to you what you are ignorant of (that is, the Bible)._
 
@@ -31,17 +31,17 @@ Quelle: [www.evangelicaloutreach.org/porno2.htm](http://www.gesundelehre.tk/forw
 
 > _First, what you have used in defense of your heresy--Oh, I mean theology, of course: Your thoughts refuse the Biblical view of God-initiated salvation, i.e., God saving man as oppossed to man's works saving man. Are you trying to say that if a man is saved and yet, the moment after his conversion, sees a nice-looking woman and lusts, then he immediately loses his salvation? If so, my confused friend, you and I are both hellbound with no help._
 
-**We are saying what Jesus taught in Mat 5:28,29:**
+**Wir sagen, was Jesus in Mt 5,28,29 lehrte:**
 
 > <font color="red">**"But I tell you that anyone who looks at a woman lustfully has already committed ADULTERY with her in his heart. If your right eye causes you to sin, gouge it out and throw it away. It is better for you to lose one part of your body than for your whole body to be thrown into hell."**</font>
 
-**The Lord taught lust in the heart is adultery. The Lord's apostles taught that those who die in the sin of adultery go to Hell (1 Cor. 6:9,10; Gal. 5:19-21; Rev. 21:8; etc.). Therefore, if any person lusts in their heart and dies in that condition, they go to Hell.**
+**Der Herr lehrte, dass Begierde im Herzen Ehebruch ist. Des Herrn Apostel lehrten, dass jene, die in der Sünde des Ehebruches sterben in die Hölle kommen. (1. Kor. 6,9-10; Gal. 5,19-21; Off. 21,8; etc.). Daher, wenn eine Person in ihrem Herzen begehrt und in diesem Zustand stirbt, kommt sie in die Hölle.**
 
-**Because this is a wicked and adulterous generation, you assume that all people are filled with lust in their hearts. Yet all those who are will be thrown into hell. All those that enter the Kingdom of God will be free from this sin, as well as others cited in Rev. 21:8\. One must repent of this adultery and be pure in heart to see God (Mt.5:8). Whom the Son sets free is free indeed (Jn. 8:36). The context bears out that it is freedom from the [bondage to sin](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html). Please read our article on lust and pornography at [www.evangelicaloutreach.org/lust.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)**
+**Da dies eine böse und ehebrecherische Generation ist, nimmst du an, dass alle mit Begierde in ihrem Herzen gefüllt sind. Dennoch werden alle solche in die Hölle geworfen werden, wie auch andere, welche in Off. 21,8 zitiert werden. Alle jene, die in das Königreich Gottes eingehen werden, werden frei von Sünde sein. Man muss von diesem Ehebruch umkehren/Busse tun und rein im Herzen  sein, um Gott zu sehen (Mt5,8). Wen der Sohn frei macht, der ist wirklich frei (Joh. 8,36). Der Kontext [engl. bears out] macht deutlich, dass es Freiheit von der [Knechtschaft/Sklaverei der Sünde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html) ist. Bitte lies unseren Artikel über Begierde und Pornografie auf [www.evangelicaloutreach.org/lust.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)**
 
 > _You are saying that a man's outward deeds determine whether he is saved or not! First, you must realise that not all who say that they are saved indeed are (Rev. 2:2, II Cor 11:13)._
 
-**Some who are saved will not remain saved. Jesus taught that some believe for a while, but in time of testing they fall away (Lk. 8:13). A sow can get washed and go back to her wallowing in the mud, and a dog can return to its vomit (2 Pet. 2:22). One's faith can get shipwrecked (1 Tim. 1:19,20).**
+**Einige, die gerettet sind, werden nicht gerettet bleiben. Jesus lehrte, dass einige eine Zeitlang glauben, aber zur Zeit der Anfechtung/Versuchung fallen sie ab (Lk. 8,13). Eine Sau kann gewaschen werden und zurück gehen zum Wälzen im Schlamm/Kot und ein Hund kann zu seinem Gespei/Erbrochenen zurückkehren (2. Petr. 2,22). Der Glaube von jemandem Kann Schriffbruch erleiden (1 Tim. 1,19-20).**
 
 > _----Okay, I'm listening to your [RealAudio clip](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sermons.html) and the [sexually immoral](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/true-grace-false-grace.html) thing is bothering me. Do you mean that if a Christian happens to have the specific sin of pornographic lust, then he loses his salvation??----_
 

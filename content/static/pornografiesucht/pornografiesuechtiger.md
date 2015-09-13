@@ -1,5 +1,5 @@
 <!--t Ich Bin Ein Pornografiesüchtiger - in Arbeit (60% übersetzt) t-->
-<!--d Ich Bin Ein Pornografiesüchtiger - in Arbeit (60% übersetzt) d-->
+<!--d Pornografiesucht, Pornografie, Porno, Sucht, Süchtig, Pornografiesüchtig, Freiheit von Pornografiesucht, Freiheit von Pornografie, Begierde, Begierden, Lust, Geil, Wollust, Schmutzige Gedanken, Freiheit von Schmutzigen Gedanken d-->
 
 Ich Bin Ein Pornografiesüchtiger
 

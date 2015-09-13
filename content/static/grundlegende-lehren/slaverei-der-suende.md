@@ -1,4 +1,4 @@
-<!--t Sklaverei der Sünde - in Arbeit (30% übersetzt) t-->
+<!--t Sklaverei der Sünde - in Arbeit (70% übersetzt) t-->
 <!--d Sklaverei der Sünde d-->
 
 Sklaverei der Sünde
@@ -30,7 +30,7 @@ Quelle: [www.evangelicaloutreach.org/sin.htm](http://gesundelehre.tk/forwarder.p
 
 [![cords of sin slave to sin](../files/pictures/devil-battle.jpg "cords of sin slave to sin")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)
 
-Throughout the Bible, one can read of man having the _rule_ over fish, birds, living creatures (Gen. 1:26) and people **ruling** over other people (1 Sam. 14:47; 2 Sam. 19:10), but then we come to other verses which show that **sins can _rule_ over people. _Sin has power_ to destroy, bind and control people:** 
+Durch die Bibel hindurch kann man davon lesen, dass der Mensch _herrscht_ über Fische, Vögel, lebende Kreaturen (1. Mose 1,26) und Leute über andere Leute Menschen **herrschen** (1 Sam. 14,47; 2 Sam. 19,10), aber dann kommen wir zu anderen Versen, die zeigen, dass **Sünde über Menschen _herrschen_ kann. _Sünde hat Macht_, Menschen zu zerstören, zu fesseln und zu kontrollieren:**
 > Auch vor den **Übermütigen/Hochmutssünden** bewahre deinen Knecht, **daß sie nicht über mich herrschen**; dann werde ich unschuldig sein und frei bleiben von großer Missetat! ​Laß dir wohlgefallen die Rede meines Mundes und das Gespräch meines Herzens vor dir, HERR, mein Fels und mein Erlöser! (Ps. 19,13-14).
 
 > Mache meine Schritte fest durch dein Wort und **laß kein Unrecht über mich herrschen!** (Ps. 119,133).
@@ -46,7 +46,7 @@ Das hebräische Wort für _rule_ ist _mashal_ und bedeutet:
 
 [![Sünde ist Sünde](../files/pictures/sin-is-sin.jpg "sin is sin")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/james210.htm)
 
-There are only two types of people, the _wicked_ (or lost) and the _righteous_ (or saved). Regarding the former, Proverbs 5:22 declares that they are _take_[n] (KJV) or _ensnared_ (NIV) by their sin. That word _ensnared_ in the Hebrew is _lakad_ and means: 
+Es gibt nur zwei Arten von Leuten, die _Bösen_ (oder Verlorenen) und die _Gerechten_ (oder Geretteten). Bezüglich den Ersteren erklärt Sprüche 5,22, dass sie are _take_[n] (KJV) oder _ensnared_ (NIV) durch ihre Sünden. Dieses Wort _ensnared_ im Hebräischen ist _lakad_ und bedeutet: 
 > **to catch** (in a net, trap or pit); gen. **to capture** or occupy; also to choose (by lot); fig. to cohere:-- X at all, **catch** (self), **be frozen, be holden, stick together**, take. 
 
 Beachte die Klarheit dieses Verses:
@@ -76,7 +76,6 @@ The imagery of these Scriptures shows the powerless spiritual condition the unsa
 
 ## Jesus Wird Dich _Befreien_ Von Der Macht der Sünde
 
-
 Im folgenden Abschnitt, wird **_die Wahrheit_ (welche einen von Sünde befreien wird) mit _dem Sohn_, das heisst, mit Jesus Christ selbst gleichgestellt:** 
 > Da sprach Jesus zu den Juden, die an ihn gläubig geworden waren: Wenn ihr in meinem Worte bleibet, so seid ihr wahrhaftig meine Jünger, und ihr werdet die Wahrheit erkennen, und **die Wahrheit wird euch frei machen!** Sie antworteten ihm: Wir sind Abrahams Same und sind nie jemandes **Knechte** gewesen; **wie sprichst du denn: Ihr sollt frei werden?** Jesus antwortete ihnen: Wahrlich, wahrlich, ich sage euch: **Wer Sünde tut, ist der Sünde Knecht**. Der Knecht aber bleibt nicht ewig im Hause; der Sohn bleibt ewig. **Wird euch nun der Sohn frei machen, so seid ihr wirklich frei.** (Johannes 8,31-36).
 
@@ -91,14 +90,16 @@ Dasselbe griechische Wort, welches in diesem Vers mit _escape_ übersetzt wird, 
 
 nachdem ihr dem in der Welt durch die Lust herrschenden Verderben entflohen seid, 
 
-> His divine power has given us everything we need for life and godliness through **our knowledge of him** who called us by his own glory and goodness. Through these he has given us his very great and precious promises, so that through them you may participate in the divine nature and **escape** the corruption in the world caused by evil desires (2 Pet. 1:3,4).
+> Nachdem seine göttliche Kraft uns alles, was zum Leben und zur Gottseligkeit dient, geschenkt hat, **durch die Erkenntnis dessen**, der uns kraft seiner Herrlichkeit und Tugend berufen hat, durch welche uns die teuersten und größten Verheißungen geschenkt sind, damit ihr durch dieselben göttlicher Natur teilhaftig werdet, nachdem ihr dem in der Welt durch die Lust herrschenden Verderben **entflohen** seid, (2Pet 1,3-4; Schlachterbibel 1951)
+
+[_engl. > His divine power has given us everything we need for life and godliness through **our knowledge of him** who called us by his own glory and goodness. Through these he has given us his very great and precious promises, so that through them you may participate in the divine nature and **escape** the corruption in the world caused by evil desires (2 Pet. 1:3,4)._]
 
 
 ## [Klicke Für Mehr Wahrheit Über JESU Blut](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jesusblood.html) 
 ## Wiederum _Gefangen_ In der Sünde
 
 **Es ist sehr wichtig, die Tatsache zu betonen, dass sogar eine Person, welche einst von der herrschenden Kraft der Sünde durch Jesu Blut _befreit_ worden ist, wiederum ein _Gefangener der Sünde_ werden kann**. Consider die Worte des Apostels Petrus zu Simon, der vorher zum Punkt des **_[glaubens](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/believing.html)_** kam, welches der christlichen Taufe würdig war (Apg 8,13): 
-> Repent of this wickedness and pray to the Lord. Perhaps he will forgive you for having such a thought in your heart. For I see that you are full of bitterness and **captive to sin** (Acts 8:22, 23). 
+> So tue nun Buße über diese deine Bosheit und bitte den Herrn, ob dir die Tücke deines Herzens möge vergeben werden; denn ich sehe, daß du in bitterer Galle und **in Ungerechtigkeit [=Sünde] verstrickt** bist. (Apg 8,22-23; Schlachterbibel 1951)
 
 Der Apostel schrieb auch von derselben Möglichkeit die denen wieder geschieht, welche wirklich gerettet waren. In 1 Peter, war seine Zuhörerschaft bereits _wiedergeboren_ (1,23) und durch **[Jesu _kostbares Blut_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jesusblood.html)** _losgekauft_ (1:18), but such would not, in itself, prevent them from becoming _captive_ to sin again, wie es Simon geschah (Apg 8,13, 23). Konsequenterweise muss freier Wille und menschliche Verantwortung daran beteiligt sein, frei zu bleiben. Anstatt sich den bösen Lüsten zu fügen, die wir hatten, als wir nicht gerettet waren, sind wird Christen befohlen, **_heilig zu sein in allem was sie tun:_**
 > As obedient children, **do not conform to the evil desires you had when you lived in ignorance**. But just as he who called you is holy, so **be holy in all you do**; for it is written: "**Be holy**, because I am holy" (1 Pet. 1:14-16). 
@@ -124,32 +125,32 @@ Aber das ist nicht alles, was der Apostel über jene apostates schrieben, das he
 Mit anderen Worten, **werde nicht [rückfällig/abtrünnig](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/backslider.html)** or sin's _entanglement_ and _slavery_ will be worse than it was before initial salvation! But if backsliding has already occurred, **one can get saved (and _freed_) again**, according to the Biblical record: 
 > Denn dieser mein Sohn war tot und **ist wieder lebendig geworden; er war verloren und ist wiedergefunden worden**. Und sie fingen an, fröhlich zu sein. (Lk. 15,24).
 
-> **Brethren, if anyone among you wanders from the truth, and someone turns him back**, let him know that **he who turns a sinner from the error of his way will save a soul from death and cover a multitude of sins** (James 5:19, 20, NKJV).
+> **​Meine Brüder, wenn jemand unter euch von der Wahrheit abirrt, und es bekehrt ihn einer**, ​der soll wissen, dass, **wer einen Sünder von seinem Irrweg bekehrt hat, seine Seele vom Tode retten und eine Menge Sünden bedecken wird.** (Jakobus 5,19-20; Schlachter 1905)
 
 > Nun sagst du aber: Die Zweige sind ausgebrochen worden, damit ich eingepfropft würde! Gut! Um ihres Unglaubens willen sind sie ausgebrochen worden; **du aber stehst durch den Glauben**. Sei nicht stolz, sondern **fürchte dich**! Denn **wenn Gott die natürlichen Zweige nicht verschont hat, so wird er wohl auch dich nicht verschonen**. So schaue nun die Güte und die Strenge Gottes; die Strenge an denen, die gefallen sind; **die Güte aber an dir, sofern du in der Güte bleibst, sonst wirst auch du abgehauen werden**! Jene dagegen, wenn sie nicht im Unglauben verharren, sollen wieder eingepfropft werden; denn **Gott vermag sie wohl wieder einzupfropfen**. (Röm. 11,19-23; Schlachter1951).
 
 ## _Er Wird Dich Auch Nicht Verschonen_
 
-Sometimes in a feeble effort to save the false teaching of _eternal security_, proponents of such will try to dismiss Rom. 11:19-23 as only _referring to Israel_. By doing this, they somehow overlook the following two clauses from that passage: (1) _if God did not spare the natural branches, **he will not spare you either**_ and (2) _kindness to you, **provided that you continue in his kindness. Otherwise, you also will be cut off.**_ 
+Manchmal werden Befürworter der _ewigen Sicherheit_ in einem schwachen Versucht, die falsche Lehre versuchen, Röm. 11,19-23 als nur _auf Israel beziehend_ zu verwerfen. Indem sie solches tun, übersehen sie irgendwie die folgenden zwei Klauseln dieses Abschnitts: (1) _wenn Gott die natürlichen Zweige nicht verschont hat, **so wird er auch dich nicht verschonen**_ und (2) _die Güte aber an dir, **sofern du in der Güte bleibst, sonst wirst auch du abgehauen werden!**_
 
-Dear reader, **do not be deceived by the false _grace_ message of OSAS (**[once saved, always saved](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)**). We must endure to the end for salvation's sake (Mt. 10:22), be faithful to the very end of our lives, so we won't be hurt by the second death (Rev. 2:10,11), and hold firmly to the end to share in Christ (Heb. 3:14)**. Ausserdem schrieb Johannes:
+Lieber Leser, **werde nicht irregeführt durch die falsche _Gnaden_-Botschaft von OSAS (**[einmal gerettet, immer gerettet](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)**). Wir müssen bis zum Ende verharren um der Errettung willen (Mt. 10,22), fruchtbar sein bis ganz zum Ende unserer Leben, sodass wir keinen Schaden nehmen werden vom zweiten Tod (Off. 2,10-11), und standhaft bis zum Ende festbehalten, um Christi Genossen zu werden (Heb. 3,14)**. Ausserdem schrieb Johannes:
 > Was ihr von Anfang an gehört habt, das bleibe in euch! **Wenn in euch bleibt, was ihr von Anfang an gehört habt, so werdet auch ihr in dem Sohne und in dem Vater bleiben**. Und das ist die Verheißung, die er uns verheißen hat: **das ewige Leben**. (1. Joh. 2,24-25; Schlachter1951).
 
-**According to true grace teaching, eternal life is a _hope_ (Titus 3:7), yet to be _reaped_ (Gal. 6:8,9), in the _age to come_ (Mk. 10:30), for only the ones who _persist in doing good_ (Rom. 2:7) and don't grow weary and _give up_ (Gal. 6:9).** 
+**Laut wahrer Gnadenlehre ist ewiges Leben eine _Hoffnung_ (Titus 3,7), die noch zu _ernten_ ist (Gal. 6,8-9), in der _zukünftigen Weltzeit_ (Mk. 10,30), nur für diejenigen, welche _verharren im Tun des Guten_ (Rom. 2,7) und nicht erschöpfen und _aufgeben_ (Gal. 6,9).** 
 
 
 ## Des Teufels _Gefangener_
 
-The apostle Paul also noted the spiritual _captivity_ that an unsaved person is in. Hence, he informed Timothy how God's truth is to be presented _to those who oppose him_: 
-> And the Lord's servant must not quarrel; instead, he must be kind to everyone, able to teach, not resentful. Those who oppose him he must gently instruct, in the hope that God will grant them repentance leading them to a knowledge of the truth, and that they will come to their senses and escape from **the trap of the devil**, who has **taken them captive** to do his will (2 Tim. 2:24-26).
+Der Apostel Paulus erwähnte auch die geistliche _Gefangenschaft_ in welcher eine nicht errettete Person ist. Daher informierte er Timotheus, wie Gottes Wahrheit denen dargelegt werden muss, _welche sich ihm widersetzen_: 
+> Ein Knecht des Herrn aber soll nicht streiten, sondern milde sein gegen jedermann, lehrhaft, der die Bösen tragen kann und mit Sanftmut die Widerspenstigen züchtigt, ob ihnen Gott nicht noch Busse geben möchte zur Erkenntnis der Wahrheit, und sie wieder ernüchtert werden, herauszukommen aus **der Schlinge des Teufels**, von welchem sie **lebendig gefangen** sind zu seinem Willen. (2Tim 2,24-26; Schlachter 1905)
 
-Remember also that **all unsaved people are _controlled by the sinful nature:_** 
-> For when we **were controlled by the sinful nature**, the sinful passions aroused by the law were at work in our bodies, so that we bore fruit for death (Rom. 7:5).
+Präge dir auch ein, dass **alle unerretteten Leute _durch die sündhafte Natur[=Fleisch] beherrscht werden:_**
+> Denn **als wir im Fleische waren,** da wirkten die sündlichen Leidenschaften, durch das Gesetz erregt, in unsren Gliedern, um dem Tode Frucht zu bringen. (Röm 7,5; Schlachterbibel 1951)
 
 Johannes erwähnte auch die geistliche Knechtschaft der Ungeretteten, benannt als _Welt_ in 1. Joh. 5,19 (Menge-Übersetzung):
 > Wir wissen, dass wir aus Gott (= Gottes Kinder) sind, **die ganze Welt dagegen im Argen liegt** (oder: sich in der Gewalt des Bösen, d.h. des Teufels, befindet).
 
-Paul also wrote of a Christian's past life of being a _slave_ to sin, but went further to explicitly state that  **they _have been set free from sin_**: 
+Paulus schrieb auch von dem vergangenen Leben eines Christen oder dem _Knecht_ sein zur Sünde, aber er ging weiter, um explizit auszusagen, dass **sie _von der Sünde befreit wurden_**:
 > **Nachdem ihr aber von der Sünde befreit wurdet**, seid ihr der Gerechtigkeit dienstbar [= Sklaven] geworden. Ich muß menschlich davon reden wegen der Schwachheit eures Fleisches. Gleichwie **ihr eure Glieder in den Dienst der Unreinigkeit und der Gesetzwidrigkeit gestellt habt, um gesetzwidrig zu handeln**, so stellet nun eure Glieder in den Dienst [= Sklaverei] der Gerechtigkeit zur Heiligung. Denn **als ihr Knechte der Sünde waret, da waret ihr frei gegenüber der Gerechtigkeit**. Was hattet ihr nun damals für Frucht? Solche, deren ihr euch jetzt schämet; **denn das Ende derselben ist der Tod. Nun aber, da ihr von der Sünde frei und Gott dienstbar [=Sklaven] geworden seid, habt ihr als eure Frucht die Heiligung, als Ende aber das ewige Leben.** (Röm. 6,18-22; Schlachter1951).
 
 
@@ -170,13 +171,13 @@ Why then doesn't today's _Gospel_ deliver this same kind of power and benefit, t
 
 ## [_Wölfe in Schafskleidern_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wolfsheep.html)
 **The implications of 1 Cor. 15:2 and Gal. 1:8,9 indict all those preaching _eternal security_. Such _wolves in sheep's clothing_ (Mt. 7:15) are in serious trouble, especially when Jude 3,4 is also considered:** 
-> Dear friends, although I was very eager to write to you about the salvation we share, I felt I had to write and urge you **to contend** for the faith that was once for all entrusted to the saints. For certain men **whose condemnation was written about long ago** have secretly slipped in among you. They are **godless men, who change the grace of our God into a license for immorality and deny Jesus Christ** our only Sovereign and Lord.
+> Geliebte, da es mir ein großes Anliegen ist, euch von dem gemeinsamen Heil zu schreiben, hielt ich es für notwendig, euch mit der Ermahnung zu schreiben, daß ihr für den Glauben **kämpft**, der den Heiligen ein für allemal überliefert worden ist. Es haben sich nämlich etliche Menschen unbemerkt eingeschlichen, **die schon längst zu diesem Gericht aufgeschrieben worden sind**, **Gottlose, welche die Gnade unseres Gottes in Zügellosigkeit verkehren** und Gott, den einzigen Herrscher, **und unseren Herrn Jesus Christus verleugnen.** (Schlachter2000)
 
-**In Jude's day, those _godless men_ had to _secretly slip in among_ Christians, but in our dark day they are openly preaching the lie of once saved always saved (OSAS) over radio, TV, from pulpits and putting such in print! Sadly, some people who know OSAS is false are even supporting such congregations and ministries with their presence and financial donations! Others promote their deadly influence through their websites by links or article reprints.** 
+**Zu Judas Zeiten mussten diese _gottlosen Menschen_ _heimlich einschleichen_ unter Christen, aber in unserer dunklen Zeit predigen sie offen/unverhohlen die Lüge von Einmal Gerettet Immer Gerettet (OSAS) übers Radio, TV, von den Kanzeln und dies auch druckend! Traurigerweise unterstützen einige Leute, die wissen dass OSAS falsch ist solche Versammlungen und Dienste sogar durch ihre Anwesenheit und finanzielle Spenden! Andere fördern ihren tödlichen Einfluss durch ihre Website durch Links oder Artikelabdrucke.** 
 
-Remember, what Jude called a counterfeit _grace_ message and _license for immorality_ (Jude 3,4), is termed in our day _eternal security_. Others sometimes call it _once saved always saved_ or _the **[perseverance of the saints](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/perseverance-of-the-saints.htm)**_, but it's the same basic lie from the **[devil](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devil.html),** first spoken to Eve in the garden (Gen. 3:4) and afterwards accepted as truth. Diese Lehre führte zu Adam und Evas geistlichem Tod. **Der Kern dieser finsteren/unheilvollen Lehre ist, dass eine Person, die ewiges Leben hat, anschliessend nicht geistlich sterben kann. Lass nicht zu, dass dich das Erwähnen des _Kreuzes Christi_ durch [Jimmy Swaggart](jimmy-swaggart-study-in-the-word.htm), oder irgendjemand anderem, dich über solches betrügt**
+Präge dir ein, was Judas gefälschte _Gnaden_-Botschaft und eine _Lizenz für Unmoral_ nannte (Judas3,4) wird heutzutage benannt als _ewige Sicherheit_. Andere bezeichnen es manchmals als _Einmal Gerettet Immer Gerettet_ oder _die  **[Beharrlichkeit der Heiligen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/perseverance-of-the-saints.htm)**_, aber es ist dieselbe grundlegende Lüge vom **[Teufel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devil.html),** die erstmals zu Eva im Garten gesprochen (1. Mose 3,4) und anschliessend als Wahrheit akzeptiert wurde. Diese Lehre führte zu Adam und Evas geistlichem Tod. **Der Kern dieser finsteren/unheilvollen Lehre ist, dass eine Person, die ewiges Leben hat, anschliessend nicht geistlich sterben kann. Lass nicht zu, dass dich das Erwähnen des _Kreuzes Christi_ durch [Jimmy Swaggart](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jimmy-swaggart-study-in-the-word.htm), oder irgendjemand anderem, dich über solches betrügt**
 
-May multitudes in our day become aware of the _freedom_ from sin's slavery found in Jesus' blood through his one and only _gospel_ of grace, and afterwards faithfully work out their own salvation with _fear and trembling_ (Phil. 2:12), being mindful that a true Christian can go back to their old sinful life, die spiritually and become _entangled_ by sin all over again. 
+Mögen Massen heutzutage auf die _Freiheit_ von der Sklaverei der Sünde aufmerksam werden, welche in Jesu Blut durch sein one and only _Evangelium_ der Gnade zu finden ist, und anschliessend ihre eigene Errettung mit _Furcht und Zittern_ vollenden (Phil. 2,12), sich dessen bewusst, dass ein wahrer Christ zurück zu seinem alten sündhaften Leben gehen, geistlich sterben und wiederum all over durch Sünde _entangled_ werden kann.
 
 **Finally, may the Lord raise up millions, all over the world, who will fearlessly _contend_ for these Biblical truths, like good Christian soldiers, in spite of how they might suffer for obeying the Lord and opposing the popular, false prophets! Precious eternal souls are hanging in the balance over these issues. _Slaves of sin_ can be set free! The _power of sin_ can be broken through the Lord Jesus Christ!** 
 
@@ -188,12 +189,12 @@ May multitudes in our day become aware of the _freedom_ from sin's slavery found
 
 ![Sin Addiction slave of sin](../files/pictures/line2.gif)
 
-**OTHER TOPICS:** 
+**WEITERE THEMEN:** 
 
 - **[Lebe Heilig Und Bewahre Dich Selbst Rein](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/keep-yourself-pure.html)**
 - **[Befreit Von Sündhaften Abhängigkeiten](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)**
 - **[Plan Der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
-- **[Wicked People and How To Be Forgiven](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wicked-people-forgiven.html)**
+- **[Boshafte Leute und Wie Einem Vergeben Werden Kann](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wicked-people-forgiven.html)**
 - **[Die Neue Schöpfung In Christus Radikale Veränderung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/new-creation.html)**
 
 [**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
@@ -202,4 +203,4 @@ May multitudes in our day become aware of the _freedom_ from sin's slavery found
 PO Box 265  
 Washington, PA 15301  
 EvangelicalOutreach.org  
-EternalLifeBlog.com
+EternalLifeBlog.comm

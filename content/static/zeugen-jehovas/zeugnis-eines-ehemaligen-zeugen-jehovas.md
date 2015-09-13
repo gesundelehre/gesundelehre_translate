@@ -82,19 +82,19 @@ We have come to know and have believed the love which God has for us. God is lov
 
 May the Lord bless you as you walk the narrow path into life. I pray God that we may all meet one day knowing that **our faith showed through our Godly deeds** to bring us all into the fullness of Him who called us.
 
-![Ex JW](../files/pictures/a-colorb.gif)
+![Ehemaliger ZJ](../files/pictures/a-colorb.gif)
 
 **OTHER TOPICS:**
 
 - **[Jehovah's Witnesses Beliefs Answered and Exposed](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html)**
 
-- **[Former Roman Catholic](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)**
+- **[Ehemaliger Römisch Katholischer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)**
 
 - **[Latter Day Saints (Witnessing To Mormons)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html)**
 
-- **[Universalism](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/universalism.htm)**
+- **[Universalismus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/universalism.htm)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)</font>
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)</font>
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

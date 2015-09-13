@@ -88,7 +88,7 @@ Jesus stated **_all of his servants_ will be with him!** So, where is he referri
 
 - **[Answering Objections To The Deity Of Christ](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/deity-of-Christ.html)**
 
-- **[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+- **[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

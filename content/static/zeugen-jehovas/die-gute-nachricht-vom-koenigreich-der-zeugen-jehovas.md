@@ -75,7 +75,7 @@ Paul concisely stated his gospel in Acts 20:21, which has nothing to do with the
 
 - **[Latter Day Saints (Witnessing To Mormons)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

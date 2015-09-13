@@ -1,5 +1,5 @@
 <!--t Begierdenbrief1: Brief Von Einem Mann Der Mit Pornografischer Begierde Kämpft - in Arbeit (0% übersetzt) t-->
-<!--d Begierdenbrief1: Brief Von Einem Mann Der Mit Pornografischer Begierde Kämpft - in Arbeit (0% übersetzt) d-->
+<!--d Pornografiesucht, Pornografie, Porno, Sucht, Süchtig, Pornografiesüchtig, Freiheit von Pornografiesucht, Freiheit von Pornografie, Begierde, Begierden, Lust, Geil, Wollust, Schmutzige Gedanken, Freiheit von Schmutzigen Gedanken d-->
 
 Begierdenbrief1: Brief Von Einem Mann Der Mit Pornografischer Begierde Kämpft
 

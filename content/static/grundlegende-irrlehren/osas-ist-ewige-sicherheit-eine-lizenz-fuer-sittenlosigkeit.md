@@ -1,86 +1,86 @@
-<!--t Ist Ewige Sicherheit eine Lizenz für Sittenlosigkeit? - in Arbeit (5% übersetzt) t-->
-<!--d Ist Ewige Sicherheit eine Lizenz für Sittenlosigkeit? - in Arbeit (5% übersetzt) d-->
+<!--t Ist Ewige Sicherheit eine Lizenz für Sittenlosigkeit? (100% übersetzt) t-->
+<!--d Lizenz Für Unmoral, Lizenz Für Sittenlosigkeit, Ewige Sicherheit ist eine Lizenz zum Sündigen, Ewige Sicherheit ist eine Lizenz Für Unmoral, Ewige Sicherheit ist eine Lizenz für Sittenlosigkeit, Gnade Gottes in Zügellosigkeit verkehrt, Gnade Gottes in Ausgelassenheit verkehrt d-->
 
 Ist Ewige Sicherheit eine Lizenz für Sittenlosigkeit?
 
 - - -
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [evangelicaloutreach.org/eslicense.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eslicense.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-irrlehren/osas-ist-ewige-sicherheit-eine-lizenz-fuer-sittenlosigkeit.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# # Übersetzungsvorschläge können [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-irrlehren/osas-ist-ewige-sicherheit-eine-lizenz-fuer-sittenlosigkeit.md) auf github gemacht werden.
 
-Source: [www.evangelicaloutreach.org/eslicense.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eslicense.htm)
+Quelle: [www.evangelicaloutreach.org/eslicense.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eslicense.htm)
 
 # Ist Ewige Sicherheit eine Lizenz für Sittenlosigkeit?
 
 ### Dan Corner
 
-![eternal security license for immorality](../files/pictures/evangelical-license-for-immorality.jpg)
+![Ewige Sicherheit Lizenz Für Unmoral](../files/pictures/evangelical-license-for-immorality.jpg)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-![Is Eternal Security a License for Immorality](../files/pictures/a-colorb.gif)
+![Ist Ewige Sicherheit Eine Lizenz Für Unmoral](../files/pictures/a-colorb.gif)
 
 
-## Warum Verleugnen Die Meisten Ewige Sicherheist-Lehrer Diese Wahrheit
+## Warum Verleugnen Die Meisten Ewige Sicherheits-Lehrer Diese Wahrheit
 
-As it has often been stated in the past, **eternal security proponents will deny** the truth that their own beloved doctrine is _a license for immorality._ In an effort to escape this apparent truth, one **[eternal security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)** proponent emailed the following:
+Wie es oftmals in der Vergangenheit festgestellt wurde, **werden Befürworter der ewigen Sicherheit** die Wahrheit **verleugnen**, dass ihre geliebte Lehre eine _Lizenz für Unmoral_ ist._ In einer Anstrengung, dieser klar ersichtliche Wahrheit zu entfliehen, mailte uns ein Befürworter der **[ewigen Sicherheit](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)** das folgende:
 
 > Ewige Sicherheit lehrt nicht sündige soviel du willst, weil du immer gerettet bist.
 
 
-## Christliche Response Bezüglich Ewiger Sicherheit
+## Christliche Antwort Bezüglich Ewiger Sicherheit
 
-[![lizenz für sittenlosigkeit](../files/pictures/eternal-security-license-for-immorality.jpg "Eternal security is dripping with a license for immorality AND crushes the fear of God.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/etlicense.html)
+[![Lizenz für Sittenlosigkeit](../files/pictures/eternal-security-license-for-immorality.jpg "Ewige Sicherheit Trieft Vor Lizenz Für Unmoral UND zerschlägt die Furcht Gottes.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/etlicense.html)
 
 **[Biblische Antwort](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible-answers.html)**: Die Lehre von Ewiger Sicherheit muss nicht Wort-Für-Wort lauten/verkündigen: _sündige so viel du willst, weil du immer gerettet bist_. **Alles was sie tun muss ist zu verkünden, dass Sünde niemals jemandes _Errettung_ gefährden kann — was genau die Kernbotschaft dieser bösen Lehre ist.**
 
-**Eternal security proponents have no fear or concern about their salvation being jeopardized by any kind of wickedness they would commit.** They all think they can commit **adultery**, get **[drunk](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/drunk.html), lie, steal, slander, be [unforgiving](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/forgive.html), greedy, [lustful](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html), die a [suicide](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/suicide.html), etc.** without their _salvation_ being lost (though they sometimes loathe to admit this). Hence, for the ones who find real salvation, when the devil tempts them to sin—being oblivious to the truth that the **[righteous can die spiritually](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)**—they yield and sin does its destructive work to their _eternal salvation._ **NOTE: eternal salvation is only given to those who OBEY Jesus (Heb. 1:6). That is not the _eternal salvation_ they claim to have!** They apparently know nothing about sin leading to spiritual death:
+**Befürworter der ewigen Sicherheit haben keine Angst oder Besorgnis darüber, dass ihre Errettung/ihr Heil durch irgendwelche Bosheit, welche sie begehen würden, gefährdet ist.** Sie alle denken, dass sie **Ehebruch** begehen, **[betrunken](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/drunk.html) werden, lügen, stehlen, verleumden/beleidigen, [unversöhnlich sein](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/forgive.html), habgierig, [wollüstig/geil](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html), einen [Suizid (=Selbstmord)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/suicide.html) sterben etc. könnten** ohne ihre _Errettung_ / ihr _Heil_ zu verlieren (obwohl sie es manchmal hassen/verabscheuen, solches zuzugeben). Daher, für diejenigen, welche wirkliche Errettung finden, wenn der Teufel sie dazu versucht, zu sündigen — da sie sich der Wahrheit nicht bewusst sind, dass der **[Gerechte geistlich sterben kann](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)** — geben sie der Versuchung nach und Sünde macht ihre verderberische Arbeit gegenüber ihrem _ewigem Heil_. **BEACHTE: Ewiges Heil wird nur denen gegeben, welche Jesus GEHORCHEN (Heb. 5,9). Dies ist nicht die _ewige Errettung_ welche sie behaupten, zu haben!** Sie wissen offenbar nichts darüber, dass Sünde zu geistlichem Tod führt:
 
-> Each one is tempted when, by his own evil desire, he is dragged away and enticed. Then, after desire has conceived, it gives birth to sin; and **sin, when it is full-grown, gives birth to death. Don’t be deceived**, my dear brothers (James 1:14-16).
+> "Sondern ein jeder wird versucht, wenn er von seiner eigenen Lust gereizt und gelockt wird. Darnach, wenn die Lust empfangen hat, gebiert sie die Sünde; **die Sünde aber, wenn sie vollendet ist, gebiert den Tod. Irret euch nicht**, meine lieben Brüder" (Jak 1,14-16; Schlachterbibel 1951)
 
-> For if you live according to the sinful nature, **you will die**; but if by the Spirit you put to death the misdeeds of the body, you will live (Rom. 8:13).
+> "Denn wenn ihr nach dem Fleische lebet, **so müßt ihr sterben**; wenn ihr aber durch den Geist die Geschäfte des Leibes tötet, so werdet ihr leben." (Röm 8,13; Schlachterbibel 1951)
 
-## [More Proof Eternal Security Is Dripping With a License To Sin](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/etlicense.html)
+## [Mehr Beweis Dafür Dass Ewige Sicherheit Trieft Vor Lizenz Zum Sündigen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/etlicense.html)
 
 
-## Their Basic Beliefs Imply a License For Immorality
+## Ihre Grundlegenden Glaubensvorstellungen Beinhalten eine Lizenz Für Unmoral
 
-The most foundational so-called **[Christian beliefs](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-beliefs.html)** of the eternal security proponents are twisted and distorted! They don’t care about their loss of rewards, under today’s pressures of life and temptations. This is apparent by their sinfully repugnant behavior. In fact, they also believe: (1) Their **[future sins are all forgiven](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/futuresins.html)** before they even commit them; (2) God cannot see their sins anyway, since all God can see when he looks at the Christian is the **[blood of Jesus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jesusblood.html)**; and (3) **They will all sin all the time and Paul himslef was the _worst of sinners!_.**
+Die grundlegendsten sogenannten **[christlichen Glaubensvorstellungen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-beliefs.html)** der Befürworter der ewigen Sicherheit sind verdreht und verzerrt! Es ist ihnen völlig egal, ob sie Belohnung/Lohn verlieren unter dem heutigen Druck des Lebens und der Versuchungen. Dies ist klar ersichtlich durch ihr widerliches sündhaftes Verhalten. In der Tat, sie glauben auch: (1) Ihre **[zukünftigen Sünden sind alle vergeben](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/futuresins.html)** bevor sie sie auch nur begehen; (2) Gott kann ihre Sünden sowieso nicht sehen, da alles was Gott sieht, wenn er den Christen ansieht, **[Jesu Blut](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jesusblood.html)** ist; und (3) **Sie werden alle ständig sündigen und Paulus selbst war der _Schlimmste der Sünder!_.**
 
-**Hence, their teaching is the indirect declaration of _a license for immorality._** Why should an eternal security proponent even try to _obey_ after such indoctrination? **He has been taught he _can’t_ _obey_ anyway and such doesn’t really matter as far as _salvation_ is concerned.**
+**Daher ist ihre Lehre eine indirekte Deklarierung einer _Linzenz für Unmoral._** Warum sollte ein Befürworter der ewigen Sicherheit auch nur versuchen, zu _gehorchen_ nach solcher Belehrung/Indoktrinierung? **Er wurde gelehrt, dass er _nicht gehorchen kann_ und solches spielt überhaupt keine Rolle insofern was _Errettung/Heil_ anbelangt.**
 
 ## [David J. Stewart Gibt Offen Zu, Dass Ewige Sicherheit Eine Lizenz Für Sünde Ist!](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hereticDavidJStewart.html)
 
 
 ## Sagtest Du _Heilig_
 
-If you ever hear a person say that he or some other eternal security proponent he knows is living _holy_, please remind them **such is contrary to their own interpretation of Romans 7:14-20. They openly teach Paul didn’t live _holy._ How then can he expect Christians to believe he or someone he personally knows is living _holy?_ Again, such would be self-defeating because it would oppose their own doctrine.**
+Falls du jemals einer Person sagen hörst, dass er oder ein anderer Befürworter der ewigen Sicherheit, den er kennt, _heilig_ lebt, bitte erinnere sie daran, dass **solches im Gegensatz ist zu ihrer eigenen Interpretation von Römer 7,14-20. Sie lehren offen, dass Paulus nicht _heilig_ lebte. Wie kann er von Christen erwarten, zu glauben, dass er oder jemand, den er persönlich kennt _heilig_ lebt? Nochmals, dies wäre selbst-vernichtend, da es sich ihrer eigenen Lehre widersetzt.**
 
-Finally, please know that some eternal security teachers, like Bob George, do clearly teach _a license for immorality._ Er lehrte unverhohlen am Radio:
+Abschliessend wisse bitte, dass einige Ewige Sicherheits Lehrer, wie Bob George, deutlich _eine Lizenz für Unmoral_ lehren. Er lehrte unverhohlen am Radio:
 
-> **So is committing fornication permissible? Ja.**
+> **Ist es also zulässig [_engl. permissible_], Unzucht zu begehen? Ja.**
 
-That is clearly a license for immorality, especially when one observes that **_permissible_ and _license_ are synonyms.**
+Dies ist deutlich eine Lizenz für Unmoral, speziell, wenn man beachtet, dass **_zulässig_ und _Lizenz_ Synonyme sind.**
 
-A different eternal security proponent emailer misrepresented what we have taught about their doctrine in an attempt to discredit our teachings (at least in his own mind):
+Ein anderer Befürworter der ewigen Sicherheit Emailschreiber verdrehte, was wir über ihre Lehre gelehrt haben in einem Versuch, unsere Lehren unglaubwürdig zu machen (zumindest seiner Meinung nach):
 
-> You claim eternal security teaches you can live anyway you want to without consequences ....
+> Du behauptest, dass Ewige Sicherheit lehrt, dass man so leben kann wie man will ohne Konsequenzen ....
 
-We don’t present their doctrine in that manner. We have declared numerous times they think **only limited harm is done by their sinning**. In other words, they think their **_salvation_** can _never_ be lost. **They definitely do teach a sinning Christian will lose his _rewards_, fellowship with God, etc.** Their own doctrine causes trouble for them, but few seem to recognize it! Since they think their future sins are already forgiven before they are ever committed, **why will they lose their rewards over sins already forgiven? Also, their own teaching is that God cannot see their sins anyhow. So, if God can’t see their sins, then how can they lose rewards because of sin which God can’t see?**
+Wir stellen ihre Lehre nicht auf diese Art und Weise dar. Wir erklärten zahlreiche Male, dass sie denken, dass **nur begrenzter Schaden durch ihr Sündigen verursacht wird**. Mit andern Worten, sie denken, dass ihre **_Errettung_**/ihr **_Heil_** _niemals_ verloren werden kann.. **Sie lehren lehren bestimmt, dass ein sündigender Christ seinen _Lohn_/seine _Belohnung, seine Kameradschaft mit Gott, etc. verlieren wird.** Ihre eigene Lehre macht ihnen Mühe, aber wenige scheinen es zu bemerken! Da sie denken, dass ihre zukünftigen Sünden bereits vergeben wurden, bevor sie irgendwann begangen wurden, **warum würden sie Belohnungen verlieren auf Grund von Sünden die bereits vergeben wurden! Auch ist ihre eigene Lehre, dass Gott ihre Sünden sowieso nicht sehen kann. Wenn also Gott ihre Sünden nicht sehen kann, warum können sie dann Lohn verlieren auf Grund von Sünde, welche Gott nicht sehen kann?**
 
-**Eternal security is the ruination of the [evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelicals.htm) Bible-believing churches and denominations of our day. Such proponents don't understand [eternal salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/getsaved.html) at all! The sooner it is lethally crushed, the better for everyone. May God raise up a million bold and informed Christians to fight this spiritual gangrene from every angle.** We have much ministry material that can help with this noble cause of destroying the license for immorality of **[once a son always a son](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)**. GOD BLESS YOU.
+**Ewige Sicherheit ist die Ruinierung der [evangelikalen/evangelischen [_engl. evangelical_]](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelicals.htm) bibelgläubigen Kirchen und Denominationen heutzutage. Solche Vertreter verstehen [ewiges Heil/ewige Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/getsaved.html) überhaupt nicht! Je schneller es tödlich zerdrückt wird, desto besser für alle. Möge Gott eine Million kühner/mutiger Christen aufrichten, um diesen geistlichen Wundbrand von allen Seiten zu bekämpfen.** Wir haben viel Dienst [_engl. ministry_] Material, welches bei dieser edlen Angelegenheit der Zerstörung der Lizenz für Unmoral von **[Einmal ein Sohn Immer ein Sohn](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)** helfen kann. GOTT SEGNE DICH.
 
-![Is Eternal Security a License for Immorality](../files/pictures/a-colorb.gif)
+![Ist Ewige Sicherheit eine Lizenz für Unmoral](../files/pictures/a-colorb.gif)
 
-**[Eternal Security: Dripping With A License For Immorality](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/etlicense.html)**
+**[Ewige Sicherheit: Triefend Vor Lizenz Für Unmoral](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/etlicense.html)**
 
-- **[Find Peace With God](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/peace.htm)**
+- **[Finde Frieden Mit Gott](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/peace.htm)**
 
-- **[Biblical Repentance](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html)**
+- **[Biblische Busse](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html)**
 
-- **[Christian Cartoons And Flash With A Powerful Message](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-cartoons.html)**
+- **[Christliche Karikaturen [_engl. cartoons_] Und Flash Mit Einer Kraftvollen Botschaft](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-cartoons.html)**
 
-**[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+**[Kontaktiere Uns oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
 
 **[Evangelical Outreach](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)**  
 **PO Box 265**  

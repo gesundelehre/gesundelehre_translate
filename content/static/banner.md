@@ -30,7 +30,7 @@ Here are some banners that can be used to spread this website (mostly german-one
 ![](files/pictures/eternal-security-problem_de.png)
 ![](files/pictures/eternal-security-teachers-ear-ticklers_de.jpg)
 ![](files/pictures/false-conversion-false-convert-demonic-possession_de.jpg)
-![](files/pictures/flee-the-occult_de.jpg)
+![](files/pictures/flee-the-occult_de.png)
 ![](files/pictures/friend-of-the-world-enemy-of-god_de.jpg)
 ![](files/pictures/gal5-1921-grace-hell-warning_de.jpg)
 ![](files/pictures/give-account-on-day-of-judgment_de.jpg)

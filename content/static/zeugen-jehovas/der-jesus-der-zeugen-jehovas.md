@@ -180,4 +180,4 @@ Please note in oppostion to the Scriptures, the popular Watchtower publication, 
 **www.EvangelicalOutreach.org**  
 **www.EternalLifeBlog.com**
 
-**[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+**[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**

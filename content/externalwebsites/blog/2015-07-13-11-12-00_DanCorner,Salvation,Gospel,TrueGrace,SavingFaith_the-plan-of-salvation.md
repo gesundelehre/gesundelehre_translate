@@ -165,8 +165,8 @@ In other words, **unless you endure, remain faithful to God and hold firmly _til
 
 
 
-[**Evangelical Outreach**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)
-PO Box 265
+[**Evangelical Outreach**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)  
+PO Box 265  
 Washington PA 15301
 www.EvangelicalOutreach.org
 
