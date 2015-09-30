@@ -1,4 +1,4 @@
-<!--t 607 Vor Christus Von Einem Ehemaligen Zeugen Jehovas Widerlegt - in Arbeit (40% übersetzt) t-->
+<!--t 607 Vor Christus Von Einem Ehemaligen Zeugen Jehovas Widerlegt (100% übersetzt) t-->
 <!--d Zeugen Jehovas, Wachturmgesellschaft, Wachturm, Falscher Prophet, Neue Welt Übersetzung, NWÜ, 1914, 607 vChr d-->
 
 607 Vor Christus Von Einem Ehemaligen Zeugen Jehovas Widerlegt
@@ -6,7 +6,7 @@
 - - - 
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/jw607bce.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jw607bce.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/zeugen-jehovas/607-vor-christus-von-einem-ehemaligen-zeugen-jehovas-widerlegt.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Übersetzungsvorschläge können [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/zeugen-jehovas/607-vor-christus-von-einem-ehemaligen-zeugen-jehovas-widerlegt.md) auf github gemacht werden.
 
 Quelle: [www.evangelicaloutreach.org/jw607bce.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jw607bce.htm)
 
@@ -14,30 +14,28 @@ Quelle: [www.evangelicaloutreach.org/jw607bce.htm](http://gesundelehre.tk/forwar
 
 ### Bruder Adrian
 
-[![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
-
 ![607 BCE](../files/pictures/a-colorb.gif)
 
 
 ## Zeugen Jehovas und 607 vor Christus
 
-(Die folgende Eimail wurde eingsandt von einem ehemaligen Zeugen Jehovas.) As I’m sure you are aware the JW doctrine relies heavily upon the incorrect date of **607 BCE for the Destruction of Jerusalem** (taken from the Millerite movement). As opposed to many indications it cannot possibly be this date. Wie schön wäre es, dies von ihrer eigenen Bibel zu widerlegen ohne zusätzliche Literatur, von welcher sie ablehnen, sie anzuschauen.
+(Die folgende Email wurde von einem ehemaligen Zeugen Jehovas eingesandt.) Ich bin mir sicher, dass du dir dessen bewusst bist, dass die Lehren der ZJ stark auf dem inkorrekten Datum von **607 v.Chr. für die Zerstörung von Jerusalems** basieren. (übernommen von der Miller[oder Millerite?]-Bewegung). Entgegengesetzt gegenüber vielen Hinweisen/Anzeichen kann es unmöglich dieses Datum sein. Wie schön wäre es, dies von ihrer eigenen Bibel zu widerlegen ohne zusätzliche Literatur, welche sie ablehnen anzuschauen.
 
 
 1) Bitte einen ZJ er solle **Sacharia 1,12 lesen:**
 
-> So the angel of Jehovah answered and said: "O Jehovah of armies, how long will you yourself not show mercy to Jerusalem and to the cities of Judah, whom you have denounced these **seventy years." (NWT)**
+> Da antwortete der Engel Jehovas und sagte: "O Jehova der Heerscharen, wie lange wirst du selbst dich Jerusalems und der Städte Judas nicht erbarmen, die du diese **siebzig Jahre** öffentlich verurteilt hast?" (NWÜ)
 
 2) Frage was das Datum der Zerstörung war. Sie antworten immer 607 v.Chr.
 
 3) Bitte dann, dass sie in ihre Bibel schauen und den Zeitpunkt angeben, wann ihre Bibel (**[Neue Welt Übersetzung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)**) (korrekterweise) sagt, dass das Buch von Sacharia geschrieben wurde. Sie werden **520-518 v.Chr.** antworten.
 
 
-## [Learn More Serious Problems With Jehovah's Witnesses Beliefs](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jwbeliefs.html)
+## [Erfahre Mehr Ernsthafte Probleme Mit Glaubensvorstellungen Der Zeugen Jehovas](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jwbeliefs.html)
 
 ## Wie wäre es mit ungefähr 590-587 v.Chr. anstelle von 607 v.Chr.!
 
-4) Request the witness to do some simple mathematics asking, **what is 520-518 BCE added to 70\. The obvious answer is 590-588 BCE maximum.** (As we know due to regnal years etc. the closest date and correct date is 587/588)
+4) Fordere den Zeugen dazu auf, eine einfache Rechnung zu machen und frage **was ist 520-518 v.Chr. plus 70. Die klar ersichtliche Antwort ist 590-588 v.Chr. Maximum.** (Soweit man aufgrund von Regierungsjahren etc. weiss, ist das näheste und korrekte Datum 587/588)
 
 5) Frage sie, wenn die Lehre bezüglich 607 v.Chr durch den _**[treuen und klugen/diskreten Sklaven/Knecht](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jws.htm)**_ wahr ist, **wie kann die Bibel, die sie herumtragen solches verleugnen!!!**
 
@@ -52,7 +50,7 @@ Falls nichts anderes, so wird es einen _ernsthaften Zweifel an der Zeitangabe_ v
 
 - **[Plan Der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
 
-- **[Approaching Death](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/approaching-death.html)**
+- **[Sich Nähernder Tod](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/approaching-death.html)**
 
 **[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
 

@@ -1,4 +1,4 @@
-<!--t Der Verstand der Zeugen Jehovas der einer Gehirnwäsche unterzogen wurde - in Arbeit (0% übersetzt) t-->
+<!--t Der Verstand der Zeugen Jehovas der einer Gehirnwäsche unterzogen wurde - in Arbeit (95% übersetzt) t-->
 <!--d Zeugen Jehovas, Wachturmgesellschaft, Wachturm, Falscher Prophet, Neue Welt Übersetzung d-->
 
 Der Verstand der Zeugen Jehovas der einer Gehirnwäsche unterzogen wurde
@@ -14,56 +14,56 @@ Quelle: [www.evangelicaloutreach.org/jehovahs-witness-mind.htm](http://gesundele
 
 ### Dan Corner
 
-![jehovahs witness mind control](../files/pictures/evangelical-jehovahs-witness-mind-control.jpg)
+![Zeugen Jehovas Gedankenkontrolle](../files/pictures/evangelical-jehovahs-witness-mind-control.jpg)
 
 <iframe width="420" height="315" src="http://www.youtube.com/embed/pdr28YTw66k?rel=0" frameborder="0" allowfullscreen=""></iframe> 
-**Jehovahs Witnesses Answered, Part 1**
+**Zeugen Jehovas Beantwortet, Teil 1**
 
 <iframe width="420" height="315" src="http://www.youtube.com/embed/eNKkWI1wUb4?rel=0" frameborder="0" allowfullscreen=""></iframe>
-**Jehovahs Witnesses Answered, Part 2**
+**Zeugen Jehovas Beantwortet, Teil 2**
 
-![jehovah's witness mind](../files/pictures/a-colorb.gif)
+![Verstand des Zeugen Jehovas](../files/pictures/a-colorb.gif)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 
-## This Is Why Jehovah's Witnesses Religiously Think The Way They Do
+## Dies Ist Der Grund Warum Zeugen Jehovas So Religiös Auf Ihre Art Und Weise Denken
 
-**Are the Jehovah's Witnesses brainwashed?** Decide for yourself as you examine the following details about mind control! Below are the basic facts regarding how the Jehovah's Witnesses think about spiritual issues. Read them over and you will better understand their way of thinking and how the Watchtower can control their minds so easily. The last five points are really ramifications of the first, the basic foundational problem:
+**Wurden die Zeugen Jehovas einer Gehirnwäsche unterzogen?** Entscheide selbst während du die folgenden Details bezüglich Bewusstseinskontrolle untersuchst! Nachfolgend sind die grundlegenden Fakten bezüglich wie die Zeugen Jehovas über geistliche Dinge denken. Lies sie durch und du wirst besser verstehen, wie sie denken und wie der Wachturm so einfach ihren Verstand kontrollieren kann. Die letzten fünf Punkte sind wirklich Verzweigungen des ersten, dem grundlegenden, fundamentalen Problem:
 
 
 
-## The Jehovah's Witness Brainwashing Started From This
+## Die Gehirnwäsche der Zeugen Jehovas Started From This
 
-[![jehovahs witness brainwashed](../files/pictures/jehovahs-witness-research.jpg "The Jehovah's Witnesses are BRAINWASHED! Their research is bogus and part of mind control.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html)
+[![jehovahs witness brainwashed](../files/pictures/jehovahs-witness-research.jpg "Die Zeugen Jehovas wurden einer GEHIRNWÄSCHE UNTERZOGEN! Ihre Forschung ist Schwindel und Teil der Gedankenkontrolle.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html)
 
-1\. **The Jehovah's Witnesses believe _ONLY the Watchtower Society (their headquarters) can correctly interpret the Bible._** Why? Because that is how the Watchtower Society taught them. In other words, the Watchtower Society has taught them _only_ the Watchtower Society can correctly understand the Bible, but it wasn't that obvious as it was occurring. **This is the one main error that has snared the Jehovah's Witnesses and opened them up for all the rest of their erroneous beliefs. That is what is behind the Jehovah's Witness mind control.**
+1\. **Die Zeugen Jehovas glauben, dass _NUR die Wachturmgesellschaft (ihr Hauptquartier) die Bibel korrekt interpretieren kann.** Warum? Weil das das ist, was ihnen von der Wachturmgesellschaft gelehrt wurde. Mit andern Worten, die Wachturmgesellschaft lehrte sie, dass _nur_ die Wachturmgesellschaft die Bibel korrekt verstehen kann, but it wasn't that obvious as it was occurring. **Dies ist der eine Haupt-Irrtum, welcher die Zeugen Jehovas verstrickt/umgarnt hat und sie für den Rest ihrer irrtümlichen Glaubensvorstellungen geöffnet hat. Das ist was hinter der Gedankenkontrolle der Zeugen Jehovas steckt.**
 
-<big><big>**[Here Are 8 Reasons Why Jesus Can NOT Be An Angel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jws2.html)**</big></big>
+<big><big>**[Hier Sind 8 Gründe Weshalb Jesus KEIN Engel Sein Kann](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jws2.html)**</big></big>
 
-2\. Part of the Jehovah's Witnesses indoctrination from the Watchtower is: one must _take in knowledge to get eternal life_ (from a misuse of John 17:3). For an explanation of John 17:3, click **[The Watchtower's Deadly Distortion of John 17:3](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john173.html)**. Hence, **the JWs think one must believe the doctrines of the Watchtower Society to get _eternal life_.**
+2\. Teil der Indoktrination der Zeugen Jehovas vom Wachturm ist: Man muss Erkenntnis _in sich aufnehmen um ewiges Leben zu bekommen_ (aufgrund eines Missbrauchs von Johannnes 17,3). Für eine Erklärung von Johannes 17,3, klicke **[Die Tödliche Verzerrung von Johannes 17,3 durch Die Wachturmgesellschaft](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john173.html)**. Infolgedessen **denken die ZJ, dass man die Lehren der Wachturmgesellschaft glauben muss, um _ewiges Leben_ zu bekommen.**
 
-3\. **Being consistent with the first two points, the Jehovah's Witnesses believe they _must be part of “Jehovah's Organization” to get eternal life._ (_Jehovah's Organization_ to the JW is the Watchtower Society and the group of Jehovah's Witnesses they created.)** Why? Because that is what the Watchtower Society taught them. [At times, the Jehovah's Witnesses will deny this point, but it can be easily proven by: (1) Asking them if they could still have eternal life outside the Society and (2) It's in their own literature.]
+3\. **Konsistent mit den ersten zwei Punkten, glauben Zeugen Jehovas dass sie _Teil der "Organisation Jehovas" sein müssen, um ewiges Leben zu bekommen_. (Die _Organisation Jehovas_ für die ZJ ist die Wachturmgesellschaft_ und die Gruppe von Zeugen Jehovas welche von ihnen geschaffen wurde.)** Weshalb? Weil das das ist, was ihnen von der Wachturmgesellschaft gelehrt worden ist. [Zeitweise werden die Zeugen Jehovas diesen Punkt verleugnen, doch es kann einfach bewiesen werden durch: (1) indem man sie fragt, ob sie immer noch ewiges Leben ausserhalb der Gesellschaft haben könnten und (2) Es steht in ihrer eigenen Literatur.]
 
-4\. **The Jehovah's Witnesses deny the Watchtower is a _false prophet._** Why? Because: (1) That is what the Watchtower Society taught them. The Jehovah's Witnesses refuse to take Deut. 18:21,22 for how it reads and try to minimize the Watchtower's false prophecies regarding the end of the world, armageddon, etc. for 1914, 1918, 1925, 1931, 1941, 1975, etc. (The Watchtower also, at times, denies being a prophet. Hence, at times they teach they are and at other times they are not!)
+4\. **Die Zeugen Jehovas verleugnen, dass die Wachturmgesellschaft ein _falscher Prophet_ ist.** Warum? Weil das: (1) das ist, was die Wachturmgesellschaft ihnen gelehrt hat. Die Zeugen Jehovas verweigern, 5. Mose 18,21-22 so hinzunehmen wie es geschrieben steht und versuchen die falschen Prophetien der Wachturmgesellschaft bezüglich dem Ende der Welt, Armageddon etc. für 1914, 1918, 1925, 1931, 1941, 1975 etc. zu minimieren (Der Wachturm verleugnet manchmal auch, ein Prophet zu sein. Deshalb lehren sie zeitweise, dass sie einer sind und ein anderes Mal sind sie keiner!)
 
-5\. The Watchtower Society has produced a so-called Bible translation they call **_[The New World Translation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)_**, which is filled with grammatical errors and is inconsistent, biased, deceitful and deadly, yet **the Jehovah's Witnesses think it is the _most accurate translation._** Why? Because the Watchtower Society produced it. That is what is inside the Jehovah's Witness mind. Also, that so-called _translation_ helps to (1) Conceal God's truth from the Jehovah's Witnesses and (2) Keeps them under the spiritual influence and power of the Watchtower Society.
+5\. Die Wachturmgesellschaft produzierte eine so-genannte Bibelübersetzung, welche sie **_[Die Neue Welt Übersetzung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)_** nennen, welche gefüllt ist mit grammatikalischen Fehlern und inkonsistent, tendenziös, betrügerisch und tödlich ist, trotzdem **denken die Zeugen Jehovas, dass sie die _genauste Übersetzung_ ist** Warum? Weil die Wachturmgesellschaft sie produziert hat. Dies ist was im Versand eines Zeugen Jehovas ist. Des weiteren hilft die so-genannte _Übersetzung_, (1) Gottes Wahrheit vom Zeugen Jehovas zu verbergen und (2) hält jene sie unter dem geistlichen Einfluss und der geistlichen Macht der Wachturmgesellschaft.
 
-6\. In light of the aforementioned, especially point 1, the **Watchtower Society _changes_ their doctrines, important dates, etc. that they have believed and taught** and continue to maintain a following.
+6\. Im Lichte des oben erwähnten, speziell Punkt 1, **Die Wachturmgesellschaft _ändert_ ihre Lehren, wichtige Daten, etc. welche sie glaubte und lehrte** und fahren fort, a following zu behalten.
 
-**Concisely stated, the Jehovah's Witnesses believe/teach whatever the Watchtower Society teaches in their literature. They do not read the Bible to seek out God's truth for themselves. Instead, they read Watchtower books, booklets, pamphlets, etc. and believe/teach what the Watchtower Society says about Scripture, which is grossly different and _lethal _to their souls and to the souls of others. That is how the Jehovah's Witnesses have been _brainwashed._**
+**Prägnant ausgedrückt glauben/lehren die Zeugen Jehovas was auch immer die Wachturmgesellschaft in ihrer Literatur lehrt. Sie lesen nicht die Bibel, um Gottes Wahrheit für sich selbst herauszufinden. Stattdessen lesen sie Wachturm Bücher, Broschüren, Flugschriften, etc. und glauben/lehren was die Wachturmgesellschaft über die Schrift sagt, was extrem anders und _tödlich_ für ihre Seelen und die Seelen anderer ist. Dies ist wie die Zeugen Jehovas _einer Gehirnwäsche unterzogen_ wurden**.
 
-![jehovahs witness mind](../files/pictures/a-colorb.gif)
+![Verstand des Zeugen Jehovas](../files/pictures/a-colorb.gif)
 
-**OTHER TOPICS:**
+**WEITERE THEMEN:**
 
-- **[Former Jehovah's Witness Testimony](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/adrianxjw.html)**
+- **[Zeugnis Eines Ehemaligen Zeugen Jehovas](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/adrianxjw.html)**
 
-- **[Jehovah's Witness Answered and Exposed](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html)**
+- **[Zeugen Jehovas Beantwortet und Entlarvt](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html)**
 
-- **[Find Peace With God](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/peace.htm)**
+- **[Finde Frieden Mit Gott](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/peace.htm)**
 
-- **[The 144,000 and The Jehovah's Witnesses](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/144000.html)**
+- **[Die 144,000 und Die Zeugen Jehovas](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/144000.html)**
 
 **[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
 
