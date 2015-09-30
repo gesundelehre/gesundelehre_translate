@@ -1,19 +1,5 @@
-﻿<!--t Die Präsentation Des Evangeliums Mit Hilfe Der 4 Punkte Muss Geändert Werden - in Arbeit (0% übersetzt) t-->
-<!--d Die Präsentation Des Evangeliums Mit Hilfe Der 4 Punkte Muss Geändert Werden - in Arbeit (0% übersetzt) d-->
-
-<small>Anmerkung: Diese Seite ist nur provisorisch und noch nicht vollständig / fertig ausgearbeitet</small>
-
-Die Präsentation Des Evangeliums Mit Hilfe Der 4 Punkte Muss Geändert Werden
-
-Nachfolgend Informationen Weshalb die Präsentation des Evangeliums mit Hilfe der 4 Punkten Fragwürdig ist:
-
-- Busse (Abkehr von aller Sünde zum Zeitpunkt der Bekehrung) fehlt und wird bewusst weggelassen (oftmals wissen das die meisten gar nicht, dass man sich von aller Sünde zum Zeitpunkt der Bekehrung abwenden MUSS, deshalb wird es oftmals auch nicht erwähnt von jenen, die die 4 Punkte benutzen, um das "Evangelium" weiterzusagen)
-- "Glaube-Allein"-Theologie (reformierte/calvinistische Theologie) wird gefördert
-
-- - -
-
-´Artikel von Dr. Charles Woodbridge´
-
+<!--t The Four Spiritual Laws” vs. Paul's Gospel t-->
+<!--d  d-->
 
 # The Four Spiritual Laws” vs. Paul's Gospel
 
@@ -50,7 +36,6 @@ The Biblical approach is theocentric ("God-centered"). The writers first laid th
 
 How different all this is from the "Four Spiritual Laws." The hell- deserving sinner has far more to reflect upon, prior to his salvation, than the optimistic confidence that somewhere in the dim blue "yonder" God has a satisfying plan for his life!
 
-
 ## LAW NUMBER ONE
 
 But now to "Law One" itself: "God loves you and has a wonderful plan for your life." Then two footnotes: John 3:16 and John 10:10\. (Is it not astounding that John 3:16 could possibly be in anybody's footnote!)
@@ -76,7 +61,6 @@ A defender of the Crusade might reply: "'The Four Spiritual Laws' are just a sum
 First, when one is reducing any subject to four basic points, it is the height of folly to omit crucial matters with the trivial explanation that assistants will subsequently explain them. For example, if one is summarizing the theme "Aviation," he will not omit the fact that airplanes have wings and a motor, in the confident expectation that the learner will have these addenda elucidated by assistants after his effort to take off from the earth!
 
 Second, if the Crusade assistants do in fact try to explain Who God is, they seem to fail dismally. Else why the shallowness and flippancy in the "testimonies" of so many of their "converts"?
-
 
 ## THE SECOND LAW
 
@@ -112,7 +96,6 @@ Please do not think that I am quibbling about unimportant ideas. Have you recent
 
 Thus the terrors of Divine wrath are neatly minimized and, probably from the poor student who simply wants a plan for his life, eliminated! The totality of truth is abbreviated, not actually because the "Laws" are a mere "summary," but because the Crusade has taken it upon itself to abbreviate it!
 
-
 ## THE THIRD LAW
 
 The Crusade's third "Law" really troubles me. It does indeed state that Christ is "God's only provision for sin." Splendid! It quotes verses in footnotes (of all places) which indicate that Christ died in our place, that He is the only way to the Father, and that He bridged the chasm between the sinner and God.
@@ -129,7 +112,6 @@ This is not the apostolic mode of presentation. "Without the shedding of blood i
 And, according to the third "Law," what is the net result of Christ's being "God's only provision for man's sin"? Is it a paean of praise from worshipping hosts of angels around the throne? Is it the eternal adoration of believers in glory because the God-man's work of redemption has been consummated on behalf of lost sinners? Is it antiphonal echoes of wonder resounding through the corridors of Heaven?
 
 The third "Law" gives the answer: "Through Him you can know God's love and plan for your life"! Words fail me. How incomplete and man-centered can a movement be?
-
 
 ## THE FOURTH LAW
 
