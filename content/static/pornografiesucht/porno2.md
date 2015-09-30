@@ -1,4 +1,4 @@
-<!--t Porno2: Pornografie, Begierde und Errettung - in Arbeit (0% übersetzt) t-->
+<!--t Porno2: Pornografie, Begierde und Errettung (99% übersetzt) t-->
 <!--d Pornografiesucht, Pornografie, Porno, Sucht, Süchtig, Pornografiesüchtig, Freiheit von Pornografiesucht, Freiheit von Pornografie, Begierde, Begierden, Lust, Geil, Wollust, Schmutzige Gedanken, Freiheit von Schmutzigen Gedanken d-->
 
 Porno2: Pornografie, Begierde und Errettung
@@ -6,7 +6,7 @@ Porno2: Pornografie, Begierde und Errettung
 - - - 
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/porno2.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno2.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/porno2.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Übersetzungsvorschläge können [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/pornografiesucht/porno2.md) auf github gemacht werden.
 
 Quelle: [www.evangelicaloutreach.org/porno2.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/porno2.htm)
 
@@ -15,7 +15,7 @@ Quelle: [www.evangelicaloutreach.org/porno2.htm](http://www.gesundelehre.tk/forw
 
 **(Dies ist eine wirkliche Email, die wir empfangen haben. Seine Bemerkungen sind kursiv geschrieben. Unsere Antworten sind fett geschrieben.)**
 
-**[Lust is Another Name for Adultery and Will Damn](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)**  
+**[Begierde ist Ein anderer Name für Ehebruch und Wird Verurteilen/Verdammen](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)**  
 **[Die Sklaverei, Knechtschaft und Kontrollierende Kraft der Sünde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)**
 
 
@@ -25,85 +25,85 @@ Quelle: [www.evangelicaloutreach.org/porno2.htm](http://www.gesundelehre.tk/forw
 
 **Grüsse in Jesu Namen.**
 
-> _I would like to say (as much under control as I can possibly be) that I am quite outraged about your views on the perseverance of the saints. We obviously do not believe in the same salvation, but I must express my belief and make known to you what you are ignorant of (that is, the Bible)._
+> _Ich möchte sagen, (as much under control as I can possibly be) dass I am ziemlich outraged bezüglich eurer Ansichten der Beharrlichkeit der Heiligen bin. Offensichtlich glauben wir nicht an die selbe Errettung, aber ich muss meine Glaubensvorstellungen ausdrücken und euch kundtun, wessen ihr unwissend seid (das heisst, die Bibel)._
 
-**You are correct that eternal security adherents and we do NOT have the same grace message. What we proclaim is Paul's gospel of grace, which has a conditional security attached to it. See 1 Cor. 15:2; Col. 1:22,23\. In addition, it was Jesus himself and not a cultist, who told his own disciples that they must endure to the end of their lives for salvation (Mt. 10:22). See also Christ's words to the churches in Rev. 2:10,11.**
+**Du hast recht, dass Anhänger der Ewigen Sicherheit und wir NICHT die selbe Gnadenbotschaft haben. Was wir verkünden ist Paulus' Evangelium der Gnade, welches eine bedingte Sicherheit daran angehängt hat. Siehe 1. Kor 15,2; Kol 1,22\. Ausserdem war es Jesus selbst, und kein Sektierer, der seinen eigenen Jüngern sagte, dass sie um der Errettung willen bis zum Ende ihres Lebens durchhalten müssten (Mt. 10,22). Siehe auch Christi Worte an die Gemeinden/Kirchen in Off. 2,10-11.**
 
-> _First, what you have used in defense of your heresy--Oh, I mean theology, of course: Your thoughts refuse the Biblical view of God-initiated salvation, i.e., God saving man as oppossed to man's works saving man. Are you trying to say that if a man is saved and yet, the moment after his conversion, sees a nice-looking woman and lusts, then he immediately loses his salvation? If so, my confused friend, you and I are both hellbound with no help._
+> _Zunächst, was ihr als Verteidigung eurer Irrlehre brauchtet--Oh, ich meine natürlich Theologie: Eure Gedanken lehnen die biblische Sichtweise von Gott-ausgelöster Errettung ab, z.B. Gott rettet den Menschen entgegengesetzt zu des Menschen Werke retten den Menschen. Sagt ihr, dass wenn ein Mann gerettet wird und dennoch, im Moment nach seiner Bekehrung eine hübsch-aussehende Frau sieht und begehrt, dass er dann unverzüglich seine Errettung/sein Heil verliert? Fall ja, mein verwirrter Freund, so sind beide du und ich an die Hölle gebunden ohne Hilfe._
 
-**Wir sagen, was Jesus in Mt 5,28,29 lehrte:**
+**Wir sagen, was Jesus in Mt 5,28-29 lehrte:**
 
-> <font color="red">**"But I tell you that anyone who looks at a woman lustfully has already committed ADULTERY with her in his heart. If your right eye causes you to sin, gouge it out and throw it away. It is better for you to lose one part of your body than for your whole body to be thrown into hell."**</font>
+> <font color="red">**"Ich aber sage euch: Wer ein Weib ansieht, ihrer zu begehren, der hat in seinem Herzen schon mit ihr die EHE GEBROCHEN. Wenn dich aber dein rechtes Auge ärgert, so reiss es aus und wirf es von dir. Denn es ist dir besser, dass eins deiner Glieder verloren gehe, und nicht dein ganzer Leib in die Hölle geworfen werde."**</font>
 
 **Der Herr lehrte, dass Begierde im Herzen Ehebruch ist. Des Herrn Apostel lehrten, dass jene, die in der Sünde des Ehebruches sterben in die Hölle kommen. (1. Kor. 6,9-10; Gal. 5,19-21; Off. 21,8; etc.). Daher, wenn eine Person in ihrem Herzen begehrt und in diesem Zustand stirbt, kommt sie in die Hölle.**
 
 **Da dies eine böse und ehebrecherische Generation ist, nimmst du an, dass alle mit Begierde in ihrem Herzen gefüllt sind. Dennoch werden alle solche in die Hölle geworfen werden, wie auch andere, welche in Off. 21,8 zitiert werden. Alle jene, die in das Königreich Gottes eingehen werden, werden frei von Sünde sein. Man muss von diesem Ehebruch umkehren/Busse tun und rein im Herzen  sein, um Gott zu sehen (Mt5,8). Wen der Sohn frei macht, der ist wirklich frei (Joh. 8,36). Der Kontext [engl. bears out] macht deutlich, dass es Freiheit von der [Knechtschaft/Sklaverei der Sünde](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html) ist. Bitte lies unseren Artikel über Begierde und Pornografie auf [www.evangelicaloutreach.org/lust.htm](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)**
 
-> _You are saying that a man's outward deeds determine whether he is saved or not! First, you must realise that not all who say that they are saved indeed are (Rev. 2:2, II Cor 11:13)._
+> _Ihr sagt, dass eines Menschen äusserliche Taten bestimmen, ob er gerettet ist oder nicht! Zunächst müsst ihr erkennen, dass nicht alle, welche sagen dass sie gerettet sind auch wirklich gerettet sind (Off. 2,2, 2. Kor 11,13)._
 
-**Einige, die gerettet sind, werden nicht gerettet bleiben. Jesus lehrte, dass einige eine Zeitlang glauben, aber zur Zeit der Anfechtung/Versuchung fallen sie ab (Lk. 8,13). Eine Sau kann gewaschen werden und zurück gehen zum Wälzen im Schlamm/Kot und ein Hund kann zu seinem Gespei/Erbrochenen zurückkehren (2. Petr. 2,22). Der Glaube von jemandem Kann Schriffbruch erleiden (1 Tim. 1,19-20).**
+**Einige, die gerettet sind, werden nicht gerettet bleiben. Jesus lehrte, dass einige eine Zeitlang glauben, aber zur Zeit der Anfechtung/Versuchung fallen sie ab (Lk. 8,13). Eine Sau kann gewaschen werden und zurück gehen zum Wälzen im Schlamm/Kot und ein Hund kann zu seinem Gespei/Erbrochenen zurückkehren (2. Petr. 2,22). Der Glaube von jemandem kann Schiffbruch erleiden (1 Tim. 1,19-20).**
 
-> _----Okay, I'm listening to your [RealAudio clip](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sermons.html) and the [sexually immoral](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/true-grace-false-grace.html) thing is bothering me. Do you mean that if a Christian happens to have the specific sin of pornographic lust, then he loses his salvation??----_
+> _----Okay, Ich höre mir deinen [RealAudio clip](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sermons.html) an und die Sache mit der [sexuellen Unsittlichkeit](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/true-grace-false-grace.html) plagt mich wirklich. Meint ihr, dass wenn es einem Christen passiert, dass er die spezifische Sünde der pornografischen Begierde hat, dass er dann seine Errettung/sein Heil verliert??----_
 
-**Again, please believe what Jesus said in Mt. 5:28,29\. He is either a liar, a lunatic or Lord. If he is Lord, his words can be believed. Remember, Jesus has the words of eternal life (Jn. 6:68).**
+**Nochmals, bitte glaube was Jesus in Mt.5,28-29 sagte. Er ist entweder ein Lügner, ein Irrer oder Herr. Falls er Herr ist, so kann seinen Worten geglaubt werden. Denk daran, Jesus hat die Worte des ewigen Lebens (Joh. 6,68).**
 
-> _What if I tell a lie to my parents about where I took the car last evening, then I am now out of the grasp of God by my own faltering? What kind of salvation is that??_
+> _Was, wenn ich meinen Eltern eine Lüge darüber erzähle, wohin ich das Auto letzten Abend gefahren hatte, bin ich dann jetzt out of the grasp of God by my own faltering? Was für eine Art Errettung/Heil ist das??_
 
-**God himself from his own throne stated that "liars" will go to the lake of fire (Rev. 21:8). If you think lying and deception are not serious in God's sight, ponder Acts 5:1-10\. Check this subject out with your own Bible concordance.**
+**God himself von seinem eigenen Thron besagte, dass "Lügner" in den Feuersee kommen werden (Off. 21,8). Falls du denkst, dass Lügen und Betrügen in Gottes Augen nicht schwerwiegend sind, sinne über Apg 5,1-10 nach. Schau das Thema mit deiner eigenen Bibelkonkordanz nach.**
 
-> _"Jesus answered them, I told you, and ye believed not: the works that I do in my Father's name, they bear witness of me. But ye believe not, because ye are not of my sheep, as I said unto you. My sheep hear my voice, and I know them, and they follow me: And I give unto them eternal life; and they shall never perish, neither shall any man pluck them out of my hand. My Father, which gave them me, is greater than all; and no man is able to pluck them out of my Father's hand. I and my Father are one." -John 10:25-30_
+> _"Jesus antwortete ihnen: Ich habe es euch gesagt, und ihr glaubet es nicht; die Werke, die ich thue im Namen meines Vaters, diese zeugen von mir. Aber ihr glaubet nicht, denn ihr seid nicht von meinen Schafen; wie ich euch gesagt habe: Meine Schafe hören meine Stimme und ich kenne sie, und sie folgen mir nach. Und ich gebe ihnen ewiges Leben und sie werden in Ewigkeit nicht umkommen, und Niemand wird sie aus meiner Hand reissen. Mein Vater, der sie mir gegeben hat, ist grösser als Alles, und niemand kann sie aus meines Vaters Hand reissen. Ich und der Vater sind Eins." -Johannes 10,25-30_ (Schlachter1905)
 
-**Please read the above passage again. Notice it says Jesus' sheep "follow" him. It is continuous tense in the Greek. The context shows that the wonderful promise in verses 28,29 ONLY refers to those who continue to follow him. Only they will never perish. It doesn't say one is safe to sin. Furthermore, we see elsewhere that some of the Lord's very own followed him no more, Jn. 6:66.**
+**Bitte lies die obige Passage nochmals. Beachte, es heisst Jesu Schafe "folgen" ihm. Es ist eine kontinuierliche Zeitform im griechischen. Der Kontext zeigt, dass das wunderbare Versprechen in den Versen 28,29 sich NUR auf jene bezieht, welche fortfahren, ihm nachzufolgen. Nur sie werden niemals umkommen. Es heisst nicht, dass man gefahrlos sündigen kann. Ausserdem sehen wir sonstwo, dass einige des Herrn Jünger ihm nicht mehr nachfolgten, Joh6,66.**
 
-> _How is it that you can blatently deny the very words of Christ and instead adopt twisted views of other scriptures speaking of unrighteous people (by the way, I, as a Christian, am righteous in the sight of God, and can never be unrighteous again) who cannot inherit the kingdom because they cannot be Christians!_
+> _Wie kommt es, dass ihr so krass die Worte Christi verleugnen könnt und stattdessen verdrehte Sichtweisen von anderen Bibelstellen übernehmt, die von ungerechten Leuten sprechen (Übrigens, Ich, als ein Christ, bin in Gottes Auge gerecht und kann niemals wieder ungerecht werden) welche das Königreich nicht ererben können, weil sie nicht Christen sein können!_
 
-**Please specifically explain what Scriptures we have adopted twisted views upon. Also, the prophet Ezekiel, speaking God's words, disagrees with you:**
+**Bitte erkläre gezielt, über welche Bibelstelle wir verdrehte Sichtweisen übernommen haben. Ausserdem, der Prophet Hesekiel, der Gottes Wort spricht, widerspricht dir :**
 
-> "If I tell the righteous man that he will surely live, but then he trusts in his righteousness and does evil, none of the righteous things he has done will be remembered; he will die for the evil he has done" (Ezek 33:13).
+> "Wenn ich vom Gerechten sage: «Er soll sicherlich leben!» und er verläßt sich auf seine Gerechtigkeit und tut Unrecht, so soll aller seiner Gerechtigkeit nicht mehr gedacht werden; sondern um seiner Bosheit willen, die er getan hat, soll er sterben." (Hes 33,13; Schlachter1951)
 
-> _Your arguments make absolutely no sense whatsoever!_
+> _Eure Argumente machen absolut überhaupt keinen Sinn!_
 
-**This is because you are unable to understand due to unrepentant sin in your life.**
+**Dies ist weil du aufgrund von reueloser Sünde in deinem Leben unfähig dazu bist, zu verstehen.**
 
-> Mat 13:15 <font color="#FF0000">"For this people's heart has become calloused; they hardly hear with their ears, and they have closed their eyes. Otherwise they might see with their eyes, hear with their ears, understand with their hearts and turn, and I would heal them."</font>
+> **Mt 13,15 <font color="#FF0000">"Denn das Herz dieses Volkes ist verstockt, und mit den Ohren hören sie schwer, und ihre Augen haben sie zugeschlossen; dass sie nicht etwa mit den Augen sehen, und mit den Ohren hören, und mit dem Herzen verstehen, und sich bekehren, und ich sie heile".</font>**
 
-**Scripture is spiritually, not intellectually, discerned (1 Cor. 2:14; Dan. 12:10; Ezek. 12:2; etc.).**
+**Die Bibel muss geistlich und nicht intellektuell beurteilt werden (1 Kor. 2,14; Dan. 12,10; Hes. 12,2; etc.).**
 
-> _As to the subject of a "license to sin," you are dealing with Christian Liberty, a subject greatly dealt with by Paul. As Christians, we are set free from the bondage of sin's dominion (John 8:34-36, Rom. 6:14-23) and the desire of our hearts is to serve God in righteousness (Rom. 6:18, 22). However, this does not make us immune to sin! As my youth leader put it, "While we were once struggling to be free, we are now free to struggle."_
+> _In Bezug auf das Thema einer "Lizenz zum Sündigen" hast du es zu tun mit der christlichen Freiehit, einem Thema, das von Paulus stark behandelt wurde. Als Christen sind wir frei von der Knechtschaft von der Herrschaft der Sünde (Johannes 8,34-36, Rom. 6,14-23) und das Verlangen unserer Herzen ist es, Gott in Rechtschaffenheit/Gerechtigkeit zu dienen (Röm. 6:18, 22). Allerdings macht uns das nicht immun gegenüber Sünde! Wie es mein Jugendleiter ausgesagt hat "Wohingegen wir einst darum ringten, frei zu sein, so sind wir nun frei zu ringen."_
 
-**Ask your youth leader what Bible verse he bases his ideas upon. But first remind him of Col. 2:8\. Paul's was a message of holiness, not Christian "liberty" as interpreted with eternal security in mind. Notice what he wrote to Titus about "grace":**
+**Frage deinen Jugendleiter, auf welchem Bibelvers er seine Ideen basiert. Aber erinnere ihn zuerst an Kol 2,8\. Paulus' Botschaft war eine der Heiligkeit, nicht christliche "Freiheit" mit Ewiger Sicherheit im Hinterkopf interpretiert. Beachte, was er an Titus über "Gnade" schrieb:**
 
-> **"For the grace of God that brings salvation has appeared to all men. It teaches us to say 'NO' to ungodliness and worldly passions, and to live self-controlled, upright and godly lives in this present age" (Titus 2:11,12).**
+> **"Denn die Gnade Gottes ist erschienen, die heilbringend ist für alle Menschen; sie nimmt uns in Zucht, damit wir die Gottlosigkeit und die weltlichen Begierden verleugnen und besonnen und gerecht und gottesfürchtig leben in der jetzigen Weltzeit" (Titus 2,11-12; Schlachter2000)**
 
-**Notice what he also wrote to the Roman Christians in 8:13,**
+**Beachte auch, was er den Christen zu Rom in 8,13 schrieb:**
 
-> **"For if you live according to the sinful nature, you will die; but if by the Spirit you put to death the misdeeds of the body, you will live."**
+> **"Denn wenn ihr nach dem Fleische lebet, so müsst ihr sterben; wenn ihr aber durch den Geist die Geschäfte des Leibes tötet, so werdet ihr leben." (Schlachter 1905)**
 
-**We know Paul's was a life of holiness from such verses as 1 Thess. 2:10, not of a weak-willed man who vacillated between obedience and wickedness:**
+**Wir wissen, dass Paulus' Leben eines der Heiligkeit war von Versen wie 1. Thess. 2,10, nicht eines schwach-gewillten [_engl. weak-willed_] Mannes, der schwankte zwischen Gehorsam und Bosheit:**
 
-> **"You are witnesses, and so is God, of how holy, righteous and blameless we were among you who believed."**
+> **"Ihr selbst seid Zeugen, und Gott, wie heilig, gerecht und untadelig wir bei euch, den Gläubigen, gewesen sind,"** (Schlachter1951)
 
-> _We were once slaves to sin, but now we are saved from that, and now desire to please him. However, we do fail often, as we are but humans._
+> _Einst waren wir Sklaven der Sünde, aber wir wurden davon gerettet, und begehren nun, ihm zu gefallen. Jedoch versagen wir oftmals, da wir nur Menschen sind._
 
-**Rom 6:18 says,**
+**Röm 6,18 besagt,**
 
-> **"You have been set free from sin and have become slaves to righteousness."**
+> **"Freigemacht aber von der Sünde, seid ihr Sklaven der Gerechtigkeit geworden."** (elb1905)
 
-**You left the part out about Christians being "slaves to righteousness." Also, remember:**
+**Du hast den Teil weggelassen bezüglich, dass Christen "Sklaven der Gerechtigkeit" sind. Denke auch daran:**
 
-> **"Make every effort to live in peace with all men and to be holy; without holiness no one will see the Lord" (Heb 12:14).**
+> **"Jaget nach dem Frieden gegen jedermann und der Heiligung, ohne welche niemand den Herrn sehen kann!" (Heb 12,14; Schlachter1905).**
 
-> _Okay, now for me to take the offensive side with scripture. Isaiah 43:1-3, God has called us by name, we are His, nothing can overcome His protecting and saving love. Jeremiah 32:10, God grants us fear of Him that we should not turn from Him; it is nothing we ourselves may muster up inside of us. John 3:36, the true believer has eternal life. John 5:24, the believer has eternal life and will not be judged. John 6:35-40, God has handed over to Christ those whom he has willed unto salvation, can God's plan for an individual's salvation be thwarted by a mere man? I should say not ... John 10:27-30, believers shall never perish. I have many more, but time restricts me. If I feel that this is worth more of my time, I may send more references for you. I pray that you see the light of God's scripture and that I may have spoken only that with which the Holy Spirit has graced my lips._
+> _Okay, nun bin ich an der Reihe, die offensive Seite mit der Bibel einzunehmen. Jesaja 43,1-3, Gott hat uns beim Namen gerufen, wir sind Sein, nichts kann seine schützende und sichernde Liebe überwinden. Jeremia 32,10, Gott gewährt/gibt uns Furcht vor Ihm, dass wir uns nicht von ihm abwenden sollten; es ist nichts, was wir in uns selbst zusammennehmen mögen. Johannes 3,36, der wahre Gläubige hat ewiges Leben. Johannes 5,24, der Gläubige hat ewiges Leben und wird nicht gerichtet werden. Johannes 6,35-40, Gott hat jene, die er zur Errettung bestimmt hat an Christus übergeben [_engl. God has handed over to Christ those whom he has willed unto salvation_], kann Gottes Plan für eines individuellen Errettung durch einen blossen Mann vereitelt werden? Ich würde sagen nicht ... Johannes 10,27-30, Gläubige werden niemals umkommen. Ich habe mehr, aber die Zeit beschränkt mich. Falls ich finde, dass dies mehr von meiner Zeit wert ist, so werde ich euch vielleicht mehr Referenzen schicken. Ich bete, dass du das Licht von Gottes Schrift siehst und dass ich nur das gesprochen haben möge, mit was der Heilige Geist meine Lippen geschmückt hat._
 
-**It is only the "believer" that has salvation. Those that don't continue to believe will be condemned (John 3:18b; Rev. 21:8). As already mentioned, it is not a guarantee that one with a saving faith will continue to believe, as Jesus taught in Lk. 8:13 and other places.**
+**Es ist nur der "Gläubige" welcher Errettung hat. Jene die nicht fortfahren, zu glauben, werden verurteilt/verdammt werden (John 3,18b; Off. 21,8). Wie bereits erwähnt ist es nicht garantiert, das jemand mit einem rettenden Glauben andauert zu glauben, wie Jesus in Lk 8,13 und andern Stellen lehrte.**
 
-**We have an 801 page book refuting the popular lie of eternal security. If you are interested, you can read the details about this [NO eternal security book](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/dan-corner-the-believers-conditional-security.html)**
+**Wir haben ein 801-seitiges Buch, welches die verbreitete Lüge der Ewigen Sicherheit widerlegt. Falls du interessiert bist, kannst du die Details über dieses [KEINE Ewige Sicherheit Buch](http://www.gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/dan-corner-the-believers-conditional-security.html)** lesen.
 
 > _In Christo_
 
-> **John 15:6 "If anyone does not remain in me, he is like a branch that is thrown away and withers; such branches are picked up, thrown into the fire and burned."**
+> **Johannes 15,6 "Wenn jemand nicht in mir bleibt, so wird er weggeworfen wie das Rebschoss und verdorrt; und solche sammelt man und wirft sie ins Feuer und sie brennen."** (Schlachter1905)
 
-**According to true grace teaching, eternal life is also a HOPE (Titus 3:7), yet to be REAPED (Gal. 6:8,9) in the AGE TO COME (Mk. 10:30) for only the ones who PERSIST in doing GOOD (Rom. 2:7) and do not GROW WEARY and GIVE UP (Gal. 6:9).**
+**Laut wahrer Gnadenlehre ist ewiges Leben auch eine HOFFNUNG (Titus 3,7), die noch zu ERNTEN ist (Gal 6,8-9) im ZUKÜNFTIGEN ZEITALTER (Mk 10,30) nur für diejenigen, welche AUSHARREN im Tun des GUTEN (Röm 2,7) und nicht MATT WERDEN und AUFGEBEN (Gal 6,9).**
 
 * * *
 
