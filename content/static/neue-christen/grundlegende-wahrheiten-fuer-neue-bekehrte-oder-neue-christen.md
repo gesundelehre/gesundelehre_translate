@@ -83,23 +83,23 @@ Also wenn Verfolgung auf dich zukommt als Neuer-Christ, weil du göttlich lebst,
 We must be willing to die for Jesus if necessary and never be ashamed of Him or His words (Lk. 9:26).
 
 
-## The Importance of _Knowledge_ For New Converts To Christianity
+## Die Notwendigkeit  des _Wissens_ für den Neu-Bekehrten zum Christentum 
 
-Similarly, Jesus taught:
+Ähnlicherweise, lehrte Jesus:
 
 > All this I have told you **so that you will not go astray**. (John 16:1).
 
-**Hence, knowledge of certain things is a preventative from going _astray_ or _stumbling_**. Conversely, some do go astray because they are not aware of the things Jesus was referring to. Let's check the context to learn what the Lord is speaking of:
+**Deswegen ist Wissen einiger Dinge vorbeugend vom Abkommen vom _Rechten Weg_ oder vom _Stolpern_**. Im Umkehrschluss kommen manche vom rechten Weg ab, weil sie sich nicht der Dinge, auf die Jesus sich bezog, bewusst sind. Laset uns den Zusammenhang überprüfen um zu erkennen, wovon Jesus sprach:
 
 > If the world hates you, keep in mind that it hated me first. If you belonged to the world, it would love you as its own. As it is, you do not belong to the world, but I have chosen you out of the world. That is why the world hates you. Remember the words I spoke to you: 'No servant is greater than his master.' **If they persecuted me, they will persecute you also**. If they obeyed my teaching, they will obey yours also. They will treat you this way because of my name, for they do not know the One who sent me. If I had not come and spoken to them, they would not be guilty of sin. Now, however, they have no excuse for their sin. He who hates me hates my Father as well. If I had not done among them what no one else did, they would not be guilty of sin. But now they have seen these miracles, and yet they have hated both me and my Father. But this is to fulfill what is written in their Law: 'They hated me without reason.' When the Counselor comes, whom I will send to you from the Father, the Spirit of truth who goes out from the Father, he will testify about me. And **you also must testify**, for you have been with me from the beginning. (John 15:18-27)
 
 
 
-## New Converts Are Called To Be **[_Witnesses_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/witnessing.html)**
+## Neu-Bekehrte sind berufen folgendes zu sein: **[_Zeugen_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/witnessing.html)**
 
-Jesus stated that the knowledge we need so we won't go astray is that **we will be persecuted and we must testify about Jesus**. We have all been called to be _witnesses_ for the Lord in this dark, sin-cursed age (Acts 1:8). This is how the first-century Christians were, according to the book of Acts.
+Jesus lehrte, dass das Wissen,was wir brauchen, um nicht vom rechten Weg abzukommen, ist, dass **wir verfolgt werden und, dass wir Zeugnis von Jesus ablegen müssen**. Wir sind alle berufenen, _Zeugen_ des Herrn zu sein in diesem dunklen, sündenverfluchten Zeitalter (Apg 1:8). Das ist, was die Christen des ersten Jahrhunderts waren, nach der Apostelgeschichte. 
 
-When I started witnessing (or testifying) about Jesus to others, I simply gave people the word of God. Sometimes I was asked a question I could not answer. I would tell them, "I'll get back with you on that." That gave me a chance to search for an answer in the Bible. After awhile, your ability to fluently witness will become more and more polished as you continue to read and study God's word. **Remember, people are going to Hell all around us and desperately need to know the truth about salvation.**
+Als ich anfing anderen Zeugnis abzulegen von Jesus, gab ich den Menschen einfach Gottes Wort. Manchmal wurde mir eine Frage gestellt, die ich nicht beantworten konnte. Ich würde ihnen sagen, "Ich komme gleich nochmal drauf zurückkommen."            Das gab mir die Chance nach einer Antwort in der Bibel zu suchen. Nach einer Weile wird dein Können fließend zu predigen verbeseert, wenn du weiter das Wort Gottes liest und studierst. **Erinnere dich, Leute um dich herum gehen in die Hölle und sie müssen dringend die Wahrheit über die Errettung wissen.**
 
 **An excellent way to spread God's eternal truths to others is by having a [personal tract ministry](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/tracts.htm), but be sure to use only Biblically sound literature - literature that clearly tells one he must repent (turn from sin) to be saved from Hell. Moreover, don't distribute literature that teaches or implies the lie of [eternal security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html), even if it is free**. Our ministry makes available an excellent and very popular dual-colored salvation tract on _Heaven and Hell_ with the vitals about the **[plan of salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**. We also have an important article on _tract evangelism._
 
