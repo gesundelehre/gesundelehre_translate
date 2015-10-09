@@ -47,7 +47,7 @@ Quelle: [www.evangelicaloutreach.org/newconverts.htm](http://gesundelehre.tk/for
 
 [![wolves in sheeps clothing are real dangers for new converts](../../files/pictures/wolves-in-sheeps-clothing.jpg "Wolves in sheeps clothing are real dangers for new converts")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)
 
-**It is very common for one's family to be _divided_ because of Christ, even to the point where dear family members become the new Christian's spiritual _enemies_**. If this occurs to you, please know that it has also happened to multitudes of others as well. It is possible your unsaved family might want you to stop reading and talking about the Bible. They could also be _ashamed_ of you being so _religious_ all the time and will try to cool you down. Dear new Christian, regardless who or what might try to hinder your love, zeal and **[devotion to Jesus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devotion-to-the-lord-jesus-christ.htm), you must not yield to their ungodly desires**. You must _**love Jesus first**_, which will be shown by obeying him over others who would want you to go against the Lord's teachings or to just ignore them. This is vitally important. **To be _worthy_ of Jesus, we must love him supremely**. Notice the following two Scriptures about those who **_love_** God:
+**Es ist gewöhnlich für jemandes Familie sich zu _trennen_ wegen Christus, dies geht sogar so weit, dass die eigenen lieben Familienmitglieder zu geistlichen _Feinden_ des neuen Christen**. Falls dies dir passiert, wisse bitte, dass dies genauso vielen Anderen wiederfahren ist. Es ist gut möglich, dass deine ungerettete Familie will, dass du aufhörst die Bibel zu lesen und von ihr zu reden. Sie könnten sich auch _schämen_, dass du die ganze Zeit so _religiös_ bist und werden versuchen dich "herabzukühlen". Lieber neuer Christ, egal wer oder was versucht dich zu behindern in Liebe und Eifer **[devotion to Jesus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devotion-to-the-lord-jesus-christ.htm), darfst du nicht ihren gottlosen Wünschen nachgeben**. Du musst _**Jesus zuerst lieben**_, welches sich zeigen wird, indem du ihm mehr gehorchst, als anderen, die wollen, dass du gegen die Lehren des Herrn losgehst, oder sie einfach ignorierst. Es ist lebensnotwendig! **Um Jesus _würdig_ zu sein, müssen wir ihn zuallererst ihn lieben**. Beachte die folgenden 2 Schriftstellen über diejenigen, die Gott **_lieben_**:
 
 > However, as it is written: "No eye has seen, no ear has heard, no mind has conceived what God has prepared for **those who love him**" (1 Cor 2:9)
 > 
@@ -56,9 +56,9 @@ Quelle: [www.evangelicaloutreach.org/newconverts.htm](http://gesundelehre.tk/for
 We show our love for God by obeying his commands (John 14:15).
 
 
-## New Converts and Persecution
+## Neu-Bekehrte und Verfolgung 
 
-Another important fact of your new life in Christ is that you will bother people outside your family who don't have a heart for truth - old friends, coworkers, neighbors, etc. Some of these people will show their annoyance with _persecution_ in various ways. Take heart and be encouraged by what Jesus (and Peter) taught:
+Ein anderer Fakt deines neuen Lebens in Christus ist, dass es Leute außerhalb deiner Familie stören wird, die kein Herz für die Wahrheit - alte Freunde, Kollegen, Nachbarn etc. Einige dieser Leute werden ihren Ärger durch _Verfolgung_ zeigen auf verschiedene Art und Weise. Sei getöstet und sei ermutigt von dem, was Jesus (und Petrus) lehrten:
 
 [![new converts to christianity baby christians](../../files/pictures/new-convert.jpg "New converts to Christianity")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/new-creation.html)
 
@@ -68,11 +68,11 @@ Another important fact of your new life in Christ is that you will bother people
 > 
 > They think it strange that **you do not plunge with them into the same flood of dissipation, and they heap abuse on you**. (1 Pet 4:4)
 
-**[Persecution](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/persecut.htm)** for righteousness, even in the milder form of being excluded or insulted, is a _test_. Loneliness will probably result. That is something all godly people have to deal with from time to time. Sadly, some Christians have _fallen away_ from salvation over the _test of persecution_ or just the fear of it:[![new convert set free from sin](../../files/pictures/guy-set-free.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)
+**[Verfolgung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/persecut.htm)** um der Gerechtigkeit willen, sogar in milder Form von ausgeschlossen werden und beleidigt werden, ist ein _Test_. Ein Resultat davon  ist wahrscheinlich Einsamkeit. Es ist etwas, womit alle Leute Gottes zutun haben, von Zeit zu Zeit. Traurigerweise, sind sogar Christen _abgefallen_ von ihrer Errettung im _Test der Verfolgung_ oder aus Angst davor:[![new convert set free from sin](../../files/pictures/guy-set-free.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)
 
 > ... **They believe for a while, but in the time of testing they fall away**. (Luke 8:13)
 
-So when (not if) persecution comes to you as a new Christian because you are living godly, continue to obey and let your light shine. But also remember not to cast your _pearls to swine_ - those who boldly oppose the truth of God - because they may _tear you to pieces_ (Mt. 7:6). Keep walking in faith thinking about the eternal rewards before you because of these persecutions. All godly people of the past were also persecuted and faced suffering:
+Also wenn Verfolgung auf dich zukommt als Neuer-Christ, weil du göttlich lebst, fahre fort ihm zu gehorchen und lass ein Licht weiterhin scheinen. Aber erinnere dich daran deine _Perlen nicht den Schweinen_ hinzuwerfen- denjenigen, die mutig dem Wort Gottes Widerstand leisten- denn sie können dich _in Stücke zerreißen_ (Mt. 7:6). Wandle weiter in Glauben und denke über die ewigen Belohnungen für dich, wegen den Verfolgungen. Alle Menschen Gottes der Vergangenheit wurden verfolgt und erlebten Leiden:
 
 > In fact, everyone who wants to live a godly life in Christ Jesus **will be persecuted**. (2 Tim 3:12)
 > 
