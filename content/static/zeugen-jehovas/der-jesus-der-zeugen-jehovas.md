@@ -6,7 +6,7 @@ Der Jesus der Zeugen Jehovas
 - - - 
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/jws2.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jws2.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/zeugen-jehovas/der-jesus-der-zeugen-jehovas.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Übersetzungsvorschläge können [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/zeugen-jehovas/der-jesus-der-zeugen-jehovas.md) auf github gemacht werden.
 
 Quelle: [www.evangelicaloutreach.org/jws2.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jws2.htm)
 
@@ -41,13 +41,13 @@ Dear Reader, will YOU also carefully examine the following **[Scriptures](http:/
 
 ## Jesus' Name
 
-ONE, Jesus has a "NAME MORE EXCELLENT" than the __________ (Heb. 1:4).
+ERSTENS, Jesus hat einen "NAMEN DER ERHABENER" ist als den der __________ (Heb. 1,4).
 
 
 
 ## What Is It The Father Never Said To Any Angel, But Did Say To Jesus
 
-TWO, the Father never said to any angel __________ (Heb. 1:5). This verse refers to the resurrection of Christ, according to Acts 13:30-33\. [Similarly, Jesus is called "only-begotten" several times in the Scriptures (Jn. 1:14,18; 3:16,18; 1 Jn. 4:9). This, however, doesn't mean he was created! The same Greek word used to describe Jesus in this way (MONOGENES) is also used in Heb. 11:17 to describe Isaac's relationship to Abraham. Please note that Isaac was NOT Abraham's only child (Gen. 25:1,2) nor was he Abraham's first child (Gen. 16:15)! However, Isaac is the unique, one-of-a-kind son of Abraham, just as the Lord Jesus is the unique, one-of-a-kind Son of God, but NOT created.]
+ZWEITENS, der Vater sagte niemals zu irgendeinem Engel __________ (Heb. 1,5). Dieser Vers bezieht sich auf die Auferstehung Christi, laut Apg13,30-33\. [Similarly, Jesus is called "only-begotten" several times in the Scriptures (Jn. 1:14,18; 3:16,18; 1 Jn. 4:9). Dies bedeutet allerdingst nicht, dass er erschaffen wurde! Dasselbe griechische Wort, welches gebraucht wird, um Jesus auf diese Art und weise zu beschreiben (MONOGENES), findet sich auch in Heb. 11,17 um Isaaks Beziehung zu Abraham zu beschreiben. Bitte beachte, dass Isaak NICHT Abrahams einziges Kind war (1. Mose 25,1-2), auch war er nicht Abrahams erstes Kind (1. Mose 16,15)! Isaak ist jedoch the unique, one-of-a-kind Sohn Abrahams, gleichwie der Herr Jesus is the unique, one-of-a-kind Sohn Gottes ist, aber NICHT geschaffen.]
 
 ## [Click For Definite Proof That Jesus Christ is NOT Michael the Archangel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/who-is-michael-the-archangel.htm)
 
@@ -67,13 +67,13 @@ FOUR, God calls his angels _________________ (Heb. 1:7). In contrast, God calls 
 
 
 
-## What Does The Father Call Jesus
+## Wie Nennt Der Vater Jesus
 
 FIVE, after Jesus is called "God" in Heb. 1:8, what does the Father call Jesus in Heb. 1:10? __________.
 
 
 
-## What Is Attributed To Jesus
+## Was Wird Jesus Zugeschrieben
 
 SIX, "carefully examine" and compare Heb. 1:10,11 with Psa. 102:25-27\. Does God quote Psa. 102:25-27 in reference to Jesus? ____YES ____NO. Psa. 102:25-27 is written about YHWH. Therefore, God calls Jesus _____ by referring these verses to him.
 

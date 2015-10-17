@@ -1,4 +1,4 @@
-<!--t Was Glauben Zeugen Jehovas? - in Arbeit (5% übersetzt) t-->
+<!--t Was Glauben Zeugen Jehovas? - in Arbeit (25% übersetzt) t-->
 <!--d Zeugen Jehovas, Wachturmgesellschaft, Wachturm, Falscher Prophet, Neue Welt Übersetzung d-->
 
 Was Glauben Zeugen Jehovas?
@@ -6,7 +6,7 @@ Was Glauben Zeugen Jehovas?
 - - - 
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/jwbeliefs.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jwbeliefs.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/zeugen-jehovas/was-glauben-zeugen-jehovas.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Übersetzungsvorschläge können [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/zeugen-jehovas/was-glauben-zeugen-jehovas.md)  auf github gemacht werden.
 
 Quelle: [www.evangelicaloutreach.org/jwbeliefs.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jwbeliefs.htm)
 
@@ -21,20 +21,22 @@ Quelle: [www.evangelicaloutreach.org/jwbeliefs.htm](http://gesundelehre.tk/forwa
 Permission to reproduce this article is hereby granted, but only in its entirety, including ministry 
 name and address at the end of the article, and without any alterations.
 
-![jehovah's witnesses beliefs](../files/pictures/a-colorb.gif)
+![Zeugen Jehovas Glaubensvorstellungen](../files/pictures/a-colorb.gif)
 
 
-## The Real _Jehovah's Witnesses Beliefs_ And Their ERRORS
+## Die Wahren _Glaubensgrundsätze Der Zeugen Jehovas_ Und Ihre IRRTÜMER
 
 In a six page tract published by the Watchtower Bible and Tract Society (WBTS), entitled _What Do Jehovah's Witnesses Believe?_ a select few of their teachings are mentioned. Among other things, the reader should be aware of the following:
 
-(1) The **[Jehovah's Witnesses](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html)** vehement denial of the **[deity of Christ](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/God-in-the-flesh.htm)** is NOT based on Scripture. They magnify the **[humanity of Christ](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/humanity-of-christ.html)** while avoiding or distorting other Scriptures which affirm the deity of Christ.[![christian beliefs in christianity humanity of christ](../files/pictures/humanity-of-christ-deity.jpg "christian beliefs in christianity humanity of christ")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/humanity-of-christ.html) For example, Jesus' stated, after His resurrection, that he has all 100% _authority_ or _power_ in Heaven and on earth (Mt. 28:18). Notice: **Jesus**, not the Father, **has all _authority_ in Heaven!** Remember, Jesus humbled himself when he came to the earth, taking the very nature of a servant, even though his nature is _God_ (Phil. 2:5-8).
+(1) The **[Jehovah's Witnesses](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html)** vehement denial of the **[deity of Christ](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/God-in-the-flesh.htm)** is NOT based on Scripture. They magnify the **[humanity of Christ](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/humanity-of-christ.html)** while avoiding or distorting other Scriptures which affirm the deity of Christ. For example, Jesus' stated, after His resurrection, that he has all 100% _authority_ or _power_ in Heaven and on earth (Mt. 28:18). Notice: **Jesus**, not the Father, **has all _authority_ in Heaven!** Remember, Jesus humbled himself when he came to the earth, taking the very nature of a servant, even though his nature is _God_ (Phil. 2:5-8).
 
-(2) The Jehovah's Witnesses (Jehovah's Witnesses) have their own Bible translation called the _**[New World Translation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)**_ (NWT), which has inconsistently translated the Greek word which shows that Jesus received _worship_ from His disciples. In that translation, if it can be properly called such, Jesus is said to have received "obeisance" and not "worship." Among other places, please see Mt. 28:9\. That same Greek word found there is properly translated at other passages as "worship" in their Greek English Interlinear called the _Kingdom Interlinear Translation_ (1969 edition). **To be exact, in Mt. 2:11; 14:33; 28:9 and 28:17 the Greek word is translated _obeisance_ because it refers to the Lord Jesus, but when the same exact Greek word is used at Rev. 5:14; 7:11; 11:16; 19:4; 20:4 and Jn. 4:20 it is rendered _worshiped_ because it doesn't refer to Jesus**. This is not good scholarship, neither is it being consistent, as they claim in the foreword of their translation.
+[![christliche Glaubensvorstellungen im Christentum Menschlichkeit Christi](../files/pictures/humanity-of-christ-deity.jpg "christian beliefs in christianity humanity of christ")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/humanity-of-christ.html)
 
-<big>**[Jehovah's Witnesses Beliefs Include Everlasting Life Is ONLY For JWs](#jehovah's%20witnesses%20beliefs)**</big> 
+(2) Die Zeugen Jehovas (Jehovas Zeugen) haben ihre eigene Bibelübersetzung genannt die _**[Neue Welt Übersetzung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)**_ (NWÜ), welche widersprechend das griechische Wort übersetzt hat, welche zeigt, dass Jesus _Anbetung_ von seinen Jüngern entgegen nahm. In dieser Übersetzung, falls es korrekt so genannt werden kann, steht von Jesus, dass er "Ehrerbietung" und nicht "Anbetung" empfing. Unter andern Stellen, siehe bitte Mt. 28,9\. That same Greek word found there is properly translated at other passages as "worship" in their Greek English Interlinear called the _Kingdom Interlinear Translation_ (1969 edition). **To be exact, in Mt. 2:11; 14:33; 28:9 and 28:17 the Greek word is translated _obeisance_ because it refers to the Lord Jesus, but when the same exact Greek word is used at Rev. 5:14; 7:11; 11:16; 19:4; 20:4 and Jn. 4:20 it is rendered _worshiped_ because it doesn't refer to Jesus**. This is not good scholarship, neither is it being consistent, as they claim in the foreword of their translation.
 
-(3) Another striking characteristic of the NWT is their usage of "Jehovah." They have done this over 6,000 times in their Bible! But in other literature that they have published, they have gone on record as stating that _Yahweh_ is "the more correct way" to render God's name! Their actual quote is:
+<big>**[Zeugen Jehovas Glaubensvorstellungen Beinhalten Ewiges Leben Ist NUR Für ZJs](#jehovah's%20witnesses%20beliefs)**</big> 
+
+(3) Eine weitere auffallende Charakteristik der NWÜ ist ihr Gebrauch von "Jehovah" Sie haben dies über 6'000 Mal in ihrer Bibel gemacht! Aber in anderer Literatur, welche sie veröffentlichten, gaben sie an, dass _Yahweh_ "die korrektere Art und Weise" ist, Gottes Namen widerzugeben! Ihre effektive Wiedergabe lautet wie folgt:
 
 > While inclining to view the pronunciation "Yahweh" as **the more correct way,** we have retained the form "Jehovah" **because of people's familiarity with it since the 14th century** (The Kingdom Interlinear Translation of the Greek Scriptures (KIT), 1969 ed., p. 23).
 
@@ -42,45 +44,45 @@ Furthermore, they admit that no one ever used the Latinized word "Jehovah" until
 
 > By combining the vowel signs of _'Adho<font size="-1"><sup>.</sup></font>nay_ and _'Elo<font size="-1"><sup>.</sup></font>him'_ with the four consonants of the Tetragrammaton the pronunciations _Y<font size="-1"><sup>e</sup></font>ho<font size="-1"><sup>.</sup></font>wah'_ and _Y<font size="-1"><sup>e</sup></font>howih'_ were formed. The first of these provided the basis for **the Latinized form "Jehova(h)." The first recorded use of this form dates from the thirteenth century C.E. Raymundus Martini, a Spanish monk of the Dominican Order,** used it in his book _Pugeo Fidei_ of the year **1270\. Hebrew scholars generally favor "Yahweh" as the most likely pronunciation (_Aid to Bible Understanding_, 1971, pp. 884, 885).**(26)
 
-(4) Another unique characteristic of the Jehovah's Witnesses belief system is their strange view that only **[144,000](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/144000.html)** will enter Heaven. Please know that the 12,000 from the 12 tribes of Israel (equaling 144,000) as mentioned in Rev. 7:4-8 and 14:1-3 **does not state that they will be the only ones that will enter Heaven!** Only 144,000 going to heaven is not basic Bible **[Christian beliefs](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-beliefs.html)**!
+(4) Eine weitere einzigartige Charakteristik des Glaubenssystem der Zeugen Jehovas ist ihre seltsame Ansicht, dass nur **[144'000](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/144000.html)** in den Himmel kämen. Wisse bitte, dass von den 12'000 von den 12 Stämmen Israels (gleich 144'000) wie erwähnt in Off. 7,4-8 und 14,1-3 **nicht besagt wird, dass sie die einzigen sein werden, die in den Himmel kommen werden!** Dass nur 144'000 in den Himmel kommen ist keine fundamentale biblische **[Christliche Glaubensvorstellung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-beliefs.html)**!
 
-Let's take a look at two passages by focusing in on the words "**before the throne**":
+Lass uns zwei Stellen anschauen, bei denen wir auf die Worte "**vor dem Thron**" fokussieren:
 
-> Then I looked, and there before me was the Lamb, standing on Mount Zion, and with him 144,000 who had his name and his Father's name written on their foreheads. (Rev 14:1) And I heard a sound from heaven like the roar of rushing waters and like a loud peal of thunder. The sound I heard was like that of harpists playing their harps. (Rev 14:2) And they sang a new song **before the throne** and before the four living creatures and the elders. No one could learn the song except the 144,000 who had been redeemed from the earth. (Rev 14:3)
+> Und ich sah das Lamm stehen auf dem Berg Zion und mit ihm hundertvierundvierzigtausend, die hatten seinen Namen und den Namen seines Vaters geschrieben an ihre Stirn. (Off 14,1) Und ich hörte eine Stimme vom Himmel wie eines großen Wassers und wie eine Stimme eines großen Donners; und die Stimme, die ich hörte, war wie von Harfenspielern, die auf ihren Harfen spielen. (Off 14,2) Und sie sangen ein neues Lied **vor dem Stuhl** [=Thron] und vor den vier Tieren und den Ältesten; und niemand konnte das Lied lernen denn die hundertvierundvierzigtausend, die erkauft sind von der Erde. (Off 14,1-3; Luther 1912)
 
-The second passage is:
+Die zweite Stelle ist:
 
 > After this I looked and there before me was **a great multitude that no one could count**, from every nation, tribe, people and language, standing **before the throne** and in front of the Lamb. They were wearing white robes and were holding palm branches in their hands. (Rev 7:9) And they cried out in a loud voice: "Salvation belongs to our God, who sits on the throne, and to the Lamb." (Rev 7:10) All the angels were standing around the throne and around the elders and the four living creatures. They fell down on their faces before the throne and worshiped God, (Rev 7:11) saying: "Amen! Praise and glory and wisdom and thanks and honor and power and strength be to our God for ever and ever. Amen!" (Rev 7:12) Then one of the elders asked me, "These in white robes - who are they, and where did they come from?" (Rev 7:13) I answered, "Sir, you know." And he said, "These are they who have come out of the great tribulation; they have washed their robes and made them white in the blood of the Lamb. (Rev 7:14) Therefore, "they are **before the throne** of God and serve him day and night in his temple; and he who sits on the throne will spread his tent over them. (Rev 7:15)
 
-**Please note, according to Rev. 14:1-3, the 144,000 are "before the throne." If they are in Heaven, then there are many others in Heaven as well because that same phrase "before the throne" is also found in 7:9 and refers to a great multitude that no man can count, which is a different group from the 144,000!**
+**Bitte beachte, dass laut Off 14,1-4 die 144'000 "vor dem Thron" sind. Falls sie im Himmel sind, so sind viele andere auch im Himmel, da dieselbe Redensart "vor dem Thron" auch in 7,9 gefunden wird und sich auf eine grosse Menge bezieht, welche niemand zählen kann, was eine andere Gruppe ist als die 144'000!**
 
-Further, please remember this: the Jehovah's Witnesses take part of the Rev. 14:1-3 passage literally and part of it figuratively. In other words, the number they take literally but they figuratively interpret the Israelite tribes to mean something other than Israelite tribes!
+Des weiteren, bitte denke an folgendes: die Zeugen Jehovas nehmen einen Teil des Abschnitts in Offenbarung 14,1-3 wörtlich und einen Teil davon bildlich. Mit andern Worten, die Zahl nehmen sie wörtlich aber sie interpretieren die Stämme Israels bildlich, sodass sie etwas anderes als die israelitischen Stämme bedeuten!
 
-The Lord Jesus taught:
+Der Herr Jesus lehrte:
 
-> Whoever serves me must follow me; and **where I am, my servant also will be**. My Father will honor the one who serves me. (John 12:26)
+> Wenn mir jemand dient, so folge er mir nach; und **wo ich bin, da wird auch mein Diener sein**. Wenn mir jemand dient, so wird der Vater ihn ehren. (Johannes 12,26; elb1905)
 
-From the above passage, **Jesus taught that all of his _servants_ will be in the same place as he is! Hence, since Jesus is in Heaven, all of his servants, which certainly exceeds 144,000, will be in Heaven with him, according to Jesus himself!**
+From the above passage, **Jesus taught that all of his _servants_ will be in the same place as he is! Daher, da Jesus im Himmel ist, werden alle seine Diener, welches gewiss 144'000 übersteigt im Himmel mit ihm sein, laut Jesus selbst!**
 
-(5) While Jehovah's Witnesses call themselves "Christians," the reader should be advised that not everyone who says, "Lord, Lord" will enter into the kingdom of God (Mt. 7:21). Moreover, the Jehovah's Witnesses fail the test to identify themselves as being "in the faith." In 2 Cor. 13:5, we read:
+(5) Obwohl Zeugen Jehovas sich selbst "Christen" nennen, sollte dem Leser der Rat gegeben werden, dass nicht jeder, der ""Herr, Herr" sagt, ins Königreich Gottes kommen wird (Mt. 7,21). Des weiteren, die Zeugen Jehovas fail the test , um sich selbst zu identifizieren als "im Glauben." In 2. Kor. 13,5 lesen wir:
 
-> Examine yourselves to see whether you are **in the faith**; test yourselves. Do you not realize that **Christ Jesus is in you** - unless, of course, you fail the test? (2 Cor 13:5)
+> Prüfet euch selbst, ob ihr **im Glauben** seid; stellet euch selbst auf die Probe! Oder erkennet ihr euch selbst nicht, daß **Jesus Christus in euch ist**? Es müßte denn sein, daß ihr nicht echt wäret! (2. Kor 13,5; Schlachterbibel 1951)
 
-Since the Jehovah's Witnesses wrongly teach that Jesus is Michael the Archangel, without any clear Scriptural backing, and since an angel cannot dwell in multitudes of Christians at the same time, then their view of Christ is not only wrong but they would _fail_ the doctrinal test to be _in the faith!_
+Da die Zeugen Jehovas fälschlicherweise ohne klare biblische Unterstützung lehren, dass Jesus der Erzengel Michael ist, und da ein Engel nicht in einer Menge an Christen gleichzeitig wohnen kann, ist ihre Sicht von Christus nicht nur falsch, sondern sie würden auch den lehrmässigen Test _nicht bestehen_ um _im Glauben_ zu sein!
 
 
 <a name="jehovah's%20witnesses%20beliefs"></a>
-## _Jehovah's Witnesses Beliefs_ Include Everlasting Life Is ONLY In Jehovah's Organization
+## _Glaubensvorstellungen der Zeugen Jehovas_ Beinhalten Dass Ewiges Leben NUR In Jehovas Organisation Ist
 
-(6) So what do Jehovah's Witnesses want from you and what do they believe about salvation? Let the following quote from their own literature answer this:
+(6) Was wollen Zeugen Jehovas also von dir und was glauben sie bezüglich der Errettung? Hier lassen wir ein Zitat ihrer eigenen Literatur diese Frage beantworten:
 
-> Do not conclude that there are different roads, or ways, that you can follow to gain life in God's new system. There is only one. There was just the one ark that survived the Flood, not a number of boats. And there will be only one organization - God's visible organization - that will survive the fast-approaching "great tribulation." It is simply not true that all religions lead to the same goal. (Matthew 7:21-23; 24:21) **You must be part of Jehovah's organization,** doing God's will, **in order to receive his blessing of everlasting life**. - Psalm 133:1-3\. (_You Can Live Forever In Paradise On Earth_, 1982, p. 255.)
+> Schlussfolgere nicht, dass es verschiedene Strassen gibt, oder Wege, denen man folgen kann, um Leben in Gottes neuem System zu erlangen. Es gibt nur einen. Es gab nur die eine Arche, welche die Flut überlebte, nicht eine Anzahl von Booten. Und es wird nur eine Organisation geben - Gottes sichtbare Organisation - welche die sich schnell-nähernde "Grosse Trübsal" überleben wird. Es ist schlichtweg nicht wahr, dass alle Religionen zum gleichen Ziel führen. (Matthäus 7,21-23; 24,21) **Man muss Teil von Jehovas Organisation sein,** Gottes Willen tuend, **um sein Segen des ewigen Leben zu empfangen**. - Psalm 133,1-3\. (_You Can Live Forever In Paradise On Earth_, 1982, p. 255.)
 
-The Jehovah's Witnesses want you to spread their false teachings, just as they themselves do. **Furthermore, their own literature clearly states you _must_ be part of their organization to receive _everlasting life_, as you just read.** Finally, the JW religion is based on the teachings of a Bible-defined false prophet from their first president, C. T. Russell, on through to the present time. Though they claim the light gets brighter and brighter, their own prophetic track record has consistently remained the same, that is, one false prophecy after another after another! They have made prophecies that have failed about the following years: 1914, 1915, 1918, 1925, 1931, 1941, 1975 and 1995\. Though the Jehovah's Witnesses claim they "admit their mistakes," they refuse to _admit_ their 1975 false prophecy (or "mistake" as they call it). **A true prophet does not make false prophecies** (Jer. 28:9)!
+Die Zeugen Jehovas, wollen dass man ihre falschen Lehren verbreitet, gleich wie sie es selbst tun. **Des weiteren besagt ihre Literatur deutlich, dass man Teil ihrer Organisation sein _muss_, um _ewiges Leben_ zu bekommen, wie du gerade gelesen hast.** Abschliessend basiert die ZJ-Religion auf den Lehren eines Bibel-definierten falschen Propheten, angefangen bei ihrem ersten Präsidenten C.T. Russel bis hin in die heutige Zeit. Obwohl sie angeben, dass das Licht heller und heller wird, blieb ihr eigene Akte der Prophetien konsequent gleich, das heisst eine falsche Prophetie nach der Andern nach der Andern! Sie machten Prophezeihungen, welche fehlschlugen für die folgenden Jahre: 1914, 1915, 1918, 1925, 1931, 1941, 1975 und 1995\. Obwohl die Zeugen Jehovas behaupten, dass sie "ihre Fehler/Irrtümer zugeben", so verwigern sie, ihre falsche Prophetie für 1975 _zuzugeben_ (oder "Irrtum" wie sie es nennen). **Ein wahrer Prophet macht keine falschen Prophetien** (Jer.28,9)!
 
-The Lord Jesus warned that false prophets would arise and would "deceive" many people (Mt. 24:11, 24). Dear reader, don't allow yourself to be a victim of this organization, which is a _ravenous wolf in sheep's clothing_ (Mt. 7:15) but claims of itself to be _Jehovah's organization._
+Der Herr Jesus warnte, dass falsche Propheten sich erheben würden und viele Leute "verführen" würden (Mt. 24,11.24). Lieber Leser, lass nicht zu, dass du selbst ein Opfer dieser Organisation wirst, welche ein _reissender Wolf im Schafspelz_ ist (Mt. 7,15) aber von sich selbst behauptet, _Jehovas Organisation_ zu sein.
 
-Those who will, in the end, enter God's kingdom have a trusting, submitting and enduring faith in Jesus Christ for salvation. Furthermore, such faith in Christ produces holy living and good fruit. True Christian salvation equals being set free from sin addictions (Rom. 6:22)! And all those "in the truth" of real Christianity can wholeheartedly agree with the Apostle Thomas who called Jesus both his Lord and his God (Jn. 20:28). For more information, contact:
+Jene, die am Ende in Gottes Königreich eingehen werden, haben einen vertrauenden, fügenden/unterwürfigen und andauernden/ausharrenden Glauben an Jesus Christus zur Errettung. Des weiteren bringt Glaube an Christus heiliges Leben und gute Frucht hervor. Wahre christliche Errettung ist gleichbedeutend mit frei gemacht zu werden von sündhaften Abhängigkeiten (Röm. 6,22)! And all those "in the truth" of real Christianity can wholeheartedly agree with the Apostle Thomas who called Jesus both his Lord and his God (Jn. 20:28). Für mehr Informationen, kontaktiere:
 
 ## Evangelical Outreach  
 ## PO Box 265  
@@ -90,7 +92,7 @@ Those who will, in the end, enter God's kingdom have a trusting, submitting and 
 
 ## _Jehovah's Witnesses Beliefs_ Are Not Christian Beliefs
 
-Mr./Ms. Jehovah's Witness, don't be deceived by the Watch Tower!
+Hr./Fr. Zeuge Jehova, werde nicht irregeführt durch den Wachturm!
 
 Please notice the picture at the beginning of the tract, "What do Jehovah's Witnesses Believe?" One woman is giving another what the JW’s call a home Bible Study. Look closely at the picture. The book shown is not the Bible but a Watch Tower publication. Also notice the brief case in the teaching woman’s lap. These brief cases that the JW’s carry are always full of WT publications. The JW’s claim that one cannot find or know the truth by reading the Bible alone. How does this claim compare with what God has stated in 2 Tim. 3:16,17?
 
@@ -130,7 +132,7 @@ Die WTG zitiert Rev. 7:9, 13-15; 21:1-5 im zweiten Absatz auf Seite 6 ihres Trak
 
 ![Jehovah's Witnesses Beliefs are not CHRISTIAN BELIEFS or christianity beliefs](../files/pictures/line3.gif)
 
-### We have other articles dealing with Jehovah's Witnesses:
+### Wir haben weitere Artikel, welche von den Zeugen Jehovas handeln:
 
 - **[Die Wachturmgesellschaft](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jws.htm)**  
 - **[Der Jesus der Zeugen Jehovas](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jws2.html)**  
@@ -138,7 +140,7 @@ Die WTG zitiert Rev. 7:9, 13-15; 21:1-5 im zweiten Absatz auf Seite 6 ihres Trak
 - **[Zeugen Jehovas und der Name _Jehova_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/name-of-jehovah.html)**   
 - **[The Trinity](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/trinity.html)**  
 - **[The Deity of Christ](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/deity-of-Christ.html)**  
-- **[The Wicked Dead -- Will They Experience Annihilation or Eternal Torment?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternaltorment.html)**
+- **[Die Boshaften Toten -- Werden Sie Vernichtung Erleben oder Ewige Qual?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternaltorment.html)**
 
 * * *
 

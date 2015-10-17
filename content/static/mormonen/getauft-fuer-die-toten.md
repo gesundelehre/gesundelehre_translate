@@ -1,4 +1,4 @@
-<!--t Getauft Für Die Toten - in Arbeit (0% übersetzt) t-->
+<!--t Getauft Für Die Toten (100% übersetzt) t-->
 <!--d d-->
 
 Getauft Für Die Toten
@@ -15,66 +15,66 @@ Quelle: [www.evangelicaloutreach.org/baptized-for-the-dead.htm](http://gesundele
 ### Dan Corner
 
 
-![baptized for the dead](../../files/pictures/evangelical-baptized-for-the-dead.jpg)
+![Getauft für die Toten](../../files/pictures/evangelical-baptized-for-the-dead.jpg)
 
-![baptized for the dead](../../files/pictures/a-colorb.gif)
+![Getauft für die Toten](../../files/pictures/a-colorb.gif)
 
-[![Baptized For The Dead](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
-
-
-
-## Why Are People _Baptized For The Dead_
-
-## [This Is Why There Is NO Need To Pray About The Book Of Mormon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon.htm)
-
-**How important is _baptized for the dead_ (1 Cor. 15:29) to a Mormon?** Oftentimes when a Mormon is trying to defend his own unique beliefs or destroy the faith of a [**Bible**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html)believer, that Mormon will bring up _baptism for the dead_, as it is mentioned in **1 Cor. 15:29**\. Here is how that text reads:
-
-> Else what shall they do which are **baptized for the dead**, if the dead rise not at all? Why are they then **baptized for the dead?** (KJV)
-
-[![Karen Carpenter](../../files/pictures/karen-carpenter.jpg "Karen Carpenter was baptized for the dead by Mormonism via baptism by proxy.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html)
-
-It is very easy for a Christian to answer this Mormon question about _baptism for the dead_ after examining the immediate context, that is, verses 29 and 30:
-
-> Else what shall **they** do which are **baptized for the dead**, if the dead rise not at all? why are **they** then **baptized for the dead**? And why stand **we** in jeopardy every hour? (1 Cor 15:29,30)
+[![Getauft für die Toten](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 
-## "They" Baptized For The Dead
 
-Please notice the contrasting pronouns **_they_** and **we** in 1 Cor. 15:29,30\. The pronoun _they_ refers to the ones believing in and practicing **_baptism for the dead**,_ while **the pronoun _we_ refers to the Christian group that Paul identifies himself with**. In other words, that passage refers to _baptism for the dead,_ but **it was not practiced by Christians. It was done by the non-Christian people in Paul’s day and not the group Paul identified himself with!** This also explains why there is _never_ any other reference to _baptism for the dead_ anywhere else in God’s Word, the Holy Bible.
+## Warum Werden Leute _Für Die Toten Getauft_
 
-## [This Is Why Water Baptism Does NOT Save](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptism.html)
+## [Das Ist Der Grund, Warum Es NICHT Nötig Ist, Über Das Buch Mormon Zu Beten](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon.htm)
+
+**Wie wichtig ist _getauft für die Toten_  (1 Kor. 15,29) für einen Mormonen?** Oftmals, wenn ein Mormone versucht, seine eigenen einzigartigen Glaubensvorstellungen zu verteidigen, oder den Glauben eines [**Bibel**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html)gläubigen zu zerstören, wird der Mormone _Taufe für die Toten_ erwähnen, wie es in 1. Kor 15,29 erwähnt ist. Hier ist, was dort in diesem Text steht:
+
+> Was würden sonst die thun, welche sich **für die Toten taufen** lassen? Wenn die Toten gar nicht auferstehen, was lassen sie sich **für die Toten taufen**? (Schlachter 1905)
+
+[![Karen Carpenter](../../files/pictures/karen-carpenter.jpg "Karen Carpenter wurde für die Toten von Mormonen getauft via einen Taufe durch einen Stellvertreter.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html)
+
+Für einen Christen ist es sehr einfach diese Mormonenfrage bezüglich der _Taufe für die Toten_ zu beantworten, nachdem er den unmittelbaren Kontext untersucht hat, das heisst Verse 29 und 30:
+
+> Was würden sonst **die** thun, welche sich **für die Toten taufen** lassen? Wenn die Toten gar nicht auferstehen, was lassen **sie** sich **für die Toten taufen**? Und was stehen auch **wir** stündlich in Gefahr? (1. Kor 15,29-30; Schlachter 1905)
 
 
-## Mormon Mythology
+## "Sie" Tauften Für Die Toten
 
-The Mormons have nothing to draw from for the details of this strange doctrinal distinctive (_baptism for the dead_). Hence, they must depart from the **[all-sufficient Bible](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html)**, which is obvious error in itself:
+Bitte beachte die entgegengesetzten Pronomen **_sie_** und **wir** in 1 Kor. 15,29-30\. Das Pronomen _sie_ bezieht sich auf diejenigen, welche an die **_Taufe für die Toten_** glauben und solches praktizieren, während **das Pronomen _wir_ sich auf die christliche Gruppe bezieht, mit welcher sich Paulus selbst identifiziert**. Mit andern Worten, die Stelle bezieht sich auf _Taufe für die Toten_, aber **es wurde nicht von Christen praktiziert. Es wurde gemacht von den Nicht-Christen zu Paulus' Zeit und nicht von der Gruppe, mit welcher sich Paulus identifizierte!** Dies erklärt auch, warum es sonst in Gottes Wort, der Heiligen Bibel, _nirgendwo_ sonst irgendwelche Bezugnahme auf die _Taufe für die Toten_ gibt.
 
-> All Scripture is God-breathed and is useful for teaching, rebuking, correcting and training in righteousness, so that the man of God may be **thoroughly equipped** for every good work. (2 Tim 3:16,17)
-
-**Such has resulted in people being _baptized for the dead_ and _baptism by proxy_. One example is Karen Carpenter. _After she died,_ the Latter Day Saints by proxy have baptized Karen Carpenter, the singer who passed away in 1983. Other famous people were similarly baptized. This is done in a Mormon Temple and the people baptized by proxy will have a special opportunity, because of it, for _salvation!_ That is why Mormonism practices _baptism for the dead_.** (Of course, none of those details or benefits are found in the Bible anywhere and the _salvation_ they speak of is not the same as Biblical salvation.)
+## [Das Ist Der Grund, Warum Wassertaufe NICHT Rettet](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptism.html)
 
 
-## _Baptized For The Dead_ In Summary
+## Mormon Mythologie
 
-Sometimes the false religions will bring up some strange doctrine/s and because Bible-believers are not acquainted with the Scriptures, they are thrown into confusion. Too often it is much worse than merely being thrown into confusion, that is, the gullible, naive and exploitable do get deceived into the [**Latter Day Saints**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html) group, which also ludicrously believes in God the Mother, that Jesus is the Spirit-brother of _Lucifer_, that God was once a man and man can become God, [**baptism is necessary for salvation**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptism.html), etc. It is vitally important that we all recognize [**Joseph Smith Jr**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormons.html). for who he was based on Scripture. His true identity is _false prophet_ and _deceiver_ (Mt.24:11):
+Die Mormonen können nirgendwoher die Details dieser merkwürdigen lehrmässigen Unterscheidung nehmen (_Taufe für die Toten_). Daher müssen sie weggehen von der **[völlig-genügenden/ausreichenden Bibel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html)**, was in sich selbst einen offensichtlichen Fehler ist:
 
- **Many false prophets will appear and deceive many people.**
+> Alle Schrift ist von Gott eingegeben und  nütze zur Lehre,  zur Überführung, zur Zurechtweisung, zur Unterweisung in der Gerechtigkeit, auf daß der Mensch Gottes **vollkommen sei**, zu jedem guten Werke völlig geschickt. [=ausgerüstet] (2. Tim 3,16-17; elb1905)
 
-There is no need to pray about the [**Book of Mormon**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html) or the LDS church. We don’t _lack knowledge_ about either or its founder. Since they are so different and contrary to the Bible, the real Holy Spirit (who gave us the Bible) can’t be leading or directing them. Do not be deceived by their _baptism for the dead_ practice. It is not Christian. Click here to read much more on [**Latter Day Saints**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html). **This information could make an eternal difference in the lives of Mormons who were _baptized for the dead_**.
+**Solches resultierte darin, dass Leute _für die Toten getauft_ wurden und in der _Taufe durch Stellvertreter_. Ein Beispiel hierfür ist Karen Carpenter. _Nachdem sie gestorben war,_ tauften die Heiligen der Letzten Tage durch einen Stellvertreter Karen Carpenter, die Sängerin, welche 1983 starb. Weitere berühmte Leute wurden ähnlich getauft. Dies wird in einem Mormonentempel gemacht und die Leute welche durch einen Stellvertreter getauft wurden, werden aufgrund dessen eine spezielle Gelegenheit zur _Errettung_ haben! Das ist der Grund, weshalb Mormonen die _Taufe für die Toten_ praktizieren.** (Natürlich können keine dieser Details oder Vorteile davon irgendwo in der Bibel gefunden werden und die _Errettung_ von welcher sie sprechen ist nicht dieselbe wie die biblische Errettung.)
 
-![baptized for the dead](../../files/pictures/a-colorb.gif)
 
-**OTHER TOPICS:**
+## Zusammenfassung _Getauft Für Die Toten_
 
-- **[Should We Pray About The Book Of Mormon?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon.htm)**
+Manchmal werden die falschen Religionen einige merkwürdige Lehren erwähnen und weil Bibel-Gläubige nicht mit der Bibel vertraut sind, werden sie verwirrt. Zu oft ist es viel schlimmer, als dass sie lediglich verwirrt werden, das heisst, die Leichtgläubigen, Naiven und Ausnutzbaren in die [**Heiligen Der Letzten Tage**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html) Gruppe hineingetäsuscht, welche lächerlicherweise auch an Gott die Mutter glauben, dass Jesus der Geist-Bruder von _Luzifer_ sei, dass Gott einst ein Mensch war und dass der Mensch Gott werden könne, dass [**Taufe für die Errettung notwendig sei**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptism.html), etc. Es ist von entscheidender Bedeutung, dass wir alle [**Joseph Smith Jr**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormons.html). als den erkennen, den er auf der Bibel basierend war. Seine wahre Identität ist ein _falscher Prophet_ und _Betrüger_ (Mt. 24,11):
 
-- **[Plan Of Salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
+> **Viele falsche Propheten werden aufstehen und werden viele verführen.**
 
-- **[Angels, Demons and Satan](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/angels.html)**
+Es ist nicht nötig, über das [**Buch Mormon**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html) oder die HLT-Kirche zu beten. Es _mangelt_ uns um keins von beidem _Wissen_ oder um ihren Gründer. Da sie so verschieden von und entgegengesetzt der Bibel sind, kann der wahre heilige Geist (der uns die Bibel gab) sie nicht leiten oder führen. Werde nicht irregeführt von ihrer Praxis der _Taufe für die Toten_. Sie ist nicht christlich. Klicke hier und lese viel mehr über die [**Heiligen Der Letzten Tage**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html). **Diese Informationen könnten einen ewigen Unterschied machen in den Leben von Mormonen, welche _für die Toten getauft_ wurden**.
 
-- **[Skull And Crossbones Awards For False Prophets And False Teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Skull_And_Crossbones.html)**
+![Getauft für die Toten](../../files/pictures/a-colorb.gif)
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+**WEITERE THEMEN:**
+
+- **[Sollten Wir Über Das Buch Mormon Beten?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon.htm)**
+
+- **[Plan Der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
+
+- **[Engel, Dämonen und Satan](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/angels.html)**
+
+- **[Skull And Crossbones Awards Für Falsche Propheten Und Falsche Lehrer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Skull_And_Crossbones.html)**
+
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical Outreach](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)**  
 **PO Box 265**  

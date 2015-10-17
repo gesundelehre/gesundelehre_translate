@@ -134,4 +134,4 @@ Washington, PA 15301
 EvangelicalOutreach.org  
 EternalLifeBlog.com
 
-[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)

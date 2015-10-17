@@ -200,7 +200,7 @@ Secondly, to lust in your heart after another is also _**adultery:**_
 
 - **[The Slavery, Bondage and Controlling Power of Sin](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)**
 
-**[**<font color="blue">Contact Us Or Join Our Internet Church</font>**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+**[**<font color="blue">Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde</font>**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) <font color="blue">Outreach</font>**  
 **PO Box 265**  

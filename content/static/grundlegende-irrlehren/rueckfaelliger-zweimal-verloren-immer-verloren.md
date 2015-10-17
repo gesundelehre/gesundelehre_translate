@@ -57,17 +57,17 @@ This brings up another issue, namely, for those who backslide, like the prodigal
 
 - **[Humanity Of Christ](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/humanity-of-christ.html)**
 
-- **[Plan Of Salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
+- **[Plan Der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
 
 - **[Hindrances To Answered Prayer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hindrances-to-answered-prayer.htm)**
 
 - **[Answering Objections To The Deity Of Christ](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/deity-of-Christ.html)**
 
-- **[The Antichrist, False Prophet and Mark of the Beast](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antichrist.html)**
+- **[Der Antichrist, Falsche Prophet und Das Malzeichen des Tieres](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antichrist.html)**
 
-- **[Antinomianism](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antinomianism.htm)**
+- **[Antinomianismus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antinomianism.htm)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical Outreach](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)**
 

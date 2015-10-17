@@ -8,7 +8,6 @@ Ewige Sicherheit Trieft Vor _Lizenz Zum Sündigen_
 
 # Übersetzungsvorschläge können [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegene-irrlehren/osas-ewige-sicherheit-trieft-vor-lizenz-zum-suendigen.md) auf github gemacht werden.
 
-
 Quelle: [www.evangelicaloutreach.org/etlicense.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/etlicense.htm)
 
 # Ewige Sicherheit Trieft Vor _Lizenz Zum Sündigen_

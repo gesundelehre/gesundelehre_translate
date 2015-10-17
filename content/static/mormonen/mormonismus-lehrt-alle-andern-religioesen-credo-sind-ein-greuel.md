@@ -1,4 +1,4 @@
-<!--t Mormonismus Lehrt Alle Andern Religiösen Credo Sind Ein Greuel - in Arbeit (0% übersetzt) t-->
+<!--t Mormonismus Lehrt Alle Andern Religiösen Credo Sind Ein Greuel (90% übersetzt) t-->
 <!--d d-->
 
 Mormonismus Lehrt Alle Andern Religiösen Credo Sind Ein Greuel
@@ -17,35 +17,35 @@ Quelle: [www.evangelicaloutreach.org/ldsabomination.htm](http://gesundelehre.tk/
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
-![Mormonism](../../files/pictures/a-colorb.gif)
+![Mormonentum](../../files/pictures/a-colorb.gif)
 
 
 
-## Mormons Believe ALL Non-Mormon Creeds Are An Abomination
+## Mormonen Glauben ALLE Nicht-Mormonische Credo Sind Ein Gräuel
 
-**Sometimes when a Christian mentions the false prophecies of Joseph Smith, Jr. or that the [Book of Mormon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html) contradicts the Holy Scriptures (Bible) the Mormon missionaries will say something to the effect as to, _why are you picking on us._ The truth is: Christianity has been under attack by their false prophets and false doctrines for over 150 years.**
+**Manchmal, wenn wenn Christen die falschen Prophetien von Joseph Smit, Jr. erwähnen, oder dass das [Buch Mormon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html) der Heiligen Schrift (Bibel) widerspricht, so werden die Missionare der Mormonen etwas sagen to the effect as to, _why are you picking on us._ Die Wahrheit ist: Das Christentum has been under attack von ihren falschen Propheten und falschen Lehren für 150 Jahre.**
 
-One of their false teachings from their founder and false prophet, **[Joseph Smith, Jr.](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormons.html)** speaks volumes about how Mormons view **[Christian beliefs](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-beliefs.html)** and how they are vastly different. The following is from their _Pearl of Great Price_:
+Eine ihrer falschen Lehrer von ihrem Gründer und falschen Propheten, **[Joseph Smith, Jr.](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormons.html)** spricht Bänder darüber, was Mormonen von **[Christlichen Glaubensvorstellungen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-beliefs.html)** halten und wie sie sich äusserst stark unterscheiden. Das folgende ist von ihrer _Pearl of Great Price_:
 
-My object in going to inquire of the Lord was to know **which of all the sects was right, that I might know which to join.** No sooner, therefore, did I get possession of myself, so as to be able to speak, than I asked the Personages who stood above me in the light, **which of all the sects was right—and which I should join**. I was answered that **I must join none of them, for they were all wrong**; and the Personage who addressed me said that **all their creeds were an abomination in his sight .... He again forbade me to join with any of them** (Joseph Smith - History 1:18-20).
+18 Der Grund, warum ich den Herrn befragen wollte, war der, daß ich wissen wollte, **welche von allen Glaubensgemeinschaften recht hätte, damit ich wisse, welcher ich mich anschließen sollte.** Sobald ich mich soweit gefaßt hatte, daß ich imstande war zu sprechen, fragte ich daher die über mir im Licht stehenden Personen, **welche von allen Glaubensgemeinschaften die richtige sei** (denn bisher war es noch nie in mein Herz gedrungen, daß alle unrecht hätten)— **und welcher ich mich anschließen solle.** 19 **Ich bekam die Antwort, ich dürfe mich keiner von ihnen anschließen, denn sie seien alle im Unrecht**; und die Person, die zu mir sprach, sagte, **ihre sämtlichen Glaubensbekenntnisse seien in seinen Augen ein Greuel**; ... 20 **Nochmals verbot er mir, mich einer von ihnen anzuschließen** ... (Joseph Smith — Lebensgeschichte 1,18–20).
 
-It should be apparent from the above that: (1) **[Mormonism is totally unlike all the other religions and creeds](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsbeliefs.htm)** and (2) **Teaches all non-Mormon creeds are an _abomination_ in God’s sight, which would have to include the sacrificial and redemptive death of the Lord Jesus on the cross and his resurrection from the grave on the third day.**
+Vom obigen sollte klar ersichtlich sein, dass: (1) **[Mormonismus gänzlich verschieden ist von allen andern Religionen und Credo](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsbeliefs.htm)** und (2) **lehrt, dass alle nicht-mormonische Credo ein _Gräuel_ aus Gottes Sicht sind, welches auch den Opfer- und erlösenden Tod des Herrn Jesus und seine Auferstehung vom Grab am dritten Tag beinhalten würde.**
 
-## [Click To Read SHOCKING LDS Beliefs, The Real Mormon Beliefs](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsbeliefs.htm)
+## [Klicke Um SCHOCKIERENDE HLT-Glaubensvorstellungen Zu Lesen, Die Wahren Mormonen Glaubensvorstellungen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsbeliefs.htm)
 
-For a Christian to _expose_ the strange teachings of Mormonism, or even more importantly, to refute them with the Bible, is not being anything but _loving and obedient to God_. **The LDS (Mormon) message is _not_ the same as the Bible’s and, therefore, is not from God.** Sincere people have been deceived by Mormonism and desperately need to know the truth of God before it is too late. Please see our other teachings on **_[Mormonism](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html)_**. GOD BLESS YOU.
+Für ein Christ, die merkwürdigen Lehren des Mormonentums zu _entlarven_, oder noch wichtiger, sie mit der Bibel zu widerlegen, ist nichts anderes, als _liebend und gehorsam Gott gegenüber_. **Die Botschaft der HLT (Mormonen) ist _nicht_ dieselbe wie die Bibel und daher ist sie nicht von Gott.** Aufrichtige Leute wurden durch das Mormonentum irregeführt und brauchen müssen verzweifelt Gottes Wahrheit kennenlernen, bevor es zu spät ist. Bitte konsultiere unsere andern Lehren bezüglich **_[Mormonentum](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html)_**. GOTT SEGNE DICH.
 
-![Mormonism](../../files/pictures/a-colorb.gif)
+![Mormonentum](../../files/pictures/a-colorb.gif)
 
-**OTHER TOPICS:**
+**WEITERE THEMEN:**
 
-- **[Bible Answers To Bible Questions](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible-answers.html)**
+- **[Bibelantworten Auf Bibelfragen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible-answers.html)**
 
-- **[Former Roman Catholic](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)**
+- **[Ehemaliger Römisch Katholischer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)**
 
-- **[Eternal Security Teachers Are Very Dangerous People](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security-teachers.html)**
+- **[Lehrer Der Ewigen Sicherheit Sind Sehr Gefährliche Leute](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security-teachers.html)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

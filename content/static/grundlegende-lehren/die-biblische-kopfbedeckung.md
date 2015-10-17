@@ -1,4 +1,4 @@
-<!--t Die Biblische Kopfbedeckung - in Arbeit (0% übersetzt) t-->
+<!--t Die Biblische Kopfbedeckung - in Arbeit (10% übersetzt) t-->
 <!--d d-->
 
 Die Biblische Kopfbedeckung
@@ -53,15 +53,16 @@ The** _only_** time in the Bible the Christian _head covering_ is referred to is
 
 ● If a Christian woman prays or prophesies with her head uncovered (no _head covering_) it is the equivalent to her head being _shaven_.
 
-> If a woman does not cover her head, she should have her hair cut off; and if **it is a disgrace for a woman to have her hair cut or shaved off,** she should cover her head. (1 Cor 11:6)
+> Will sie sich nicht bedecken, so schneide man ihr auch das Haar ab. **Nun es aber übel stehet, daß ein Weib verschnitten Haar habe oder beschoren sei**, so lasset sie das Haupt bedecken. (1.Kor 11,6; Luther 1545)
 
 ● For a Christian woman to have her hair shaved off is a _disgrace_ to her personally. Hence, if a Christian woman does not _cover_ her head (have a _head covering_) when praying and prophesying she dishonors her husband and disgraces herself.
 
-> **A man ought not to cover his head,** since he is the image and glory of God; but the woman is the glory of man. (1 Cor 11:7) For man did not come from woman, but woman from man; (1 Cor 11:8) neither was man created for woman, but woman for man. (1 Cor 11:9) For this reason, and because of the **[angels](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/angels.html)**, the woman ought to have **a sign of authority on her head**. (1 Cor 11:10)
+> **Der Mann aber soll das Haupt nicht bedecken**, sintemal er ist Gottes Bild und Ehre; das Weib aber ist des Mannes Ehre. (1 Kor 11:7) Denn der Mann ist nicht vom Weibe, sondern das Weib ist vom Manne. (1 Kor 11:8) Und der Mann ist nicht geschaffen um des Weibes willen; sondern das Weib um des Mannes willen. (1 Kor 11:9) Darum soll das Weib **eine Macht auf dem Haupt** haben um der [**Engel**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/angels.html) willen. (1.Kor 11,10; Luther 1545) [Statt Macht übersetzen andere auch "ein Zeichen der Macht/Gewalt", sintemal = weil/da]
 
 ● Why Paul gave the aforementioned directives about how Christian women are to pray and prophesy is given—a woman is the glory of man, she was created for man and because of the angels.  Paul also mentioned the woman’s _head covering_ is also _**a sign of authority._**
 
-> In the Lord, however, woman is not independent of man, nor is man independent of woman. (1 Cor 11:11) For as woman came from man, so also man is born of woman. But everything comes from God. (1 Cor 11:12)
+> Doch ist im Herrn weder das Weib ohne den Mann, noch der Mann ohne das Weib. (1. Kor 11,11) Denn gleichwie das Weib vom Manne [kommt] , so auch der Mann durch das Weib; aber das alles von Gott. (1.Kor 11,12; Schlachterbibel 1951)
+
 
 ## The Identity of the _Head Covering_ is Revealed as LONG HAIR
 
@@ -69,7 +70,7 @@ The** _only_** time in the Bible the Christian _head covering_ is referred to is
 
 You are now about to read, in the _clearest_ possible terms, what the woman’s _head covering_ was in first-century Christianity:
 
-> Judge for yourselves: Is it proper for a woman **to pray** to God with her head uncovered? (1 Cor 11:13) Does not the very nature of things teach you that if a man has **long hair**, it is a disgrace to him, (1 Cor 11:14) but that **if a woman has long hair, it is her glory**? For **long hair is given to her as a covering.** (1 Cor 11:15) **If anyone wants to be contentious about this, we have no other practice—nor do the churches of God.** (1 Cor 11:16)
+> Richtet bei euch selbst, ob es wohl steht, dass ein Weib unbedeckt vor Gott **bete**. (1.Kor 11,13) Oder lehrt euch auch nicht die Natur, dass es einem Manne eine Unehre ist, so er **das Haar lang wachsen** lässt, (1.Kor 11,14) und **dem Weibe eine Ehre, so sie langes Haar hat**? **Das Haar ist ihr zur Decke gegeben**. (1.Kor 11,15) **Ist aber jemand unter euch, der Lust zu zanken hat, der wisse, dass wir solche Weise nicht haben, die Gemeinden Gottes auch nicht.** (1.Kor 11,16; Luther 1912)
 
 You would think the clarity of v. 16 would silence all those who wrongly say a woman’s _head covering_ is a piece of cloth a certain size, shape, color and worn in a particular way, but often it doesn’t. Some continue to embrace their church standards and traditions and remain _contentious_, the very thing Paul just refuted with **_the woman’s long hair is her covering_** teaching. It seems that Biblical truth is not always the real issue for many in these circles. It is instead to _go with the established flow in their group_ and _what has been done in the past._ **These _rules taught by men_ in certain circles have actually nullified these Scriptures for some.**
 
@@ -90,25 +91,25 @@ You would think the clarity of v. 16 would silence all those who wrongly say a w
 
 The truth is: It is merely _rules taught by men_ that would state the woman’s **_head covering_** is a piece of _cloth._ **It is _not_ the word of God that teaches that.** Hence, for those who reject this and remain _contentious_ about this issue, Paul’s Holy Spirit inspired teaching still stands about the _head covering:_
 
-> But that **if a woman has long hair, it is her glory**? For **long hair is given to her as a covering**. (1 Cor 11:15) **If anyone wants to be contentious about this, we have no other practice—nor do the churches of God.** (1 Cor 11:16)
+> **und dem Weibe eine Ehre, so sie langes Haar hat**? **Das Haar ist ihr zur Decke gegeben.** (1. Kor 11,15) **Ist aber jemand unter euch, der Lust zu zanken hat, der wisse, dass wir solche Weise nicht haben, die Gemeinden Gottes auch nicht.** (1.Kor 11,16; Luther 1912)
 
 **If the woman’s _head covering_ was not clearly stated to be her _long hair_, we would have no idea what it is to be since nothing else is identified as the _head covering_**. Nowhere does it say the _head covering_ is a piece of _cloth_, much less specify the color, shape and how it is to be wore. How can some be so dogmatic about such, yet claim to go by the Bible? Furthermore, how can so many just follow along with no Scriptural support?
 
 While some insist the woman’s head covering is a piece of _cloth_ (usually _white_), one could have just as much Biblical support that the _head covering_ is instead a _brown hat_, a _blue scarf_, a _fig leaf_, etc., since there is **_absolutely no Scriptural defense_** for any of these either. **To elevate a man-made tradition to a _salvation_ issue is DEADLY for the preacher and those who are so deceived (Gal. 1:8,9).** Go by the Bible alone any you'll be safe (2 Tim. 3:16,17). GOD BLESS YOU.
 
-![Head Covering](../../files/pictures/a-colorb.gif)
+![Kopfbedeckung](../../files/pictures/a-colorb.gif)
 
-**OTHER TOPICS:**
+**WEITERE THEMEN:**
 
 - **[Skull And Crossbones Awards For False Prophets And False Teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Skull_And_Crossbones.html)**
 
-- **[Plan Of Salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
+- **[Plan Der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
 
-- **[Former Roman Catholic](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)**
+- **[Ehemaliger Römisch Katholischer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)**
 
-- **[The Christian Life](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)**
+- **[Das Christliche Leben](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)**
 
-- **[Cornelius The Centurion (Lost and Religious)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/cornelius.htm)**
+- **[Kornelius Der Centurion (Verloren und Religiös)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/cornelius.htm)**
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  
@@ -117,4 +118,4 @@ While some insist the woman’s head covering is a piece of _cloth_ (usually _wh
 **www.EvangelicalOutreach.org**  
 **www.EternalLifeBlog.com**
 
-**[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+**[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**

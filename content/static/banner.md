@@ -1,4 +1,4 @@
-<!--t Bilder | Banner t-->
+<!--t Bilder t-->
 <!--d Werbung d-->
 <!-- ![](files/pictures/) -->
 

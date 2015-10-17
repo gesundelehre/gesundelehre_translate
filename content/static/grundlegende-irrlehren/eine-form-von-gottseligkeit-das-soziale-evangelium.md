@@ -124,7 +124,7 @@ Das wahre Evangelium zentriert exklusiv um **[Jesus](http://gesundelehre.tk/forw
 </span>
 
 <span class="inline-images">
-![](../../files/pictures/redball.gif)You must read the King James Bible to learn the truth to have salvation. (Some, but not all, King James Only groups)
+![](../../files/pictures/redball.gif)Man muss die King James Bibel lesen, um die Wahrheit kennenzulernen, um Errettung zu haben. (Einige, aber nicht alle, King James Only Gruppen)
 </span>
 
 <span class="inline-images">
@@ -136,18 +136,18 @@ Das wahre Evangelium zentriert exklusiv um **[Jesus](http://gesundelehre.tk/forw
 </span>
 
 <span class="inline-images">
-![](../../files/pictures/redball.gif)Mentally assenting to the historic death, burial and resurrection of Jesus will bring salvation without repentance. (Many liberal churches)
+![](../../files/pictures/redball.gif)Dem historischen Tod, Begräbnis und Auferstehung von Jesus geistig/mental zustimmen wird Errettung bringen ohne Busse. (Viele liberale Kirchen)
 </span>
 
 <span class="inline-images">
 ![](../../files/pictures/redball.gif)**[Abwenden von Sünden ist nicht notwendig für Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antinomianism.htm)**. Man muss Gott einfach, bitten, einem zu vergeben.
 </span>
 
-Those are just some of the demonic ideas about salvation floating around in various groups which call themselves **[Christian](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)**. With so many clashing ideas, many people remain frustrated in their effort to know what to believe, which was part of the devil's plan to begin with.
+Dies sind nur einige der dämonischen Ideen bezüglich Errettung, welche in verschiedenen Gruppen herumschwimmen, welche sich selbst **[christlich](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)** nennen. Mit so vielen zusammengeratenden/klirrenden Ideen, bleiben viele Leute frustriert in ihren Bemühungen herauszufinden, was zu glauben, was von Anfang an Teil vom Plan des Teufels war.
 
-Again, the truth is: **All false gospels lack the spiritual power to transform a sin-addicted, hell-deserving person into a purified, truth and people loving, holy, new creation and child of God.** Remember that key truth.
+Nochmals, die Wahrheit ist: **Alle falschen Evangelien mangelt es an geistlicher Kraft, um eine Sünden-abhängige, Höllen-verdienende Person in eine gereinigte, Wahrheit- und Menschen-liebende, neue Schöpfung und ein Kind Gottes zu verwandeln.** Präge dir diese Schlüsselwahrheit ein.
 
-Any counterfeit gospel (social gospel, etc.) is so dangerously wrong and harmful that Gal. 1:8,9 declares that all who preach such lies will be damned just for preaching such - even a person once saved!
+Jedes gefälschte Evangelium (soziales Evangelium, etc.) ist so gefährlich falsch und schädlich, dass Gal. 1,8-9 angibt, dass alle die solche Lügen predigen, verurteilt werden nur weil sie solches predigen - sogar eine Person die einst gerettet war!
 
 > But even if we or an angel from heaven should preach a gospel other than the one we preached to you, let him be eternally condemned! As we have already said, so now I say again: If anybody is preaching to you **[a gospel other than what you accepted](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/anothergospel.html)**, let him be eternally condemned! (Gal 1:8,9)
 
@@ -173,7 +173,7 @@ Changed lives which shine forth the evidence of saving grace (Acts 11:23) consis
 
 > **Do you not know that the unrighteous will not inherit the kingdom of God? Do not be deceived.** Neither fornicators, nor idolaters, nor adulterers, nor homosexuals, nor sodomites, nor thieves, nor covetous, nor drunkards, nor revilers, nor extortioners will inherit the kingdom of God. And such were some of you. But you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus and by the Spirit of our God. (1 Cor. 6:9-11, NKJV)
 
-Paul's example was most noteworthy:
+Paulus' Beispiel war am beachtenswertesten:
 
 > Even though **I was once** a blasphemer and a persecutor and a violent man, I was shown mercy because I acted in ignorance and unbelief. (1 Tim 1:13)
 
@@ -186,7 +186,7 @@ Paul went from Christian-hater and persecutor to Christian lover and helper. He 
 The gospel that the Lord Jesus and his Apostles believed in and preached had power over sin and an ability to change people. They were not a mere form of godliness like the predominant, popular, social and politically-correct dangerous gospels of our day! They lack that power because they are **not the word of God.** They are not true. They are based on lies from demons, which are trying to deceive and damn souls to hell.
 
 
-## You Can Get Free
+## Du Kannst Frei Werden
 
 When you sincerely, from the depths of your heart, cry out to God for mercy and forgiveness, and turn from your sins to serve God, God's power will radically change you and set you free, regardless the sin addictions which are holding you bound and dragging you to hell. **Come sincerely, humbly and with a repentant heart to God in prayer to place JESUS FIRST in your life and above all others. Anything less will lack the power and you will remain unchanged.** That describes what has happened to many, who now wrongly think they are irrevocably going to heaven, when _addicted to sin._ NOTE: **If you are not living holy NOW, you are not a Christian NOW. You must endure to the end and sow to please the Spirit to enter God's kingdom (Mt. 10:22; Heb. 3:14; Gal. 6:8,9, etc.).** **Do NOT be deceived like many church people with a mere _form of godliness!_** For much more truth on a form of godliness, consult the NO eternal security book entitled, **[The Believer's Conditional Security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html)** (quick shipment and free materials included with each order).
 

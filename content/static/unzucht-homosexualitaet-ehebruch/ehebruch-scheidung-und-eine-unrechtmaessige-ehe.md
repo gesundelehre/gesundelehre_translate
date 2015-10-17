@@ -85,7 +85,7 @@ He too needs to repent and tell those two they are not really married in God's e
 
 **[Christian Unity](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/unity.html)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) <font color="blue">Outreach</font>**  
 **PO Box 265**  

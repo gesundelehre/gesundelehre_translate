@@ -72,7 +72,7 @@ Source: [www.evangelicaloutreach.org/spiritism.htm](http://gesundelehre.tk/forwa
 
 > "You are a child of the devil and an enemy of everything that is right! You are full of all kinds of deceit and trickery. Will you never stop perverting the right ways of the Lord? Now the hand of the Lord is against you. You are going to be blind, and for a time you will be unable to see the light of the sun" (Acts 13:6-11).
 
-## [Johanna Michaelsen Dache Sie Wäre Ein _christliches Geister Medium_ gewesen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johanna-michaelsen-beautiful-side-of-evil.htm)
+## [Johanna Michaelsen Dachte Sie Wäre Ein _christliches Geister Medium_ gewesen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johanna-michaelsen-beautiful-side-of-evil.htm)
 
 <a name="spiritism"></a>
 (9) **Ehemalige Zauberer zu Ephesus die zum Christentum konvertierten verbrannten iihre Zauberbücher öffentlich (Apg19,18-19). Dies ist wie sie im Christentum des ersten Jahrhunderts ihre Busse bewiesen (Apg 26,20).**

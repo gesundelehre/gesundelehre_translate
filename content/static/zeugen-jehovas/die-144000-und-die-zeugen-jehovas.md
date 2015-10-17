@@ -1,4 +1,4 @@
-<!--t Die 144000 und die Zeugen Jehovas - in Arbeit (0% übersetzt) t-->
+<!--t Die 144000 und die Zeugen Jehovas (98% übersetzt) t-->
 <!--d Zeugen Jehovas, Wachturmgesellschaft, Wachturm, Falscher Prophet, Neue Welt Übersetzung d-->
 
 Die 144000 und die Zeugen Jehovas
@@ -15,76 +15,76 @@ Quelle: [www.evangelicaloutreach.org/144000.htm](http://gesundelehre.tk/forwarde
 ### Dan Corner
 
 
-![who are the 144,000](../files/pictures/evangelical-who-are-the-144000.jpg)
+![wer sind die 144'000](../files/pictures/evangelical-who-are-the-144000.jpg)
 
-![who are the 144,000](../files/pictures/a-colorb.gif)
+![wer sind die 144'000](../files/pictures/a-colorb.gif)
 
 [![144,000](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 
-## Who Are The 144,000
+## Wer Sind Die 144,000
 
-<big><big>**[PROOF! There Will Be More Than 144,000 In Heaven](#who%20are%20the%20144,000)**</big></big>
+<big><big>**[BEWEIS! Es Wird Mehr Als 144'000 Im Himmel Geben](#who%20are%20the%20144,000)**</big></big>
 
-**Only in the Book of Revelation do we read of this special group of 144,000. There is a _mystery_ surrounding them. _Who are the 144,000_ and could some people alive today be of the 144,000? What are the Biblical details? Here are eight known facts:**
+**Nur im Buch der Offenbarung lesen wir von dieser speziellen Gruppe der 144'000. Ein _Geheimnis/Rätsel_ umgibt sie. _Wer sind die 144'000_ und könnten einige Leute die heutzutage lebendig sind von den 144'000 sein? Was sind die biblischen Details? Nachfolgend sind acht bekannte Fakten:**
 
-[![jehovahs witness 144000](../files/pictures/jehovahs-witnesses-144000.jpg "Do NOT allow the Jehovah's Witnesses to deceive you about the 144000 and who they are!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jwbeliefs.html)
+[![Zeuge Jehovas 144000](../files/pictures/jehovahs-witnesses-144000.jpg "Lasse NICHT zu, dass die Zeugen Jehovas dich irreführen bezüglich den 144'000 und wer sie sind!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jwbeliefs.html)
 
-![144000](../files/pictures/redball.gif)They each get a seal on their foreheads (7:3)
+![144000](../files/pictures/redball.gif)Sie bekommen alle je ein Siegel an ihre Stirn (7,3)
 
-![144000](../files/pictures/redball.gif)They are from the twelve tribes of Israel (7:4-8), that is, 12,000 from each of the 12 tribes.
+![144000](../files/pictures/redball.gif)Sie sind von den zwölf Stämmen Israels (7:4-8), das heisst, 12'000 von jedem der 12 Stämme.
 
-![144000](../files/pictures/redball.gif)They get Jesus’ name and the Father’s name written on their foreheads (14:1).<span> 
+![144000](../files/pictures/redball.gif)Sie bekommen Jesu Namen und den Namen seines Vaters auf ihre Stirn geschrieben (14,1).<span> 
 
-![144000](../files/pictures/redball.gif)They were before the throne where they alone could learn a heavenly praise song to sing (14:3).
+![144000](../files/pictures/redball.gif)Sie waren vor dem Thron, wo sie allein ein neues himmlisches Loblied singen lernen konnten (14,3).
 
-![144000](../files/pictures/redball.gif)They were redeemed from the earth, purchased from among men (Rev. 14:3,4) and offered as firstfruits to God and to the Lamb (14:4).
+![144000](../files/pictures/redball.gif)Sie waren von der Erde erkauft, aus der Menschheit erkauft (Off. 14,3-4) zu Erstlingen Gott und dem Lamm (14,4).
 
-![144000](../files/pictures/redball.gif)No lie was found in their mouths; they are blameless. (14:5)
+![144000](../files/pictures/redball.gif)Keine Lüge ist in ihrem Munde gefunden worden; sie sind tadellos. (14,5)
 
-![144000](../files/pictures/redball.gif)They kept themselves pure from defilement with women (14:4).
+![144000](../files/pictures/redball.gif)Sie hielten sich selbst rein von der Befleckung mit Frauen (14,4).
 
-![144000](../files/pictures/redball.gif)They are still following JESUS in heaven (14:4)
-
-
-
-## Jehovah's Witnesses Beliefs About The 144,000
-
-The Jehovah's Witnesses have been wrongly taught that _only the 144,000 will be in heaven_ and they are all Jehovah's Witnesses! The rest of God’s servants will dwell on paradise earth and not be in heaven. The 144,000 have been "born again" and the ones alive today have a "heavenly hope." In part, for the Jehovah’s Witnesses to come to those false conclusions they must:
-
-![144000](../files/pictures/redball.gif)_Literally_ take the number (144,000), but reject they are _literal_ Jews as the same text says.
-
-![144000](../files/pictures/redball.gif)Believe the 144,000 will be in heaven, but deny the great multitude that no man can count in Rev. 7 will also be in heaven, even though both groups are in the **same place described as being** **before the throne:**
-
-And they [144,000] sang a new song **before the throne** and before the four living creatures and the elders. No one could learn the song except the 144,000 who had been redeemed from the earth. (Rev 14:3)
-
-After this I looked and there before me was a great multitude that no one could count, from every nation, tribe, people and language, standing **before the throne** and in front of the Lamb. They were wearing white robes and were holding palm branches in their hands. (Rev 7:9)
-
-Therefore, “they are **before the throne** of God and serve him day and night in his temple; and he who sits on the throne will spread his tent over them.” (Rev 7:15)
-
-**Again, since the 144,000 are _before the throne_ and that is in heaven, then the great multitude that no man can count must also in heaven, since they too are _before the throne_! Having said all of that, the answer to the question _who are the 144,000_ is _they are 144,000 Jews_ who will be the first ones martyred during the days of the [antichrist](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antichrist.html). Hence, all of the 144,000 are of the last generation.**
+![144000](../files/pictures/redball.gif)Sie folgen JESUS immer noch im Himmel (14,4)
 
 
-## [Do You Know About CT Russell's Strange Pyramid Beliefs and 1874 Teaching?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/charles_russell.html)
+
+## Die Glaubensvorstellungen von Zeugen Jehovas Bezüglich Den 144'000
+
+Den Zeugen Jehovas wurde fälschlicherweise beigebracht, dass _nur die 144'000 im Himmel sein werden_ und dass sie alle Zeugen Jehovas seien! Der Rest von Gottes Knechten wird auf dem irdischen Paradies wohnen und wird nicht im Himmel sein. Die 144'000 wurden "wiedergeboren" und diejenigen, die heutzutage lebendig sind haben eine "himmlische Hoffnung." Teilweise, dass die Zeugen Jehovas zu dieser falschen Schlussfolgerung kommen, müssen sie:
+
+![144000](../files/pictures/redball.gif)Die Zahl (144'000) _Wörtlich_ nehmen, aber ablehnen, dass sie _buchstäbliche_ Juden sind, wie derselbe Text sagt.
+
+![144000](../files/pictures/redball.gif)Glauben, dass die 144'000 im Himmel sein werden, aber leugnen, dass die grosse Menge die niemand zählen konnte in Off.7. auch im Himmel sein wird, obwohl beide Gruppen **am selben Ort sind, der beschrieben wird als vor dem Thron:**
+
+> Und sie [144'000] singen ein neues Lied **vor dem Throne** und vor den vier lebendigen Wesen und den Ältesten; und niemand konnte das Lied lernen, als nur die hundertvierundvierzigtausend, die von der Erde erkauft waren. (Off 14,3; elb1905)
+
+> Nach diesem sah ich: und siehe, eine große Volksmenge, welche niemand zählen konnte, aus jeder Nation und aus Stämmen und Völkern und Sprachen, und sie standen **vor dem Throne** und vor dem Lamme, bekleidet mit weißen Gewändern, und Palmen waren in ihren Händen. (Off 7,9; elb1905)
+
+> Darum sind sie **vor dem Throne** Gottes und dienen ihm Tag und Nacht in seinem Tempel;  und der auf dem Throne sitzt, wird sein Zelt über ihnen errichten. (Off 7,15; elb1905)
+
+**Nochmals, da die 144'000 _vor dem Thron_ und das heisst im Himmel sind, sodann muss die grosse Menge, die niemand zählen konnte auch im Himmel sein, da sie beide _vor dem Thron_ sind! Having said all of that, die Antwort auf die Frage _wer sind die 144'000_ ist, _sie sind 144'000 Juden_ die die ersten sein werden, die in den Tagen des [Antichrists](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antichrist.html) als Märtyrer sterben werden. Daher sind alle 144'00 aus der letzten Generation.**
+
+
+## [Weisst Du Um Die Seltsamen Pyramiden-Glaubensvorstellungen Von CT Russel und Seinen 1874 Lehren?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/charles_russell.html)
 
 <a name="who%20are%20the%20144,000"></a>
-## More Than 144,000 In Heaven
+## Mehr Als 144,000 Im Himmel
 
-It is even more clear that the number in heaven with Jesus will definitely **exceed 144,000** and is shown by the following:
+Es ist sogar noch klarer, dass die Zahl derjenigen im Himmel mit Jesus definitiv **144'000 übersteigen** wird und solches wird durch das folgende gezeigt:
 
-Whoever serves me must follow me; and **where I am, my servant also will be.** My Father will honor the one who serves me. (John 12:26)
+> Wenn mir jemand dient, so folge er mir nach; und **wo ich bin, da wird auch mein Diener sein**. Wenn mir jemand dient, so wird der Vater ihn ehren. (Johannes 12,26; elb1905)
 
-Jesus stated **_all of his servants_ will be with him!** So, where is he referring to? _Heaven._ This glaring inconsistency about the 144,000 is just another obvious error and more evidence showing the **[Watchtower Society](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html)** in _not_ Jehovah’s Organization, as they have taught their own gullible members. To have true salvation also means one is **[set free from his sin addictions](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)**. The **[plan of salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)** taught by the Watchtower Society can never bring that about! **They are also wrong about _who are the 144,000._**
+Jesus besagte, dass **_alle seine Knechte_ mit ihm sein werden!** Auf wo bezieht er sich? _Himmel_. Diese grelle Inkonsistenz bezüglich den 144'000 ist nur ein weiterer Irrtum und mehr Beweis dafür, dass die **[Wachturmgesellschaft](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html)** _nicht_ Jehovas Organisation ist, wie sie ihren eigenen leichtgläubigen Mitgliedern gelehrt hat. Wahre Errettung zu haben bedeutet auch, dass man **[von seinen sündhaften Abhängigkeiten befreit wurde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)**. Der **[Plan der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)** welcher von der Wachturmgesellschaft gelehrt wird, kann das niemals herbeiführen! **Sie irren sich auch darüber, _wer die 144'000 sind_**.
 
-![who are the 144,000](../files/pictures/a-colorb.gif)
+![wer sind die 144'000](../files/pictures/a-colorb.gif)
 
-**OTHER TOPICS:**
+**WEITERE THEMEN:**
 
-- **[Humanity Of Christ](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/humanity-of-christ.html)**
+- **[Menschlichkeit Von Christus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/humanity-of-christ.html)**
 
-- **[The New World Translation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)**
+- **[Die Neue Welt Übersetzung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)**
 
-- **[Plan Of Salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
+- **[Plan Der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
 
 - **[Answering Objections To The Deity Of Christ](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/deity-of-Christ.html)**
 

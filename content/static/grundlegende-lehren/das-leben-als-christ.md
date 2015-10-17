@@ -1,4 +1,4 @@
-<!--t Das Christliche Leben - in Arbeit (90% übersetzt) t-->
+<!--t Das Christliche Leben - in Arbeit (85% übersetzt) t-->
 <!--d Das Christliche Leben d-->
 
 Das _Christliche_ Leben
@@ -91,15 +91,11 @@ ARTWORK IS COPYRIGHTED. UNAUTHORIZED USE IS FORBIDDEN.
 
 - **[Jesus Is Not the Father, But is Deity](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jesusnotfather.html)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
-**[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**
-
-**PO Box 265**
-
+**[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
+**PO Box 265**  
 **Washington PA 15301**
 
-
-**EvangelicalOutreach.org**
-
+**EvangelicalOutreach.org**  
 **EternalLifeBlog.com**

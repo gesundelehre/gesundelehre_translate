@@ -1,4 +1,4 @@
-﻿<!--t Judaisierer: 6 Bibelfakten worüber Samstags-Sabbatarier nachdenken müssen - in Arbeit (35% übersetzt) t-->
+﻿<!--t Judaisierer: 6 Bibelfakten worüber Samstags-Sabbatarier nachdenken müssen (99% übersetzt) t-->
 <!--d d-->
 
 Judaisierer: 6 Bibelfakten worüber Samstags-Sabbatarier nachdenken müssen
@@ -6,7 +6,7 @@ Judaisierer: 6 Bibelfakten worüber Samstags-Sabbatarier nachdenken müssen
 - - -
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/sabbath6facts.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sabbath6facts.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-irrlehren/judaisierer-sechs-bibelfakten-worueber-samstags-sabbatarier-nachdenken-muessen.md) auf github beim Übersetzen helfen und anschliessend einen pull-request mit deinem Übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei hier übernehmen)
+# Übersetzungsvorschläge können [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegende-irrlehren/judaisierer-sechs-bibelfakten-worueber-samstags-sabbatarier-nachdenken-muessen.md) auf github gemacht werden.
 
 Quelle: [www.evangelicaloutreach.org/sabbath6facts.htm](http://gesundelehre.tk/forwarder.php?url=www.evangelicaloutreach.org/sabbath6facts.htm)
 
@@ -24,6 +24,7 @@ Quelle: [www.evangelicaloutreach.org/sabbath6facts.htm](http://gesundelehre.tk/f
 ![Sabbat Samstag Sabbatarier STA](../files/pictures/009.gif)
 
 ## Biblische Wahrheiten und Details Über den _Sabbat_ Für Sabbatarier
+
 
 ## 1\. Die Zehn Gebote wurden wieder eingesetzt im Neuen Testament AUSGENOMMEN das Sabbat Gebot
 
@@ -49,53 +50,57 @@ Quelle: [www.evangelicaloutreach.org/sabbath6facts.htm](http://gesundelehre.tk/f
 ![Sabbat](../files/pictures/redball.gif) Das sechste, siebte, achte, neunte und zehnte Gebot wurden in Röm 13,8-10; Mt 19,18; Gal 5,14; 1. Kor6,9-10 und Gal5,19-21 wieder eingesetzt.
 </span>
 
-Sometimes Heb. 4:4 and 4:9,10 are thought to show the sabbath command was reinstated in the NT merely because the word "sabbath" is found. Let's look at this passage:
+Machmal wird von Heb. 4,4 und 4,9-10 gedacht, dass sie zeigen, dass das Sabbatgebot im NT wiedereingeführt wurde, lediglich weil das Wort "Sabbat" darin vorkommt. Lass uns einmal einen Blick auf jenen Abschnitt werfen:
 
-> For somewhere he has spoken about the seventh day in these words: "And on the seventh day God rested from all his work." And again in the passage above he says, "They shall never enter my rest." It still remains that some will enter that rest, and those who formerly had the gospel preached to them did not go in, because of their disobedience. Therefore God again set a certain day, calling it Today, when a long time later he spoke through David, as was said before: "Today, if you hear his voice, do not harden your hearts." For if Joshua had given them rest, God would not have spoken later about another day. There remains, then, a Sabbath-rest for the people of God; for anyone who enters God's rest also rests from his own work, just as God did from his (Heb. 4:4-10).
+> Und doch waren die Werke seit Grundlegung der Welt beendigt; denn er hat irgendwo von dem siebenten [Tag] also gesprochen: «Und Gott ruhte am siebenten Tag von allen seinen Werken», und in dieser Stelle wiederum: «Sie sollen nicht in meine Ruhe eingehen!» Da nun noch vorbehalten bleibt, daß etliche in sie eingehen sollen, und die, welchen zuerst die gute Botschaft verkündigt worden ist, wegen ihres Ungehorsams nicht eingegangen sind, so bestimmt er wiederum einen Tag, ein «Heute», indem er nach so langer Zeit durch David sagt, wie schon angeführt: «Heute, wenn ihr seine Stimme hören werdet, so verstocket eure Herzen nicht!» Denn hätte Josua sie zur Ruhe gebracht, so würde nicht hernach von einem anderen Tage gesprochen. Also bleibt dem Volke Gottes noch eine Sabbatruhe vorbehalten; denn wer in seine Ruhe eingegangen ist, der ruht auch selbst von seinen Werken, gleichwie Gott von den seinigen. (Heb 4,4-10; Schlachterbibel 1951)
 
 Bitte beachte: Der Absatz erwähnt nur eine "Sabbatruhe" aber **nicht** das _Halten_ des Sabbats, wie Israel im Alten Testament befohlen wurde. Ausserdem kann diese "Sabbatruhe" **nicht** mit dem Halten des Samstag Sabbats gleichgestellt werden, da selbst die Iraeliten, die ihn hielten, nicht in diese "Ruhe" eingingen. Ein Christ findet seine geistliche Ruhe in Christus (Mt 11,28). **Nur** das 4te Gebot, welches nicht moralisch sondern zeremoniell ist, wurde im Neuen Testament, dem Bund unter dem wir heutzutage sind, **nicht** wieder eingesetzt.
 
+
 ## 2. Das Samstags Sabbat Gebot war ein Denkmal/Gedenktag/Memorial
 
-[![Sabbatarier](../files/pictures/sabbatarians.jpg "The Saturday Sabbatarians are stuck on the sabbath command in VIOLATION to scripture!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternaltorment.html)
+[![Sabbatarier](../files/pictures/sabbatarians.jpg "Die Samstags Sabbatarier klemmen fest am Sabbat Gebot in MISSACHTUNG zur Bibel!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternaltorment.html)
 
-The Saturday Sabbath command was given soon after the Israelites were delivered by Moses. Read of the crossing of the Red Sea in Exodus 14\. The point of Exodus 19:1 was just three months after they left Egypt, with Exodus 20 (when the Ten Commandments were given) coming soon thereafter.
+Das Samstags Sabbat Gebot, kurz nachdem die Israeliten durch Mose befreit wurden. Lies von der Durchquerung des Roten Meeres in 2. Mose 14. Der Punkt von 2. Mose 19,1 war nur drei Monate, nachdem sie Ägypten verlassen hatten, mit 2. Mose 20 (wo die Zehn Gebote gegeben wurden) kurz danach kommend.
 
-Exodus 20:1-17 is repeated in Deut. 5:6-21, where Moses expounds upon WHY it came and to WHOM the Sabbath command was given.
+2. Mose 20,1-17 wird wiederholt in 5. Mose 5,6-21, wo Mose erklärt, WARUM es kam und WEM das Sabbatgebot gegeben wurde.
 
-> "Remember that you were slaves in Egypt and that the LORD your God brought you out of there with a mighty hand and an outstretched arm. Therefore the LORD your **God has commanded you** to observe the Sabbath day" (Deut. 5:15).
+> "Denn du sollst gedenken, daß du auch Knecht in Ägyptenland warst, und der HERR, dein Gott, dich von dannen ausgeführet hat mit einer mächtigen Hand und ausgerecktem Arm. Darum **hat dir** der HERR, dein **Gott, geboten**, daß du den Sabbattag halten sollst." (5. Mose 5,15; Luther 1545)
 
-As Passover was an **annual** memorial festival for the Jews to celebrate in memory of God, who passed over the houses of the Israelites in Egypt while the firstborn of the Egyptians were struck dead (Ex. 12:14-30), the Saturday Sabbath was also for the Jews to remember **weekly** their historical deliverance from bitter **[slavery](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/slave.htm)** in Egypt, Deut. 5:15\. The Saturday Sabbath command, therefore, was not a "creation ordinance" as some say, according to Deut. 5:15\. Also consider the following:
+Gleichwie Passah eine **jährliche** Gedenkfeier für die Juden war, welches in Andenken an Gott zu feiern war, welcher über die Häuser der Israeliten in Ägypten hinweggegangen war, während der Erstgeborene der Ägypter totgeschlagen wurde (2. Mose 12,14-30), so war auch der Samstags Sabbat für die Juden, um **wöchentlich** ihrer historischen Befreiung aus der bitteren **[Sklaverei](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/slave.htm)** in Ägypten zu gedenken, 5.Mose 5:15\. Das Samstags-Sabbat Gebot war daher laut 5. Mose 5,15 keine "Schöpfungs-Verordnung", wie einige sagen. Beachte auch das folgende:
 
-> "**The Israelites are to observe the Sabbath**, celebrating it for the generations to come as a lasting covenant. **It will be a sign between me and the Israelites forever**, for in six days the LORD made the heavens and the earth, and on the seventh day he abstained from work and rested" (Exo 31:16,17).
+> "**Darum sollen die Kinder Israel den Sabbat halten**, daß sie ihn auch bei ihren Nachkommen halten zum ewigen Bunde. **Er ist ein ewig Zeichen zwischen mir und den Kindern Israel.** Denn in sechs Tagen machte der HERR Himmel und Erde; aber am siebenten Tage ruhete er und erquickte sich." (2. Mose 31,16-17; Luther 1545)
+
 
 ## 3. Christen ist es erlaubt sich selbst für einen Speziellen Tag zu entschliessen
 
 [![Sabbatarier](../files/pictures/sabbatarian-death-blow.jpg "Die Samstags Sabbatarier werden mächtig durch den Herrn Jesu widerlegt!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sabbath.htm)
 
-> "One man considers one day more sacred than another; another man considers every day alike. Each one should be fully convinced in his own mind. He who regards one day as special, does so to the Lord ...." (Rom. 14:5,6).
+> "Dieser achtet einen Tag höher als den andern, jener hält alle Tage gleich; ein jeglicher sei seiner Meinung gewiß! Wer auf den Tag schaut, schaut darauf für den Herrn, und wer nicht auf den Tag schaut, schaut nicht darauf für den Herrn..." (Röm 14,5-6; Schlachterbibel 1951)
 
-**If the Saturday Sabbath command was still enforced today, as in the Old Testament, such "liberty" would NEVER be allowed! Can you imagine such Christian "liberty" in setting up idols, committing adultery or stealing? Since the latter are clear commands (no idolatry, no adultery, no stealing), there is no such "liberty" regarding these matters, in contrast to a special weekly day to the Lord. Also remember, when Paul gave us Romans 14, he knew about Gen. 2:3 and the rest of the Old Testament. Among Saturday sabbatarians there does NOT exist this Christian liberty!**
+**Falls das Samstags Sabbat Gebot heutzutage immer noch in Kraft wäre, wie im Alten Testament, so wäre solche "Freiheit" NIEMALS erlaubt! Kannst du dir solche christliche "Freiheit" vorstellen im Aufstellen von Götzen, im Begehen von Ehebruch oder Diebstahl? Da die Letzteren klare Gebote sind (kein Götzendienst, kein Ehebruch, kein Diebstahl), gibt es diesbezüglich keine solche "Freiheit", im Gegensatz zu einem speziellen wöchentlichen Tag für den Herrn. Denke auch daran, als Paulus uns Römer 14 gab, wusste er um 1. Mose 2,3 und den Rest des Alten Testamentes. Unter Samstags Sabbatariern existiert diese christliche Freiheit NICHT!**
 
-Col. 2:16,17 adds to all this by saying:
+Kol. 2,16-17 setzt dem allem noch hinzu, indem es dort heisst:
 
-> "Therefore do not let anyone judge you by what you eat or drink or with regard to a religious festival, a new moon celebration or **a Sabbath day**. These are a shadow of the things that were to come; the reality, however, is found in Christ."
+> "So richte euch nun niemand über Speise oder Trank, oder in Ansehung eines Festes oder Neumondes oder **von Sabbathen**, die ein Schatten der zukünftigen Dinge sind, der Körper aber ist Christi." (elb1905)
 
-If it is true, as some say, that the pope changed the Sabbath from Saturday to Sunday, then why did first-century Christians sometimes meet on Sunday?
+Falls es wahr ist, wie manche sagen, dass der Papst den Sabbat vom Samstag auf den Sonntag änderte, warum trafen sich die Christen des ersten Jahrhunderts dann manchmal am Sonntag?
 
-> On the **first day of the week** we came together to break bread. Paul spoke to the people and, because he intended to leave the next day, kept on talking until midnight (Acts 20:7).
+> Am **ersten Tage der Woche** aber, als wir versammelt waren, um das Brot zu brechen, unterredete sich Paulus mit ihnen, da er am folgenden Tage abreisen wollte, und dehnte die Rede bis Mitternacht aus. (Apg 20,7, Schlachterbibel 1951)
 
-> On the **first day of every week,** each one of you should set aside a sum of money in keeping with his income, saving it up, so that when I come no collections will have to be made (1 Cor. 16:2).
+> An **jedem ersten Wochentag** lege ein jeder unter euch etwas beiseite und sammle, je nachdem es ihm wohl geht; damit nicht erst dann, wenn ich komme, die Sammlungen gemacht werden müssen. (1. Kor 16,2; Schlachterbibel 1951)
+
 
 ## 4. Die Heidenchristen wurden NICHT darüber informiert, den Samstags Sabbat zu halten
 
 [![Sabbatarier](../files/pictures/question-for-sabbatarians.jpg "Sabbatarier und ihr Sabbat ist NICHT Neutestamentliche Wahrheit für heutzutage!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/saturdaysabbath.html)
 
-In Apg 15, dem ersten Kirchenkonzil das bezüglich einer falschen Lehre dieser Tage berufen wurde:
+In Apg 15 wurde das erste Kirchenkonzil bezüglich einer falschen Lehre von dazumals einberufen:
 
-> "Unless you are circumcised, according to the custom taught by Moses, you cannot be saved," verse 1.
+> "Wenn ihr euch nicht nach dem Gebrauche Moses beschneiden lasset, so könnt ihr nicht gerettet werden!" Vers 1, Schlachterbibel1951
 
-When the Lord's apostles wrote their decision about circumcision for the Gentile Christians to read (Acts 15:23-29), their silence about the observance of the Jewish Sabbath is significant, especially when we consider that breaking the Saturday Sabbath command in the Old Testament carried with it very serious consequences, including the death sentence for offenders (Exo. 31:14-17 cf. Num. 15:32-36):
+Als die Apostel des Herrn ihre Entscheidung bezüglich der Beschneidung der Heidenchristen zum Lesen schrieben (Apg 15,23-29), so ist ihr Schweigen bezüglich dem Halten des jüdischen Sabbat bedeutsam, speziell, wenn wir in Betracht ziehen, dass das Brechen des Samstags-Sabbat Gebotes im Alten Testament schwerwiegende Konsequenzen nach sich zog, inklusive der Todesstrafe für Straftäter. (2. Mose 31,14-17 vgl. 4. Mose 15,32-36):
+
 
 ## 5. Der Wahre Zweck der ganzen Zehn Gebote
 
@@ -105,27 +110,28 @@ When the Lord's apostles wrote their decision about circumcision for the Gentile
 
 ## [Der Fokus Der Bibel Ist Auf JESUS - Nicht Dem _Sabbatgebot_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Jesusfocus.html)
 
+
 ## 6\. Verlangte der Herr Jesus von einer Person, am Sabbat zu Sündigen?
 
-> "Sir," the invalid replied, "I have no one to help me into the pool when the water is stirred. While I am trying to get in, someone else goes down ahead of me." Then Jesus said to him, **"Get up! Pick up your mat and walk."** At once the man was cured; he picked up his mat and walked. The day on which this took place was a **Sabbath**, and so the **Jews said to the man who had been healed, "It is the Sabbath; the law forbids you to carry your mat**." But he replied, "**The man who made me well said to me, 'Pick up your mat and walk'** " (John 5:7-11).
+> "Der Kranke antwortete ihm: Herr, ich habe keinen Menschen, daß er mich, wenn das Wasser bewegt worden ist, in den Teich werfe; indem ich aber komme, steigt ein anderer vor mir hinab. Jesus spricht zu ihm: **Stehe auf, nimm dein Bett auf und wandle!** Und alsbald ward der Mensch gesund und nahm sein Bett auf und wandelte. Es war aber an jenem Tage **Sabbath**. **Es sagten nun die Juden zu dem Geheilten: Es ist Sabbath, es ist dir nicht erlaubt, das Bett zu tragen.** Er antwortete ihnen: **Der mich gesund machte, der sagte zu mir: Nimm dein Bett auf und wandle.**" (Johannes 5,7-11; elb1905)
 
 Der Herr Jesus befahl diesem Invaliden/Kranken, an einem Sabbat, seine Matte zu nehmen und mit ihr zu gehen, um geheilt zu werden. Daher würde dies "Arbeit" ausmachen, laut dem Alttestamentlichen Sabbat Gebot. Da der Herr des Sabbats NIEMALS einer Person befehlen könnte, zu sündigen, wissen wir dadurch, dass Christen heutzutage NICHT unter demselben Sabbatgebot sind, wie Israel in 2. Mose 20,8-11 gegeben wurde, welches wie folgt lautet:
 
-> "Remember the Sabbath day by keeping it holy. Six days you shall labor and do all your work, but the seventh day is a Sabbath to the LORD your God. **On it you shall not do any work**, neither you, nor your son or daughter, nor your manservant or maidservant, nor your animals, nor the alien within your gates. For in six days the LORD made the heavens and the earth, the sea, and all that is in them, but he rested on the seventh day. Therefore the LORD blessed the Sabbath day and made it holy (Ex. 20:8-11).
+> "Gedenke des Sabbattages, daß du ihn heiligest! Sechs Tage sollst du arbeiten und alle deine Werke verrichten; aber am siebenten Tag ist der Sabbat des HERRN, deines Gottes; **da sollst du kein Werk tun**; weder du, noch dein Sohn, noch deine Tochter, noch dein Knecht, noch deine Magd, noch dein Vieh, noch dein Fremdling, der in deinen Toren ist. Denn in sechs Tagen hat der HERR Himmel und Erde gemacht, und das Meer und alles, was darinnen ist, und ruhte am siebenten Tag; darum segnete der HERR den Sabbattag und heiligte ihn." (2. Mose 20,8-11; Schlachterbibel 1951)
 
 Nochmals, was der Herr Jesus dem Mann zu tun befahl, war am Sabbat verboten zu tun, wie die Juden korrekterweise feststellten:
 
-> "The day on which this took place was a **Sabbath**, and so the **Jews said to the man who had been healed, "It is the Sabbath; the law forbids you to carry your mat" (John 5:9,10)**.
+> "Und alsobald ward der Mensch gesund und hob sein Bett auf und wandelte. Es war aber **Sabbat** an demselben Tage. Nun **sprachen die Juden zu dem Geheilten: Es ist Sabbat; es ist dir nicht erlaubt, das Bett zu tragen."** (**Johannes 5,9-10**; Schlachter 1905)
 
 Hier ist die genaue Schriftstelle, wo solches verboten wurde:
 
-> "This is what the LORD says: **Be careful not to carry a load on the Sabbath day** or bring it through the gates of Jerusalem. Do not bring a load out of your houses or **do any work on the Sabbath**, but keep the Sabbath day holy, as I commanded your forefathers. Yet they did not listen or pay attention; they were stiff-necked and would not listen or respond to discipline. But if you are careful to **[obey](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/obey.html)** me, declares the LORD, and bring no load through the gates of this city on the Sabbath, but **keep the Sabbath day holy by not doing any work on it" (Jer. 17:21-24).**
+> "So spricht Jahwe: **Hütet euch bei euren Seelen, und traget keine Last am Sabbathtage**, daß ihr sie durch die Tore Jerusalems hereinbringet! Und ihr sollt am Sabbathtage keine Last aus euren Häusern hinausbringen, und **sollt keinerlei Arbeit tun**; sondern heiliget den Sabbathtag, wie ich euren Vätern geboten habe. Aber sie haben nicht gehört und ihr Ohr nicht geneigt, und sie haben ihren Nacken verhärtet, um nicht zu hören und Zucht nicht anzunehmen. Und es wird geschehen, wenn ihr fleißig **[auf mich höret](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/obey.html)**, spricht Jahwe, daß ihr am Sabbathtage keine Last durch die Tore dieser Stadt hereinbringet, und **daß ihr den Sabbathtag heiliget, indem ihr keinerlei Arbeit an demselben tut:**" (**Jer 17,21-24**; elb1905)
 
 **Die Juden hatten Recht, dass das Gesetz, welches Israel gegeben wurde, nämlich den Sabbattag heilig zu halten solches zu tun verbot. Daher, kann das AT Sabbatgebot nicht länger für Christen gültig sein.** Wann also änderte sich dies? Die Antwort findet sich in Lk 16,16:
 
-> "**The Law and the Prophets were proclaimed until John**. Since that time, the good news of the kingdom of God is being preached, and everyone is forcing his way into it."
+> "**Das Gesetz und die Propheten waren bis auf Johannes;** von da an wird das Evangelium des Reiches Gottes verkündigt, und jeder dringt mit Gewalt hinein." (elb1905)
 
-**This is also the reason why we don't see this part of the 10 commandments reinstated in the New Testament. This point cannot be answered by the SDA people.**
+**Dies ist auch der Grund, warum wir diesen Teil der 10 Gebote nicht wieder in Kraft gesetzt sehen im Neuen Testament. Dieser Punkt kann von den STA-Leuten nicht beantwortet werden.**
 
 
 ## Sabbatarier Halten Den Samstags Sabbat Nicht
@@ -134,7 +140,7 @@ Samstags Sabbatarier behaupten, das Sabbatgebot, wie es Israel gegeben wurde, zu
 
 **(A) Im AT, als dieses Gebot Israel gegeben wurde und geltend gemacht wurde, mussten Leute für das entweihen des Sabbats hingerichtet werden (2. Mose 31,14-15):**
 
-> "Observe the Sabbath, because it is holy to you. Anyone who desecrates it **must be put to death**; whoever does any work on that day must be cut off from his people. For six days, work is to be done, but the seventh day is a Sabbath of rest, holy to the LORD. **Whoever does any work on the Sabbath day must be put to death**. The **Israelites** are to observe the Sabbath, celebrating it for the generations to come as a lasting covenant. It will be a sign **between me and the Israelites** forever, for in six days the LORD made the heavens and the earth, and on the seventh day he abstained from work and rested" (Exo. 31:14-17).
+> "Darum so haltet meinen Sabbat; denn er soll euch heilig sein. Wer ihn entheiliget, der **soll des Todes sterben**, Denn wer eine Arbeit darinnen tut, des Seele soll ausgerottet werden von seinem Volk. Sechs Tage soll man arbeiten; aber am siebenten Tage ist Sabbat, die heilige Ruhe des HERRN. **Wer eine Arbeit tut am Sabbattage, soll des Todes sterben**. Darum sollen die **Kinder Israel** den Sabbat halten, daß sie ihn auch bei ihren Nachkommen halten zum ewigen Bunde. Er ist ein ewig Zeichen **zwischen mir und den Kindern Israel**. Denn in sechs Tagen machte der HERR Himmel und Erde; aber am siebenten Tage ruhete er und erquickte sich." (2. Mose 31,14-17; Luther 1545)
 
 Jemand wurde hingerichtet, dafür dass er dieses Gebot brach. (4. Mose 15,32-36). **Dieselben also (Israel), die den Sabbat hielten, mussten auch Sabbatübertreter hinrichten. Sabbatarier tun dies NICHT!**
 
@@ -146,9 +152,9 @@ Falls deine Heizung im Winter automatisch durch deinen Ofen ist, brichst du dies
 
 **(C) An "JEDEM Sabbat" muss ein Brandopfer gemacht werden:**
 
-> "On the Sabbath day, make an offering of two lambs a year old without defect, together with its drink offering and a grain offering of two-tenths of an ephah of fine flour mixed with oil. This is the burnt offering **for every Sabbath**, in addition to the regular burnt offering and its drink offering" (Num. 28:9,10).
+> "Und am Sabbathtage zwei einjährige Lämmer ohne Fehl, und als Speisopfer zwei Zehntel Feinmehl, gemengt mit Öl, und sein Trankopfer. Es ist das Brandopfer des Sabbaths **an jedem Sabbath** nebst dem beständigen Brandopfer und seinem Trankopfer." (4. Mose 28,9-10; elb1905)
 
-**Dieses AT Gebot für Sabbathalter ist ganz klar verboten unter dem Neuen Bund im Lichte des Briefes an die Hebräer. Die [frühen Christen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html) taten dies nicht und hielten deshalb nicht das Samstags Sabbat Gebot wie Israel (2. Mose. 20,8-11 vgl. 4. Mose. 28,9-10).**
+**Dieses AT Gebot ist für Sabbathalter unter dem Neuen Bund im Lichte des Briefes an die Hebräer ganz klar verboten. Die [frühen Christen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html) taten dies nicht und hielten deshalb nicht das Samstags Sabbat Gebot wie Israel (2. Mose. 20,8-11 vgl. 4. Mose. 28,9-10).**
 
 ## [Weisst Du Bescheid Um Das KOMISCHE _Malzeichen Des Tieres_ Der Sabbatarier](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sdamark.html)
 
@@ -163,20 +169,20 @@ Falls deine Heizung im Winter automatisch durch deinen Ofen ist, brichst du dies
 
 Des Weiteren wird der Plan der Errettung prägnant in der Bibel beschrieben als **Busse zu Gott und Glauben an Jesus Christus (Apg 20,21).** Wir müssen Frucht hervorbringen, die der Busse würdig ist (Matt. 3,8) und unsere **[Busse](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html)** durch unsere Taten beweisen (Apg 26,20). **"Busse zu tun" heisst, sich von seinen bösen Wegen abzuwenden (Mt. 12,41 vgl. Jonah 3,10).** Jeder Baum, der nicht **[gute Frucht hervorbringt, wird abgehauen und ins Feuer geworfen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/fruit-or-fire.htm)** (Mt. 3,10; 7,19). Der Herr Jesus lehrte auch, dass der Weg zum Leben **"schmal" [_engl. "hard", direktübersetzt "hart"_]** ist und nur **"wenige"** ihn finden werden (Mt. 7,13-14, NKJV). **Der Herr verkündete, dass es NUR 2 Pforten, 2 Wege, 2 Gruppen von Leuten und 2 ewige Schicksale gibt. Folge also nicht der Masse, da sie auf ihrem Weg zum ewigen Feuer sind, obwohl sie es vielleicht nicht wissen.**
 
-Zudem werden viele gerettet, fallen jedoch im Nachhinein ab (Lk8,13; Joh6,66; 1Tim1,19; etc.). Mit andern Worten, **nach anfänglicher Errettung muss man bist zum "Ende" durchhalten, um ins Königreich Gottes zu Kommen und dem Feuersee zu entfliehen (Mt10,22; Heb3,14; Off2,10-11).** Ewiges Leben comes to the repentant the moment such believe on Jesus for salvation (Jn. 3:16; 6:47; 1 Jn. 5:12,13), aber es gibt einen andern wichtigen Aspekt des ewigen Lebens worüber viele heutzutage in gänzlicher Unwissenheit sind aufgrund einer falschen Lehre welche gewöhnlicherweise "einmal gerettet, immer gerettet" genannt wird. Laut wahrer, biblischer Gnadenlehre ist **[ewiges Leben](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternallife.html) auch eine HOFFNUNG** (Titus 3,7), **welche noch zu ERNTEN ist** (Gal. 6,8-9) **im ZUKÜNFTIGEN ZEITALTER** (Mk. 10,30) **und nur für diejenigen, welche BEHARRENT IM TUN DES GUTEN** (Rom. 2:7) und **NICHT MATT WERDEN UND AUFGEBEN** (Gal. 6,9).
+Zudem werden viele gerettet, fallen jedoch im Nachhinein ab (Lk8,13; Joh6,66; 1Tim1,19; etc.). Mit andern Worten, **nach anfänglicher Errettung muss man bist zum "Ende" durchhalten, um ins Königreich Gottes zu Kommen und dem Feuersee zu entfliehen (Mt10,22; Heb3,14; Off2,10-11).** Ewiges Leben kommt zum Bussfertigen, in dem Moment, da er an Jesus für seine Errettung glaubt (Joh. 3,16; 6,47; 1 Joh. 5,12-13), aber es gibt einen andern wichtigen Aspekt des ewigen Lebens worüber viele heutzutage in gänzlicher Unwissenheit sind aufgrund einer falschen Lehre welche gewöhnlicherweise "einmal gerettet, immer gerettet" genannt wird. Laut wahrer, biblischer Gnadenlehre ist **[ewiges Leben](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternallife.html) auch eine HOFFNUNG** (Titus 3,7), **welche noch zu ERNTEN ist** (Gal. 6,8-9) **im ZUKÜNFTIGEN ZEITALTER** (Mk. 10,30) **und nur für diejenigen, welche BEHARRENT IM TUN DES GUTEN** (Rom. 2:7) und **NICHT MATT WERDEN UND AUFGEBEN** (Gal. 6,9).
 
-Also, remember this: If a saved person sows to please his **[sinful nature](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sinful-nature.htm) he'll die spiritually** (Rom. 8:13; Gal. 6:8,9). The **[prodigal](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.html)** is a clear example of this (Lk. 15:24,32). **The end result of sin is spiritual death. DO NOT BE DECEIVED by the "once saved, always saved" teachers (James 1:14-16).** We **must** continue to believe (TRUST) on Jesus for our soul's salvation to enter the Kingdom of God. Jesus described his "sheep" as his "followers" (John 10:27). James stated that faith without works is **"dead"** (James 2:17). In conclusion, Jesus successfully destroyed the devil's work (1 John 3:8). He is the resurrected "Lord of glory" (1 Cor. 2:8), before whom every knee will bow and every tongue confess that he is Lord (Phil. 2:9-11). Jesus has the ONLY name in which salvation is found (Acts 4:12), is the ONLY mediator between God and man (1 Tim. 2:5) and is the judge of the living and the dead (Acts 10:42; 2 Tim. 4:1; 1 Pet. 4:5). We are advised in Scripture to **go directly to Him for forgiveness and to TRUST in Him alone** for our soul's salvation.
+Präge dir auch ein: Falls eine gerettete Person auf sein **[Fleisch sät](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sinful-nature.htm), so wird sie geistlich sterben** (Röm. 8,13; Gal. 6,8-9). Der **[verschwenderische Sohn](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.html)** ist ein deutliches Beispiel hierfür (Lk. 15,24,32). **Das Endresultat von Sünde ist geistlicher Tod. WERDE NICHT IRREGEFÜHRT durch die "Einmal Gerettet, Immer Gerettet" Lehrer (Jakobus 1,14-16).** Wir **müssen** continue an Jesus zu glauben (auf ihn VERTRAUEN) zur Errettung unserer Seele, um ins Königreich Gottes zu kommen. Jesus beschrieb seine "Schafe" als seine "Nachfolger" (Johannes 10,27). Jakobus besagte, dass Glaube ohne Werke **"tot"** ist (Jakobus 2,17). Abschliessend, Jesus zerstörte des Teufels Werk erfolgreich (1 Johannes 3,8). Er ist der auferstandene "Herr der Herrlichkeit" (1 Kor. 2,8), vor dem jedes Knie sich beugen wird und jede Zunge bekennen wird, dass er Herr ist (Phil. 2,9-11). Jesus hat den EINZIGEN Namen, in welchem Heil/Errettung zu finden ist (Apg 4,12), ist der EINZIGE Mittler zwischen Gott und den Menschen (1 Tim. 2,5) und ist der Richter der Lebendigen und der Toten (Apg 10,42; 2 Tim. 4,1; 1 Petr. 4,5). Uns wird in der Schrift geraten, **direkt zu Ihm zu gehen für Vergebung und Ihm allein zu VERTRAUEN** für unserer Seelen Errettung.
 
 
 ## Ellen G. White und Ihr Sabbat
 
-**No offense intended, but if you are a Seventh Day Adventist, did you know that [Ellen G. White](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/white.html) was a false prophetess, plagiarist and [false teacher](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)?** Her strange teaching that Christ entered the heavenly sanctuary in 1844 to perform _investigative judgment_ is a clear denial of the finality of the atonement on the cross. See Jn. 19:30\. Also, for her to teach _Satan is the sin bearer_ is a clear **[contradiction of Scripture](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/distortion.htm)** (Isa. 53:6; 2 Cor. 5:21; 1 Pet. 2:24). Both of these false teachings disseminated by false prophetess Ellen G. White can be found in her book, _The Great Controversy_ page 422 published by Pacific Press, Mountain View, CA, 1950.
+**Keine Beleidigung beabsichtigt, aber falls du ein Siebenten-Tags-Adventist bist, wusstest du, dass [Ellen G. White](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/white.html) eine falsche Prophetin, eine Plagiatorin und [falsche Lehrerin/Irrlehrerin](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm) war?** Ihre seltsame Lehre, dass Christus im 1844 ins himmlische Heiligtum eintrat, um _investigative judgment_  perform, ist eine klare Leugnung der Endgültigkeit des Sühneopfers am Kreuz. Siehe Joh. 19,30\. Auch, dass sie lehrt, dass _Satan der Sündenträger sei_ ist ein klarer **[Widerspruch zur Bibel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/distortion.htm)** (Jes. 53,6; 2 Kor. 5,21; 1 Petr. 2,24). Beide dieser falschen Lehrer die von der falschen Prophetin Ellen G. White verbreitet wurden, können in ihrem Buch, _The Great Controversy_ Seite 422 erschienen bei Pacific Press, Mountain View, CA, 1950 gefunden werden.
 
 ![Sabbat Samstag Sabbathalter STA](../files/pictures/a-colorb.gif)
 
-- [Hielten die frühen Christen einen Samstagssabbat bis Konstantin?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/saturdaysabbath.html)
-- [Jesaja 66,22-34 Ist Kein Solides Samstags-Sabbat Argument](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/isa662223sabbath.html)
-- [Ellen G. White Tatsachen Blatt](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/white.html)
+- [Hielten die frühen Christen einen Samstagssabbat bis Konstantin?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/saturdaysabbath.html)  
+- [Jesaja 66,22-34 Ist Kein Solides Samstags-Sabbat Argument](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/isa662223sabbath.html)  
+- [Ellen G. White Tatsachen Blatt](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/white.html)  
 - [Die Bösen Toten - Werden Sie Vernichtung oder Ewige Qual Erfahren?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternaltorment.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
@@ -186,4 +192,4 @@ Also, remember this: If a saved person sows to please his **[sinful nature](http
 **www.EvangelicalOutreach.org**  
 **www.EternalLifeBlog.com**
 
-**[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+**[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**

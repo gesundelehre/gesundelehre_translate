@@ -136,9 +136,9 @@ It is also commonly believed, because of faulty teaching, that the word "for" as
 
 NOTE: Peter spoke of forgiveness of sins two other times besides Acts 2:38 without mentioning baptism:
 
-> **Repent, then, and turn to God, so that your sins may be wiped out,** that times of refreshing may come from the Lord, (Acts 3:19)
+> **So tut nun Buße und bekehret euch, daß eure Sünden ausgetilgt werden,** damit Zeiten der Erquickung kommen vom Angesicht des Herrn, (Apg 3,19; elb1905)
 
-> All the prophets testify about him that **everyone who believes in him receives forgiveness of sins through his name."** (Acts 10:43)
+> Diesem geben alle Propheten Zeugnis, daß **jeder, der an ihn glaubt, Vergebung der Sünden empfängt durch seinen Namen.** (Apg 10,43; elb1905)
 
 **Those substantiating truths also helps us better understand what Peter taught about forgiveness of sin, yet clearly without baptism.**
 
@@ -253,15 +253,15 @@ Father in Heaven, humbly I ask you to have MERCY ON ME A SINNER (Luke 18:13). I 
 
 ![are you saved at Baptism does baptism save](../../files/pictures/a-colorb.gif)
 
-**OTHER TOPICS:**
+**WEITERE THEMEN:**
 
 - **[Skull And Crossbones Awards For False Prophets And False Teachers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Skull_And_Crossbones.html)**
 
-- **[Christian Life](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)**
+- **[Christliches Leben](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)**
 
-- **[The Rosary and The Born Again Catholic](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/rosary.html)**
+- **[Der Rosenkranz und Der Wiedergeborene Katholik](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/rosary.html)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

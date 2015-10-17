@@ -1,4 +1,4 @@
-<!--t Joseph Smith, Jr - in Arbeit (0% übersetzt) t-->
+<!--t Joseph Smith, Jr (98% übersetzt) t-->
 <!--d d-->
 
 Joseph Smith, Jr
@@ -21,82 +21,82 @@ Quelle: [www.evangelicaloutreach.org/mormons.htm](http://gesundelehre.tk/forward
 ![joseph smith jr](../../files/pictures/013.gif "joseph smith jr")
 
 
-## A. Joseph Smith, Jr. Was A False Prophet (Deut. 18:21,22).
+## A. Joseph Smith, Jr. War Ein Falscher Prophet (Deut. 18:21,22).
 
-[![Joseph Smith Jr. Was A False Prophet](../../files/pictures/joseph-smith-jr.jpg "Joseph Smith Jr. was a false prophet and HERETIC.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)
+[![Joseph Smith Jr. War Ein Falscher Prophet](../../files/pictures/joseph-smith-jr.jpg "Joseph Smith Jr. war ein falscher Prophet und KETZER.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)
 
-1\. On **Feb. 14, 1835** he said, "... go forth to prune the vineyard for the last time, or **the coming of the lord, which was nigh even fifty-six years should wind up the scene"** (History of the Church, Vol. 2, p. 182).
+1\. Am **14. Feb. 1835** sagte er, "... gehe hin um den Weinberg ein letztes Mal zu beschneiden, oder **das Kommen des Herrn, welches sechs-und-fünfzig Jahre nah war würde die Szene abschliessen"** (History of the Church, Vol. 2, Seite 182).
 
-**"On the 14th of Feb. 1835, Joseph Smith uaid [said] that God had revealed to him that the coming of Christ would be within 56 years, which added to 1835 shows that before 1891 and the 14th of Feb. the Savior of the world would make his appearance again upon the earth and the winding up scene take place"** (Journal of Oliver Boardman Huntington, Vol. 2, pp. 128,129).
+**"Am 14. Feb. 1835, uagte [sagte] Joseph Smith, dass Gott ihm offenbart habe, dass das Kommen Christi innerhalb von 56 Jahren wäre, was addiert zu 1835 zeigt, dass vor 1891 und dem 14. Feb. der Retter der Welt wieder auf der Erde erscheinen würde und die abschliessende Szene/Vorgang stattfinden würde"** (Journal of Oliver Boardman Huntington, Vol. 2, Seiten 128,129).
 
-[![joseph smith jr polygamy](../../files/pictures/joseph-smith-jr-polygamy.jpg "Joseph Smith Jr and his Mormonism LDS Church believed in polygamy.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html)
+[![joseph smith jr Polygamie](../../files/pictures/joseph-smith-jr-polygamy.jpg "Joseph Smith Jr und seine Mormonentum HLT Kirche glaubte an Polygamie.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html)
 
-2\. Joseph Smith, Jr. said the moon's inhabitants were of uniform height (about 6 ft. tall), dressed like Quakers and lived nearly 1,000 years (Journal of Oliver B. Huntington, Vol. 3, p. 166 of typed copy at Utah State Historical Society and The Young Woman's Journal, pub. by the Young Ladies' Mutual Improvement Associations of Zion, 1892, Vol. 3, pp. 263,264.)
+2\. Joseph Smith, Jr. sagte, dass die Bewohner des Mondes von einheitlicher Höhe wären (ungefähr 6 Fuss gross), gekleidet wie Quäker und nahezu 1'000 Jahre leben würden (Journal of Oliver B. Huntington, Vol. 3, p. 166 of typed copy at Utah State Historical Society and The Young Woman's Journal, pub. by the Young Ladies' Mutual Improvement Associations of Zion, 1892, Vol. 3, Seiten 263,264.)
 
-3\. Referring to Oliver Granger we read, "... his name shall be had in sacred remembrance from generation to generation, forever and ever, saith the Lord" (Doc. & Cov. 117:12.). WHY have **most Mormons never heard of Oliver Granger?**
+3\. Sich auf Oliver Granger beziehend lesen wir, "... Sein Name wird von Generation zu Generation in heiligem Andenken gehalten werden für immer und immer, spricht der Herr." (Lehre & Bündnisse 117,12.). WARUM haben **die Meisten Mormonen noch nie etwas gehört von Oliver Granger?**
 
-4\. On April 17, 1838, Joseph Smith Jr. prophesied that David W. Patten would perform a mission for him the next Spring (Doc. & Cov. 114:1). However, **David Patten died before Spring came!** See History of the Church, Vol. 3, p. 171, 10-25-38.
+4\. Am April 17, 1838, Joseph Smith Jr. prophezeihte, dass David W. Patten für ihn nächsten Frühling eine Mission ausführen würde (Lehre & Bündnisse 114,1). Allerdings **starb David Patten bevor der Frühling kam!** Siehe History of the Church, Vol. 3, Seite 171, 10-25-38.
 
-## [Mormons _Baptize For The Dead!_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptized-for-the-dead.htm)
-
-
-## B. Joseph Smith, Jr. Preached "Another Gospel" (Gal. 1:8,9).
-
-1\. Joseph Smith, Jr.'s gospel included water baptism (Doc. & Cov. 39:6). The Apostle Paul EXCLUDED baptism from the Gospel, 1 Cor. 1:17\. See also Acts 10 where **[Cornelius](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/cornelius.htm)** and others were saved BEFORE **[water baptism](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptism.html)**.
-
-2\. Joseph Smith, Jr., said "Nevertheless, he that repents and does the commandments of the Lord shall be forgiven," Doc. & Cov. 1:32\. 2 Nephi 25:23b also says, "...for we know that it is by grace that we are saved, AFTER ALL WE CAN DO." The Bible does say we must repent (Lk. 13:3; Acts 17:30; 20:21). James 2 teaches that a living faith (one that will save) will have works with it, as opposed to a "dead" faith which doesn't. Nonetheless, it's still our faith (or trust) in Christ that will save us from [**Hell**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html). See Acts 10:43; 13:38,39; 1 Cor 15:17 and Jn. 6:47\. Finally, Rom. 2:7 states, "To those who by **persistence in doing good** seek glory, honor and immortality, he will give [**eternal life**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternallife.html)."
-
-3\. **Joseph Smith, Jr. said, "Abraham received concubines, and they bore him children; and it was accounted unto him for righteousness ..." (Doc. & Cov. 132:37). In contrast, Paul, James and Moses all said that Abraham became righteous because he believed God! See Gal. 3:6; Rom. 4:3; James 2:23 and Gen. 15:6\. Who is wrong - Joseph Smith Jr or Paul, James and Moses?**
+## [Mormonen _Taufen Für Die Toten!_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptized-for-the-dead.htm)
 
 
-## C. Joseph Smith, Jr. Violated the Word of Wisdom (Doc. & Cov. 89).
+## B. Joseph Smith, Jr. Predigte "Ein Anderes Evangelium" (Gal. 1,8-9).
 
-1\. Joseph Smith, Jr. Drank Wine (History of the Church, Vol. 2, p. 369; Vol. 6, p. 616) and Beer (Millennial Star, Vol. 23, p. 720).
+1\. Joseph Smith, Jr.'s Evangelium beinhaltete Wassertaufe (Lehre & Bündnisse 39,6). Der Apostel Paulus SCHLOSS Taufe vom Evangelium AUS, 1 Kor. 1,17\. Siehe auch Apg 10 wo **[Kornelius](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/cornelius.htm)** und Andere VOR der **[Wassertaufe](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptism.html)** gerettet wurden.
 
-![Joseph Smith, Jr. Salt Lake City, Utah](../../files/pictures/joseph-smith-jr-stone.jpg "Stone portrait of Joseph Smith, Jr. in Salt Lake City, Utah.")
+2\. Joseph Smith, Jr., sagte "doch wer umkehrt und die Gebote des Herrn tut, dem wird vergeben werden" Lehre & Bündnisse 1,32\. 2 Nephi 25:23b also says, "... denn wir wissen, dass wir durch Gnade errettet werden, NACH ALLEM, WAS WIR TUN KÖNNEN." Die Bibel sagt, dass wir Busse tun müssen (Lk. 13,3; Apg 17,30; 20,21). Jakobus 2 lehrt, dass ein lebendiger Glaube (einer, der retten wird) Werke dabei hat, im Gegensatz zu "totem" Glauben welcher keine Werke dabei hat. Trotzdem ist es nach wie vor unser Glauben (oder Vertrauen) in Christus, welcher uns vor der [**Hölle**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html) retten wird. Siehe Apg 10,43; 13,38-39; 1. Kor. 15,17 und Joh. 6,47\. Schliesslich besagt Röm. 2,7: "denen, die **mit Ausharren in gutem Werke** Herrlichkeit und Ehre und Unverweslichkeit suchen, [wird Gott] [**ewiges Leben**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternallife.html) [geben]." (elb1905)
 
-
-## D. Joseph Smith, Jr. Contradicted the Book of Mormon (Moroni 8:18).
-
-1\. **"We have imagined and supposed that God was God from all eternity, I will refute that idea,** and take away the veil, so that you may see" (Teachings of the Prophet Joseph Smith, compiled by Joseph Fielding Smith, p. 345).
-
-> For I know that God is not a partial God, **neither a changeable being; but he is unchangeable from all eternity to all eternity.** (Moroni 8:18)
-
-Joseph Smith, Jr. just refuted Moroni 8:18 in the Book of Mormon, but **[the Book of Mormon condemns Joseph Smith for polygamy](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html)**!
+3\. **Joseph Smith, Jr. sagte, "Abraham empfing aNebenfrauen, und diese gebaren ihm Kinder; und das wurde ihm als Rechtschaffenheit angerechnet ..." (Lehre & Bündnisse 132,37). Im Kontrast dazu sagten Paulus, Jakobus und Moses alle, dass Abraham gerecht wurde, da er Gott geglaubt hatte! Siehe Gal.3,6; Röm.4,3; Jakobus 2,23 und 1.Mose 15,6\. Wer irrt sich - Joseph Smith Jr oder Paulus, Jakobus und Moses?**
 
 
-## E. Joseph Smith, Jr. Was Proud and Boastful.
+## C. Joseph Smith, Jr. Brach/Übertrat das Wort der Weisheit (Lehre & Bündnisse 89).
 
-1\. "I have more to boast of than ever any man had. I am the only man that has ever been able to keep a whole church together since the days of Adam. A large majority of the whole have stood by me. Neither Paul, John, **[Peter](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/peter.html)** nor Jesus ever did it. I boast that no man ever did such a work as I. The followers of Jesus ran away from Him; but the **[Latter-day Saints](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html)** never ran away from me yet" (History of the Church, Vol. 6, pp. 408, 409). COMMENT: "God resisteth the proud" (1 Pet. 5:5).
+1\. Joseph Smith, Jr. Trank Wein (History of the Church, Vol. 2, Seite 369; Vol. 6, Seite 616) und Bier (Millennial Star, Vol. 23, Seite 720).
 
-
-## F. Joseph Smith, Jr. Claims he saw God the Father (Joseph Smith 2:17).
-
-1\. His experience is refuted by 1 Tim. 6:16; Jn. 5:37 and 1 Jn. 4:20\. Did you know that Satan can produce visions to deceive? See 2 Cor. 11:14, 15 and Jer. 14:14.
+![Joseph Smith, Jr. Salt Lake City, Utah](../../files/pictures/joseph-smith-jr-stone.jpg "Steinporträt von Joseph Smith, Jr. in Salt Lake City, Utah.")
 
 
-## G. Joseph Smith, Jr. Practiced **[Divination](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html)** (Deut. 18:9-14).
+## D. Joseph Smith, Jr. Widersprach dem Buch Mormon (Moroni 8:18).
 
-1\. The Book of Mormon was translated this way by the "seer stone" (An Address To All Believers In Christ, by David Whitmer, p. 12).
+1\. **"Wir haben uns eingebildet und angenommen, dass Gott von aller Ewigkeit her Gott war, Ich werde diese Idee widerlegen,** und den Schleier wegnehmen, sodass ihr sehen möget" (Teachings of the Prophet Joseph Smith, compiled by Joseph Fielding Smith, Seite 345).
+
+> Denn ich weiß, daß Gott kein parteiischer Gott ist, **auch kein veränderliches Wesen; sondern er ist unveränderlich von aller Ewigkeit bis in alle Ewigkeit.** (Moroni 8,18)
+
+Joseph Smith, Jr. widerlegte soeben Moroni 8,18 im Buch Mormon, aber **[das Buch Mormon verurteilt/verdammt Joseph Smith aufgrund Polygamie](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html)**!
 
 
-## H. Joseph Smith, Jr. Falsely said, "I am going like a lamb to the slaughter" (Doc. & Cov. 135:4).
+## E. Joseph Smith, Jr. War Stolz Prahlerisch.
 
-1\. Joseph Smith, Jr. killed at least two before he was shot to death (History of the Church, Vol. 7, pp. 100-103). A martyr doesn't offer resistance! See Stephen's death, Acts 7:54-60.
+1\. "Ich habe mehr zu prahlen, als irgendjemand anders jemals hatte. Ich bin der einzige Mann der jemals fähig war, eine gesamte Kirche zusammen zu halten seit den Tagen Adams. Eine grosse Mehrheit der Gesamtheit have stood by me. Weder Paulus, Johannes, **[Petrus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/peter.html)** noch Jesus machten/taten dies jemals. Ich prahle damit, dass kein Mann jemals solch ein Werk tat wie ich. Die Nachfolger von Jesus rannten von ihm weg; aber die **[Heiligen der Letzten Tage](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html)** rannten bislang nie von mir weg" (History of the Church, Vol. 6, Seiten 408, 409). KOMMENTAR: "Gott widersteht den Hochmütigen/Stolzen" (1 Petr. 5,5).
 
-![joseph smith jr](../../files/pictures/a-colorb.gif "joseph smith jr. false prophet")
 
-**OTHER TOPICS:**
+## F. Joseph Smith, Jr. Behauptet er sah Gott den Vater (Joseph Smith 2:17).
 
-- **[Should You Pray About The Book Of Mormon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon.htm)?**
+1\. Seine Erfahrung wird widerlegt durch 1 Tim. 6,16; Joh. 5,37 und 1. Joh. 4,20\. Wusstest du, dass Satan Visionen bewirken kann, um zu verführen? Siehe 2. Kor. 11,14-15 und Jer. 14,14.
 
-- **[LDS Beliefs](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsbeliefs.htm)**
 
-- **[Baptized For The Dead](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptized-for-the-dead.htm)**
+## G. Joseph Smith, Jr. Praktizierte **[Wahrsagerei](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html)** (Deut. 18:9-14).
 
-- **[Book of Mormon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html)**
+1\. Das Buch Mormon wurde auf diese Art und Weise übersetzt durch den "seer stone" (An Address To All Believers In Christ, by David Whitmer, Seite 12).
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+
+## H. Joseph Smith, Jr. sagte fälschlicherweise, "Ich gehe wie ein Lamm zur Schlachtbank" (Lehre & Bündnisse 135:4).
+
+1\. Joseph Smith, Jr. tötete mindestens zwei, bevor er selbst erschossen wurde (History of the Church, Vol. 7, Seiten 100-103). Ein Märtyrer leistet keinen Widerstand! Siehe Stephanus' Tod, Apg 7,54-60.
+
+![joseph smith jr](../../files/pictures/a-colorb.gif "joseph smith jr. falscher Prophet")
+
+**WEITERE THEMEN:**
+
+- **[Solltest Du Über Das Buch Mormon Beten](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon.htm)?**
+
+- **[HLT Glaubensvorstellungen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsbeliefs.htm)**
+
+- **[Getauft Für Die Toten](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptized-for-the-dead.htm)**
+
+- **[Das Buch Mormon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html)**
+
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

@@ -6,7 +6,7 @@ Die Wachturmgesellschaft
 - - - 
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/jws.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jws.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/zeugen-jehovas/die-wachturmgesellschaft.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Übersetzungsvorschläge können [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/zeugen-jehovas/die-wachturmgesellschaft.md) auf github gemacht werden.
 
 Quelle: [www.evangelicaloutreach.org/jws.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jws.htm)
 
@@ -121,59 +121,59 @@ Read Deut. 18:20-22 for questions 1-6\. (This is also the PROPHET TEST, accordin
 
 (1) According to Deut 18:20-22, what are the ONLY TWO CONSIDERATIONS GIVEN BY JEHOVAH to "KNOW" a true prophet from a false prophet? (v.22) (a) __________ (b) __________.
 
-NOTICE: There are only true prophets and false prophets. The Bible doesn't mention a third class being someone who "speaks as a prophet!"
+BEACHTE: Es gibt nur wahre Propheten und falsche Propheten. Die Bibel erwähnt keine dritte Klasse von Leuten, die "als Propheten sprechen"!
 
-(2) Is more than one false prophecy needed to identify a false prophet, when he speaks in the name of the LORD? ____YES ____NO.
+(2) Braucht es mehr als eine falsche Prophetie, um einen falschen Propheten zu identifizieren, falls er im Namen des HERRN spricht? ____JA ____NEIN.
 
-(3) Does admitting to the false prophecy ("mistake" as called by some) have anything to do with clearing someone from being a false prophet? (v.22) ____YES ____NO. (The _Watchtower Bible and Tract Society_ claims to admit their "mistakes" regarding dates. However, since they don't admit to their 1975 "mistake," are they telling the truth? ____YES ____NO.)
+(3) Does admitting to the false prophecy ("mistake" as called by some) have anything to do with clearing someone from being a false prophet? (v.22) ____JA ____NEIN. (The _Watchtower Bible and Tract Society_ claims to admit their "mistakes" regarding dates. However, since they don't admit to their 1975 "mistake," are they telling the truth? ____JA ____NEIN.)
 
-(4) Did Isaiah, Ezekiel, Jeremiah, Daniel, Amos, or any Bible prophet have to admit to any of their false prophecies? ____YES _____NO. Did they ever have to rely on Prov. 4:18, as The _Watchtower Bible and Tract Society_ tries to? ____YES ____NO.
+(4) Did Isaiah, Ezekiel, Jeremiah, Daniel, Amos, or any Bible prophet have to admit to any of their false prophecies? ____JA _____NEIN. Did they ever have to rely on Prov. 4:18, as The _Watchtower Bible and Tract Society_ tries to? ____JA ____NEIN.
 
-(5) Could Prov. 4:18 be a factor to consider to know a false prophet, since Jehovah gave only two considerations and this wasn't one of them? (v.22) ____YES ____NO, Proverbs 4:18 is not relevant here.
+(5) Could Prov. 4:18 be a factor to consider to know a false prophet, since Jehovah gave only two considerations and this wasn't one of them? (v.22) ____JA ____NEIN, Proverbs 4:18 is not relevant here.
 
-(6) Solltest DU dich fürchten vor dem, was ein falscher Prophet sagt? (v.22) ____YES ____NO.
+(6) Solltest DU dich vor dem fürchten, was ein falscher Prophet sagt? (v.22) ____JA ____NEIN.
 
 
 ## [Die Tödliche Verzerrung der Wachturmgesellschaft von Johannes 17,3](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john173.html)
 
 
-## Read Matt. 7:15-20 for questions 7-14.
+## Lies Mt. 7,15-20 für die Fragen 7-14.
 
-(7) Will false prophets look like Christians (sheep)? (v.15) ____YES ____NO.
+(7) Werden falsche Propheten wie Christen (Schafe) ausschauen? (v.15) ____JA ____NEIN.
 
-(8) Are false prophets extremely dangerous to one's spiritual life? (v.15) ____YES ____NO.
+(8) Sind falsche Propheten extrem gefährlich für jemandes geistliches Leben? (v.15) ____JA ____NEIN.
 
-(9) Jesus said, inside false prophets are __________________ __________ (v.15).
+(9) Jesus sagte, dass falsche Propheten inwendig __________________ __________ sind (v.15).
 
-(10) Can we "KNOW" a false prophet by his fruit (prophecies)? (v.16) ____YES ____NO. A prophet produces prophecies like a fruit tree produces fruit.
+(10) Können wir einen falschen Propheten "ERKENNEN" durch seine Früchte (Prophetie)? (v.16) ____JA ____NEIN. Ein Prophet produziert Prophetien wie ein Frucht Baum Früchte produziert.
 
 (11) A good tree produces good fruit and an evil tree produces evil fruit, just like a true prophet produces true prophecies and a false prophet produces false __________ (v.17).
 
-(12) Can a true prophet produce a single false prophecy? (v.18) ____YES ____NO. Please note: Jonah did not produce a false prophecy regarding the destruction of the Ninevites. Jeremiah wrote: "If at any time I announce that a nation or kingdom is to be uprooted, torn down and destroyed, and if that nation I warned repents of its evil, then I will relent and not inflict on it the disaster I had planned" (18:7,8, NIV). This is EXACTLY what occurred with the Ninevites (Jonah 3:10). Furthermore, Micah 3:12 is just like Jonah's message to the Ninevites; yet Jer. 26:18,19 notes this pronouncement of judgment and comments upon it, in light of Jer. 18:7,8.
+(12) Can a true prophet produce a single false prophecy? (v.18) ____JA ____NEIN. Please note: Jonah did not produce a false prophecy regarding the destruction of the Ninevites. Jeremiah wrote: "If at any time I announce that a nation or kingdom is to be uprooted, torn down and destroyed, and if that nation I warned repents of its evil, then I will relent and not inflict on it the disaster I had planned" (18:7,8, NIV). This is EXACTLY what occurred with the Ninevites (Jonah 3:10). Furthermore, Micah 3:12 is just like Jonah's message to the Ninevites; yet Jer. 26:18,19 notes this pronouncement of judgment and comments upon it, in light of Jer. 18:7,8.
 
-(13) Did Jesus agree with Deut. 18:21,22 when he said that we will "KNOW" a false prophet tree by his worthless fruit (false prophecies)? (v.20) ____YES ____NO. NOTICE: The "fruit of the spirit" listed in Gal. 5:22,23 is not the "fruit" of the false prophet spoken of in Matt. 7:15-20!
+(13) Did Jesus agree with Deut. 18:21,22 when he said that we will "KNOW" a false prophet tree by his worthless fruit (false prophecies)? (v.20) ____JA ____NEIN. NOTICE: The "fruit of the spirit" listed in Gal. 5:22,23 is not the "fruit" of the false prophet spoken of in Matt. 7:15-20!
 
-(14) Did Jesus say we should consider Prov. 4:18 as a factor to "KNOW" if someone is a false prophet or not? (v v.15-20) ____YES ____NO.
+(14) Did Jesus say we should consider Prov. 4:18 as a factor to "KNOW" if someone is a false prophet or not? (v v.15-20) ____JA ____NEIN.
 
-(15) From 2 Chronicles chapter 18, does the evidence identify Zedekiah as a true prophet? (Notice v. 10) ____YES ____NO. Does the evidence identify Micaiah as a true prophet? (Notice v. 27) ____YES ____NO. Furthermore, in Jeremiah chapter 28, does the evidence identify Hananiah as a true prophet? ____YES ____NO. [Please notice how Hananiah, in verses 2 through 4, contradicted Jeremiah's prediction in Jer. 25:11\. Be sure to ponder Jer. 28:9 and 28:15.] Does Jer. 28:9 show a similarity between Hananiah and the _Watchtower Bible and Tract Society_'s many predictions about 1,000 years of peace coming after Armageddon, which was supposed to occur in 1914, in 1925, then in 1941, and then in 1975? ____YES ____NO.
+(15) From 2 Chronicles chapter 18, does the evidence identify Zedekiah as a true prophet? (Notice v. 10) ____JA ____NEIN. Does the evidence identify Micaiah as a true prophet? (Notice v. 27) ____JA ____NEIN. Furthermore, in Jeremiah chapter 28, does the evidence identify Hananiah as a true prophet? ____JA ____NEIN. [Please notice how Hananiah, in verses 2 through 4, contradicted Jeremiah's prediction in Jer. 25:11\. Be sure to ponder Jer. 28:9 and 28:15.] Does Jer. 28:9 show a similarity between Hananiah and the _Watchtower Bible and Tract Society_'s many predictions about 1,000 years of peace coming after Armageddon, which was supposed to occur in 1914, in 1925, then in 1941, and then in 1975? ____JA ____NEIN.
 
-(16) Considering Prov. 4:18, did the "light" for date-setting get any brighter from 1874 to 1975 for The _Watchtower Bible and Tract Society_? ____YES ____NO ____ Stayed the same.
+(16) Considering Prov. 4:18, did the "light" for date-setting get any brighter from 1874 to 1975 for The _Watchtower Bible and Tract Society_? ____JA ____NEIN ____ Stayed the same.
 
-(17) Getting back to Jonah, was he angry because the Ninevites repented of their sins and to his displeasure, Jehovah, therefore, didn't destroy them? (Jonah 3:10-4:3). ____YES ____NO.
+(17) Zurück zu Jona, war er wütend, da die Niniveiten von ihren Sünden Busse taten und zu seinem Missfallen/Verdruss, zerstörte sie Jehova nicht? (Jona 3,10-4:3). ____JA ____NEIN.
 
-(18) Are false prophets a sign of these last days we are now living in? (Matt. 24:11) ____YES ____NO.
+(18) Sind falsche Propheten ein Zeichen der letzten Tage, in denen wir momentan leben? (Mt. 24,11) ____JA ____NEIN.
 
-(19) Will "MANY" be deceived by false prophets? (Matt. 24:11) ____YES ____NO.
+(19) Werden "VIELE" durch falsche Propheten verführt werden? (Mt. 24,11) ____JA ____NEIN.
 
-(20) Will false prophets (and false Christs) offer such convincing evidences, that if it were possible, even the chosen ones would be deceived? (Matt. 24:24) ____YES ____NO.
+(20) Werden falsche Propheten (und falsche Christen) solch überzeugende Beweise darbieten, dass wenn es möglich wäre, sogar die Auserwählten verführt würden? (Mt. 24,24) ____JA ____NEIN.
 
-(21) Will the ones deceived by a false prophet, though sincere, receive equal punishment as that false prophet? (Ezek. 14:10) ____YES ____NO.
+(21) Werden diejenigen, die durch einen falschen Propheten getäuscht wurden, obwohl aufrichtig, ewige Bestrafung bekommen gleich wie der falsche Prophet? (Hes. 14,10) ____JA ____NEIN.
 
-(22) Is it implied that false prophets are excellent deceivers? (Matt. 24:11,24) ____YES ____NO.
+(22) Beinhaltet das, dass alle falschen Propheten exzellente Täuscher sind? (Mt. 24,11,24) ____JA ____NEIN.
 
-(23) Does the Bible ever say anything good about false prophets? ____YES ____NO.
+(23) Sagt die Bibel jemals etwas Gutes über falsche Propheten? ____JA ____NEIN.
 
-(24) Should we trust a false prophet to interpret the Bible for us? ____YES ____NO.
+(24) Sollten wir einem falschen Propheten trauen, die Bibel für uns zu interpretieren? ____JA ____NEIN.
 
 (25) For my own future sake, I will personally check these cited _Watchtower Bible and Tract Society_ quotes which show false prophecies. _____TRUE _____FALSE.
 
@@ -181,10 +181,10 @@ NOTICE: There are only true prophets and false prophets. The Bible doesn't menti
 
 (27) The evidence cited in this study reveals the true identity of The _Watchtower Bible and Tract Society_, according to Deut. 18:21,22, to be: ____ TRUE PROPHET ____ FALSE PROPHET, which I will not allow to interpret the Holy Bible for me.
 
-(28) **The most important question:** Jesus said, "You diligently study the Scriptures because you think that by them you possess eternal life. These are the ones that testify about me, yet you refuse to come to me to have life" (Jn. 5:39,40). The teachings of the _Watchtower Bible and Tract Society_ cause people to not go to Christ for everlasting life. If you are a Jehovah's witness, will you continue to allow this to happen to you? ____YES ____NO.
+(28) **The most important question:** Jesus said, "You diligently study the Scriptures because you think that by them you possess eternal life. These are the ones that testify about me, yet you refuse to come to me to have life" (Jn. 5:39,40). The teachings of the _Watchtower Bible and Tract Society_ cause people to not go to Christ for everlasting life. If you are a Jehovah's witness, will you continue to allow this to happen to you? ____JA ____NEIN.
 
 
-## Just Like 1975
+## Genau wie 1975
 
 Today the _Watchtower Bible and Tract Society_ claims to be the "faithful and wise servant" of Matt. 24:45-47\. They also teach that Russell never claimed for himself to be that "servant," but said that "servant" was a class of people. The evidence reveals this is only a partial truth! Russell originally taught it was a "class," but obviously changed his mind afterwards and admitted he alone was that "servant" (THE WATCHTOWER, 12-1-16, p. 357). Also, it was openly taught by the _Watchtower Bible and Tract Society_, after Russell's death, that he [Russell] was that "servant" (THE WATCHTOWER, 3-1-17, p. 67; THE WATCHTOWER, 12-15-16, Reprints p. 6024)! Why the cover-up about Russell being that "servant"? So the Society can create or abolish doctrine and policy at will and without question. If the Society didn't deny it, then their many publications could only be a rehash of Russell's teachings!
 
@@ -193,7 +193,7 @@ Today the _Watchtower Bible and Tract Society_ claims to be the "faithful and wi
 
 In THE WATCHTOWER, 4-1-83, p. 31, the Society addresses Johannes Greber, his involvement in spiritism and his demon-inspired New Testament translation. In that article, they imply from the foreword of his 1980 edition of his N. T., that they just learned about his involvement in spiritism. Is this the truth or just another deception?
 
-The truth is, The _Watchtower Bible and Tract Society_ knew about Johannes Greber and his demon-inspired New Testament since 1956\. This is evident from their expose of him and his translation of the New Testament (THE WATCHTOWER, 2-15-56, pp. 110,111). However, The _Watchtower Bible and Tract Society_ quoted his demon-produced New Testament for backing of their own literature (and **[Jehovah's Witness Bible](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)**) numerous times AFTER 1956 (The Word, Who is He?--According to John, 1962 ed., p. 5; Aid to Bible Understanding, 1971 ed., pp. 1134,1669; Make Sure of All Things, 1965 ed., p. 489; THE WATCHTOWER, 9-15-62, p. 554; THE WATCHTOWER, 10-15-75, p. 640; THE WATCHTOWER, 4-15-76, p. 231). Do you think it was proper for The _Watchtower Bible and Tract Society_ to do this? _____YES _____ NO.
+The truth is, The _Watchtower Bible and Tract Society_ knew about Johannes Greber and his demon-inspired New Testament since 1956\. This is evident from their expose of him and his translation of the New Testament (THE WATCHTOWER, 2-15-56, pp. 110,111). However, The _Watchtower Bible and Tract Society_ quoted his demon-produced New Testament for backing of their own literature (and **[Jehovah's Witness Bible](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)**) numerous times AFTER 1956 (The Word, Who is He?--According to John, 1962 ed., p. 5; Aid to Bible Understanding, 1971 ed., pp. 1134,1669; Make Sure of All Things, 1965 ed., p. 489; THE WATCHTOWER, 9-15-62, p. 554; THE WATCHTOWER, 10-15-75, p. 640; THE WATCHTOWER, 4-15-76, p. 231). Do you think it was proper for The _Watchtower Bible and Tract Society_ to do this? _____JA _____ NO.
 
 ![Watchtower bible and tract Society False Prophet](../files/pictures/a-colorb.gif)
 
@@ -207,7 +207,7 @@ The truth is, The _Watchtower Bible and Tract Society_ knew about Johannes Grebe
 
 - **[Plan Of Salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
 
-**[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+**[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html)**  
 **Outreach PO Box 265**  

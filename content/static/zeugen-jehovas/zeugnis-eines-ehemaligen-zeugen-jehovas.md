@@ -1,4 +1,4 @@
-<!--t Zeugnis eines Ehemaligen Zeugen Jehovas - in Arbeit (0% übersetzt) t-->
+<!--t Zeugnis eines Ehemaligen Zeugen Jehovas (95% übersetzt) t-->
 <!--d Zeugen Jehovas, Wachturmgesellschaft, Wachturm, Falscher Prophet, Neue Welt Übersetzung d-->
 
 Zeugnis eines Ehemaligen Zeugen Jehovas
@@ -14,83 +14,79 @@ Quelle: [www.evangelicaloutreach.org/adrianxjw.htm](http://gesundelehre.tk/forwa
 
 ### Adrian
 
-![Former Jehovah's Witness ex jehovah's witness](../files/pictures/a-colorb.gif)
+![Ehemaliger Zeuge Jehovas Ex Zeuge Jehovas](../files/pictures/a-colorb.gif)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 
-## I am an ex Jehovah's Witness Who was Born Into The JWs
+## Ich bin ein Ex Zeuge Jehovas, der In Die ZJ Hineingeboren Wurde
 
-My name is _Adrian._**I am an ex [Jehovah's Witness](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html) now serving God in faith and truth from my heart,** drawn towards God because of a love for Him owed to the fact He loved me first.
+Mein Name ist _Adrian_. **Ich bin ein Ex-[Zeuge Jehovas](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html) der Gott nun in Glaube und Wahrheit von Herzen dient,** gezogen zu Gott aufgrund einer Liebe für ihn, die ich ihm schuldig war, da Er mich zuerst liebte.
 
+**Ich wurde in die ZJ Religion/Sekte geboren, aber als ich älter wurde verliess sie meine Familie.**
+
+[![unam sanctam ex cathedra](../files/pictures//ex-jehovah%27s-witness-testimony.jpg "Es ist SCHRECKLICH, dass so viele Kirchgemeinden die LÜGE AUS DER HÖLLE verkünden, die man Ewige-Sicherheit nennt.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)
+
+Als die Jahre verflossen, traf ich Lynn, welche jetzt meine Frau ist. Die ZJ frequentierten das Haus ihrer Mutter und das Haus meines Freundes. Daher **I got drawn back into _the only way of serving God I knew._** Von Natur aus ein begieriger Leser und fleissige Person, wenn ich etwas tue, so mach ich es richtig oder überhaupt nicht. **Ich begann die ganz alte ZJ Literatur von Rutherford und Charles Taze Russell zu lesen.**
+
+Ich begann einige _sehr ungewöhnlichen_ Gedanken und Anfänge zu "Gottes auserwähltem Mundstück auf Erden" zu finden, which I tried not to dwell on too much assuring myself I was with _God’s chosen people._ Was ich feststellte war folgendes:
+
+● **Das Datum für den Fall von Babylon** etc. wurde von **[Charles Taze Russell](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/charles_russell.html)** verstanden durch das **_Vermessen einer Pyramide_** _!_ (Zufälligerweise ist sein Grabmal in der Tat eine _Pyramide_.)
+
+● Russell lehrte auch, dass der **_Leviathan eine Lokomotive ist_** und
+
+● **Gott lebe auf einem _Stern_ mit den Engeln.**
+
+Während eines STudiums eines ihrer Modernen Büchern, dem _Daniel_ Buch fand ich mehr Probleme mit gewissen Daten und der Art und Weise, wie sie gewisse Prophetien interpretierten. (Nur zur allgemeine Information, kann man vielleicht online für die Millerite-Tabelle suchen. Hier kam die ZJ-Lehre/Doktrin und das inkorrekte Datum bezüglich die Zerstörung Jerusalems her.) Es schien mir klar, dass die Prophetie auf keine Art und Weise das bedeuten konnte, was sie implizierten.
+
+## [607 Vor Christus Von Einem Ehemaligen Zeugen Jehovas Widerlegt](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jw607bce.html)
+
+
+## Verändert Sich Das Wort Des Herrn
+
+Nach mehr und mehr Studium wurde ich darüber in Entsetzen versetzt, dass ich einige der Lehren fand, von welchen sie zuvor gesagt hatten, dass es "das Wort der Leute des Herrn" sei, aber jetzt war es **_nicht_** [mehr] akzeptiert. **_Bleibt_ das Wort des Herrn nicht _unverändert_? Seine Wahrheiten sind _dieselben_ jetzt, wie sie zu Beginn waren.**
  
+In meiner Suche nach der Wahrheit konfrontierte ich natürlich schliesslich einen oder zwei Älteste diesbezüglich und bezüglich dem, was die Bibel wirklich sagt. **Sie sagten mir ich, solle nicht zu viel lesen, da ich _mich selbst zum stolpern bringen_ würde!_** Dies brachte das Feuer nur noch mehr zum lodern und schliesslich berief ich eine Treffen, um mich von der Gruppe zu lösen, da ich wusste, dass der Herr mir gezeigt hatte, dass ich ihm nicht auf die richtige Art und Weise nachfolgte. Ich präsentierte ihnen die vielen Beweise weshalb ihre Lehren fehlerhaft sind. Zwei sind:
 
-**I was born into the JW religion/cult, but as I grew older my family left them.**
+● Sie tun nicht und werden nicht **[Jesus Christus als Herrn _anbeten_](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/worshipJesus.html)**, obwohl dies klar in der Schrift dargelegt wird
 
-[![unam sanctam ex cathedra](../files/pictures//ex-jehovah%27s-witness-testimony.jpg "It is HORRIBLE that so many congregation are declaring the LIE FROM HELL called eternal-security.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)
+● Der Missbrauch des Abendmahls, wo sie allen ausser dem "Überrest" ( **[144,000](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/144000.html)** ) verboten daran teilzunehmen.
 
-As the years went by I met, who is now my wife, Lynn. The JW’s were frequenting her mother’s house and my friends house. Hence, **I got drawn back into _the only way of serving God I knew._** An avid reader and very studios person by nature, when I do something I do it right or not all. **I began to read the very old JW literature by Rutherford and Charles Taze Russell.**
+**Sie schauten sich meine Nachforschungen nicht einmal an.** Nachdem einer anfing, **mich _anzuschreien**, dass ich "nicht an Gott glaubte und Gottes Wort nicht glaubte", schaute ich einfach rüber zu den andern Ältesten und fragte sie, ob der Älteste, der mich anschrie _im Geist Gottes sei._ Sie sagten mir, es stehe mir frei zu gehen. In der Tat tat ich solches - ich fühlte die Freiheit Gottes auf mir und **_die Ketten der Mensch-gemachten Vorschriften_ gebrochen.**
 
-I began to find some _very_ _unusual_ thoughts and beginnings to “God’s chosen mouthpiece on earth,” which I tried not to dwell on too much assuring myself I was with _God’s chosen people._ What I noticed was:
+**Meine Familie wurde auch hinausgeführt.** Meine Frau, und drei Kinder zusammen mit meiner Mutter und Stiefvater. **Bedauerlicherweise, wie sie meinen Stiefvater ignorierten und behandelten, zusammen mit andern Faktoren _brachte ihn dazu, sich sein Leben zu nehmen._** Sie haben viel, wofür sie gerade stehen müssen. Möge Gott ihnen helfen.
 
-● **The date for the fall of Babylon** etc. was understood by **[Charles Taze Russell](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/charles_russell.html)** by **_measuring a pyramid_** _!_ (Incidentally, his grave is indeed a _pyramid.)_
+Nach dem Verlassen besuchten wir viele Kirchen, aber wir schienen **das _selbe gewisse Ding bei jeder Kirche zu bemerken, in welcher wir versuchten, uns niederzulassen.** Eine Person konnte ein komplett gottloses Leben führen und dennoch ein _Christ_ genannt werden (sogar, wenn die Person jahrelang die Kirche nicht besuchte und _**keine Bemühungen machte, Busse zu tun_)! Egal wie sehr ich diese ["Einmal Gerettet Immer Gerettet"](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html) suchte, ich konnte sie nicht in der Bibel finden.** Jeder mit dem ich sprach, und anders sagte, beschuldigte mich dessen, _unter dem Gesetz_ und nicht _Gnade_ zu sein. Das Wort Gottes sagte mir jedoch, dass **Ich durch Gnade gerettet war, durch den Glauben** Epheser 2,8 (Schlachterbibel 1951):
 
-● Russell also taught **_leviathan is a locomotive_** and
+> Denn durch die Gnade seid ihr gerettet, vermittels des Glaubens, und das nicht aus euch, Gottes Gabe ist es.
 
-● **God lives on a _star_ with the angels.**
+**Mein Glaube musste in Jesus und dem Blut sein** welches uns von aller Sünde reinigt, wenn wir zu Ihm gehören. Es sagte mir auch, dass **Glaube ohne Werke tot ist**, Jakobus 2,18-20 (Luther1912):
 
-During a study of one of their modern books, the _Daniel_ book, I found more problems with certain dates and the way they interpreted certain prophecy. (Just for general information, you may wish to search for the Millerite chart online. This is where the JW doctrine and incorrect date for the destruction of Jerusalem came from.) It seemed clear to me the prophecy could in no way mean what they implied.
+> Aber es möchte jemand sagen: Du hast den Glauben, und ich habe die Werke; zeige mir deinen Glauben ohne die Werke, **so will ich dir meinen Glauben zeigen aus meinen Werken.** Du glaubst, dass ein einiger Gott ist? Du tust wohl daran; die Teufel glauben's auch und zittern. **Willst du aber erkennen, du eitler Mensch, dass der Glaube ohne Werke tot sei?**
 
-## [Disproving 607BCE From A Former Jehovah's Witness](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jw607bce.html)
+Paulus sagte mir auch im Philipperbrief, dass _er das Versprechen noch nicht ergriffen hatte_! Philipper 3,11-16 (Schlachter1905) besagt:
 
+> ​ob ich vielleicht zur Auferstehung aus den Toten gelangen möchte. ​**Nicht dass ichs schon erlangt habe**, oder schon vollendet sei, **ich jage aber darnach, dass ich das auch ergreife**, wofür ich von Christo ergriffen worden bin. ​Brüder, **ich halte mich selbst nicht dafür, dass ich es ergriffen habe**; ​eins aber thue ich: Ich vergesse, was dahinten ist und strecke mich aus nach dem, was davorn ist, **und jage nach dem Ziel, dem Kampfpreis der himmlischen Berufung Gottes in Christo Jesu**. ​So viele nun vollkommen sind, wir wollen also gesinnt sein; und wenn ihr in etwas anders denket, so wird Gott auch das euch offenbaren. ​Nur lasst uns, wozu wir auch gelangt sein mögen, nach derselben Richtschnur wandeln und das selbe erstreben.
 
-## Does The Word of The Lord Change
+Die schien weit entfernt von der Kirchen "ICH BIN GERETTET EGAL WAS ICH TUE." Jesus gab uns _Befehle_ Brüdern und Schwestern, durch Seinen Mund, Sein Wort und Seine Apostel. **Wir müssen diese _Befehle_ beachten. Sie sind da, um uns _sicher zu bewahren in dieser jetzigen Zeit der Gottlosigkeit_, wo die Welt voll von Unmoral und Perversion ist und boshafte Männer in die Kirche gekrochen sind.**. 2 Timotheus 3,1-5 (Schlachterbibel 1951) besagt:
 
-After more and more study I was horrified to find some of the teachings they had previously said were “the word to the Lord’s people” but now, was **_not_** accepted. **Does not the word of the Lord _remain unchanged?_ His truths are _the same_ now, as they were in the beginning.**
+> Das aber sollst du wissen, daß **in den letzten Tagen schwere Zeiten eintreten werden.** Denn die Menschen werden selbstsüchtig sein, geldgierig, prahlerisch, hochmütig, Lästerer, den Eltern ungehorsam, undankbar, gottlos, lieblos, unversöhnlich, verleumderisch, unenthaltsam, zuchtlos, dem Guten feind, treulos, leichtsinnig, aufgeblasen, das Vergnügen mehr liebend als Gott; **dabei haben sie den [Schein von Gottseligkeit](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/form-of-godliness.html), deren Kraft aber verleugnen sie. Solche meide!** (2. Tim 3,1-5)
 
- 
+Uns wurde das Gebot der _Liebe_ gegeben. Liebe erachtet andere vor sich selbst und lebt ein Leben das Gott gefällt, denn _Gott ist die Liebe._ 1. Johannes 4,16 (Schlachter 1905) besagt:
 
-Needless to say in searching for the truth, eventually I confronted an elder or two concerning this and what the bible actually said. **They told me not to read too much as I would _stumble myself!_** This fuelled the fire and eventually, I called a meeting to remove myself from the group as I knew the Lord had shown me I was not following Him in the correct manner. I presented them with many proofs as to why their doctrines are incorrect. Two are:
+> Und wir haben erkannt und geglaubt die Liebe, die Gott zu uns hat; Gott ist die Liebe, und **wer in der Liebe bleibt, der bleibt in Gott und Gott in ihm.**
 
-● They do not and will not **[_worship_ Jesus Christ as Lord](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/worshipJesus.html)**, when this is clearly presented in scripture
-
-● The abuse of the Lord’s supper where they forbid all but “The remnant” ( **[144,000](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/144000.html)** ) to participate.
-
-**They would not even look at my research.** And after one started **_shouting_ at me** that I “didn’t believe in God and I didn’t believe His word” I simply looked to the other elders there and asked them if the elder shouting at me _was in the spirit of God?_ They told me I was free to leave. Indeed I did—feeling the freedom of God upon me, and **_the chains of man-made rules_ broken.**
-
- **My family were also led out.** My wife, and three children along with my mother and stepfather. **Unfortunately, the way they ignored and treated my stepfather along with other factors _caused him to take his own life._** They have much to answer for. May God help them.
-
- After leaving we attended many churches but seemed to notice **the _same_ certain thing about every church in which we tried to settle.** A person could be living a completely Godless life and still be called a _Christian_ (even if he had not attended church for years and made _**no effort to repent_)! No matter how much I searched for this ["once saved always saved" doctrine](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html), I couldn’t seem to find it in scripture.** Anyone I spoke to, and said otherwise, would accuse me of being _under law_ and not _grace._ The word of God was telling me, however, that **I was **saved by grace through faith** Ephesians 2:8 (NASB):
-
-For by grace you have been saved through faith; and that not of yourselves, it is the gift of God.
-
-**My faith had to be in Jesus and the blood** which cleanses us of all sin, if we belong to Him. It was also telling me that **faith without works is dead**, James 2:18-20 (NASB):
-
-But someone may well say, “You have faith and I have works; show me your faith without the works, and **I will show you my faith by my works.”**  You believe that God is one. You do well; the demons also believe, and shudder. But are you willing to recognize, you foolish fellow, **that faith without works is useless?**
-
-Paul in Philippians was also telling me _he didn’t believe he had yet laid hold of the promise_! Philippians 3:11-16 (NASB) say:
-
-In order that I may attain to the resurrection from the dead. **Not that I have already obtained it** or have already become perfect, but **I press on so that I may lay hold of that** for which also I was laid hold of by Christ Jesus. Brethren, **I do not regard myself as having laid hold of it yet**; but one thing I do: forgetting what lies behind and reaching forward to what lies ahead, **I press on toward the goal for the prize of the upward call of God in Christ Jesus**. Let us therefore, as many as are perfect, have this attitude; and if in anything you have a different attitude, God will reveal that also to you; however, let us keep living by that same standard to which we have attained.
-
-This seemed a far cry from the churches, “I AM SAVED NO MATTER WHAT I DO.” Jesus gave us _commands_ brothers and sisters, through His mouth, His word and His Apostles. **We are to heed these _commands_. They are there to _keep us safe in the present time of Godlessness,_ where the world is full of immorality and perversion and wicked men have crept into the church**. 2 Timothy 3:1-5 (NASB) says:
-
-But realize this, that **in the last days difficult times will come.** For men will be lovers of self, lovers of money, boastful, arrogant, revilers, disobedient to parents, ungrateful, unholy, unloving, irreconcilable, malicious gossips, without self-control, brutal, haters of good, treacherous, reckless, conceited, lovers of pleasure rather than lovers of God, **holding to a [form of godliness](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/form-of-godliness.html), although they have denied its power; Avoid such men as these.**
-
-We are given the command of _love_. Love considers others before itself and lives a life pleasing to God, for _God is love._ 1 John 4:16 (NASB) says:
-
-We have come to know and have believed the love which God has for us. God is love, and **the one who abides in love abides in God, and God abides in him.**
-
-May the Lord bless you as you walk the narrow path into life. I pray God that we may all meet one day knowing that **our faith showed through our Godly deeds** to bring us all into the fullness of Him who called us.
+Möge der Herr euch segnen, da ihr den schmalen Weg zum Leben geht. Ich bete zu Gott, dass wir uns all eines Tages begegnen, wissend, dass **unser Glaube sich durch göttliche Taten bewies** um uns alle in die Fülle desjenigen zu bringen, der uns berufen hat.
 
 ![Ehemaliger ZJ](../files/pictures/a-colorb.gif)
 
-**OTHER TOPICS:**
+**WEITERE THEMEN:**
 
-- **[Jehovah's Witnesses Beliefs Answered and Exposed](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html)**
+- **[Glaubensvorstellungen Von Zeugen Jehovas Beantwortet Und Entlarvt](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html)**
 
 - **[Ehemaliger Römisch Katholischer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)**
 
-- **[Latter Day Saints (Witnessing To Mormons)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html)**
+- **[Heilige Der Letzten Tage (Mormonen Bezeugen)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html)**
 
 - **[Universalismus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/universalism.htm)**
 

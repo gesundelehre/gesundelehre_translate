@@ -1,4 +1,4 @@
-<!--t Vorehelicher Safe Sex, Safe Sex, Sind Jegliche Sexuell Aktiven Singles Wirklich Sicher? - in Arbeit (0% übersetzt) t-->
+<!--t Vorehelicher Safe Sex, Safe Sex, Sind Jegliche Sexuell Aktiven Singles Wirklich Sicher? - in Arbeit (35% übersetzt) t-->
 <!--d d-->
 
 Vorehelicher Safe Sex, Safe Sex, Sind Jegliche Sexuell Aktiven Singles Wirklich Sicher?
@@ -41,7 +41,7 @@ Besides the above, a different person who is both religious and deceived, stated
 
 > **God** is the main authority. **Not that he’ll zap you when you are out of line**. He puts ideas of right **and wrong** into you.
 
-Two different beguiled mothers said regarding sex before marriage:
+Zwei verschiedene getäuschte Mütter sagte in Bezug auf Sex vor der Ehe:
 
 > What is right for you might not be right for me.
 > 
@@ -56,19 +56,19 @@ One religious leader who accurately mentioned that the Bible says to _flee sexua
 
 Sadly, if that same person knew the truth he didn’t declare it, that is, that **God sends people to [hell](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html) that he _loves_**. He further didn’t mention that **the real issue isn’t if God loves us or not, but if we love God or not.** This is a _**salvation**_ issue and nothing less:
 
-> However, as it is written: "No eye has seen, no ear has heard, no mind has conceived **what God has prepared for those who love him**" (1 Cor 2:9)
+> Aber, wie geschrieben steht: "Was kein Auge gesehen und kein Ohr gehört und keinem Menschen in den Sinn gekommen ist, **das hat Gott bereitet denen, die ihn lieben**". (1. Kor. 2,9; Schlachter 1905)
 > 
-> Listen, my dear brothers: Has not God chosen those who are poor in the eyes of the world to be rich in faith and to inherit **the kingdom he promised those who love him?** (James 2:5)
+> Höret, meine lieben Brüder: Hat nicht Gott diejenigen erwählt, die in den Augen der Welt arm sind, daß sie reich im Glauben und **Erben des Reiches würden, das er denen verheißen hat, die ihn lieben?** (Jakobus 2,5; Schlachterbibel 1951)
 
 Furthermore, only those who **[_obey_ God](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/obey.html)** _love_ God:
 
-> If you **love me, you will obey what I command**. (John 14:15)
+> **Liebet ihr mich, so haltet meine Gebote!** (Johannes 14,15; Schlachter 1905)
 > 
-> Whoever has **my commands and obeys them,** he is the one who **loves me.** He who loves me will be loved by my Father, and I too will love him and show myself to him. (John 14:21)
+> Wer **meine Gebote hat und hält sie**, der ist's, der **mich liebet**. Wer mich aber liebet, der wird von meinem Vater geliebet werden, und ich werde ihn lieben und mich ihm offenbaren. (Johannes 14,21; Luther 1545)
 > 
-> **This is love for God: to obey his commands.** And his **commands are not burdensome.** (1 John 5:3)
+> **Denn das ist die Liebe zu Gott, dass wir seine Gebote halten**, und **seine Gebote sind nicht schwer.** (1. Johannes 5,3; Zürcher 1860)
 
-The world also wants us to think God’s holy commands are obsolete and _burdensome,_ but that is just another lie. They are neither.
+The world also wants us to think God’s holy commands are obsolete and _burdensome,_ but that is just another lie. Sie sind weder das eine noch das andere.
 
 
 ## Who's _Judging_!
@@ -86,11 +86,11 @@ How anyone can argue against the fact that a belief in **[eternal security leads
 
 That deceived religious girl’s **statement about not going to _hell,_ if she would fornicate, suggests a belief in eternal security - a popular [doctrine of demons](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/doctrine-of-demons.html)**. May that same young woman, and all the others who practice _abstaining_ but think they are forever safe from the flames of hell, ponder the Scriptural facts about **_all_** sexually immoral people. Unequivocally, the word of God says the immoral are spiritually _dead and lost_ while in such **[sin](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sin.html)**, **even if they were once _saved._** The following three passages were addressed to those who had already been _born again_ and **warns even them of the dangers of hell [or _not inheriting the kingdom of God_].**
 
-> For of this you can be sure: No immoral, impure or greedy person - such a man is an idolater - has any **inheritance in the kingdom of Christ and of God. Let no one deceive you with empty words,** for because of such things God’s wrath comes on those who are disobedient. Therefore do not be partners with them. (Eph 5:5-7)
+> ​Denn das sollt ihr wissen, dass kein Unzüchtiger, oder Unreiner, oder Habsüchtiger, welcher ist ein Götzendiener, **Erbteil hat im Reiche Christi und Gottes. ​Niemand verführe euch mit vergeblichen** [=leeren] **Worten**; denn um dieser Dinge willen kommt der Zorn Gottes über die Kinder des Unglaubens. ​So werdet nun nicht ihre Mitgenossen! (Eph 5,5-7; Schlachter 1905)
 > 
-> The acts of the sinful nature are obvious: sexual immorality, impurity and debauchery; idolatry and witchcraft; hatred, discord, jealousy, fits of rage, selfish ambition, dissensions, factions and envy; drunkenness, orgies, and the like. I warn you, as I did before, that those who live like this **[will not inherit the kingdom of God](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/will-not-inherit-the-kingdom-of-God.htm).** (Gal 5:19-21)
+> Offenbar sind aber die Werke des Fleisches, welche sind: Ehebruch, Unzucht, Unreinigkeit, Ausschweifung; Götzendienst, Zauberei, Feindschaft, Hader, Eifersucht, Zorn, Ehrgeiz, Zwietracht, Spaltungen, Neid, Mord; Trunkenheit, Gelage und dergleichen, wovon ich euch voraussage, wie ich schon zuvor gesagt habe, daß die, welche solches tun, **[das Reich Gottes nicht ererben werden](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/will-not-inherit-the-kingdom-of-God.htm)**. (Gal 5,19-21; Schlachterbibel 1951)
 > 
-> **Do you not know that the wicked will not inherit the kingdom of God? Do not be deceived:** Neither the sexually immoral nor idolaters nor adulterers nor male prostitutes nor homosexuals nor thieves nor the greedy nor drunkards nor slanderers nor swindlers will inherit the kingdom of God. (1 Cor 6:9,10)
+> **Wisset ihr denn nicht, dass die Ungerechten das Reich Gottes nicht ererben werden? Irret euch nicht**: Weder Unzüchtige, noch Götzendiener, weder Ehebrecher, noch Weichlinge, noch Knabenschänder [=Homosexuelle], weder Diebe, noch Habsüchtige, noch Trunkenbolde, noch Lästerer, noch Räuber werden das Reich Gottes ererben; — und solche sind euer etliche gewesen; aber ihr seid abgewaschen, ihr seid geheiliget, ihr seid gerechtfertigt worden in dem Namen unsers Herrn Jesu Christi und in dem Geist unsers Gottes! (1. Kor 6,9-11; Schlachter 1905)
 
 
 ## _Safe Sex_ For Christians?
@@ -103,38 +103,38 @@ John Ankerberg’s message is another way of saying **you can go out and fornica
 
 Also, we should never forget that the **[prodigal son](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prodigal-son.html)** was spiritually _dead and lost_ while sexually immoral:
 
-> For this son of mine **was dead** and is alive again; he **was lost** and is found. So they began to celebrate. (Luke 15:24)
+> Denn dieser mein Sohn **war tot**, und ist wieder lebendig geworden; er **war verloren**, und ist wieder gefunden worden. Und sie fingen an fröhlich zu sein. (Lukas 15,24; Schlachter 1905)
 
 He didn’t become _**alive again** _[that is, **saved _again_**] and _**found**_ until after he turned from such wickedness and returned to the Father to humbly serve him. Though **[savage wolves in sheep's clothing](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/false.htm)** teach otherwise, facts are facts as disturbing as they may be to some. This is God’s declaration on _wild living._
 
 Multitudes in our day are dangerously deceived and on the road to hell, even though these relevant passages say _don’t be deceived_ or the like. May many of the same read this very article and turn from their sins **which are dragging them to hell’s raging fires:**
 
-> But the cowardly, the unbelieving, the vile, the murderers, the **sexually immoral,** those who practice **[magic arts](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html)**, the idolaters and all liars - **their place will be in the fiery lake of burning sulfur**. This is the second death. (Rev 21:8)
+> Den Feiglingen aber und Ungläubigen und Greulichen und Mördern und **Unzüchtigen** und **[Zauberern](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/occult.html)** und Götzendienern und allen Lügnern **wird ihr Teil sein in dem See, der von Feuer und Schwefel brennt**; das ist der zweite Tod. (Off 21,8; Schlachterbibel 1951)
 
 
-## _Wise_ or _Foolish_?
+## _Weise_ oder _Töricht_?
 
 Jesus often spoke of two types of people. In Mt. 7:24-27, the _wise_ builder is distinguished from the _foolish_ builder because he put into practice the word of God and obeyed. Therefore, the _wise_ single (or married) Christian is the person obeying God, **[crucifying the flesh](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/crucify-the-flesh.html)** and walking in the fear of God, because he knows **he can yet go to hell.** One must have _a pure heart_ to see God (Mt. 5:8).
 
 **Finally, please know that _any form of sexual immorality,_ before or after marriage, will send YOU to hell and therefore cannot be _safe sex_ in the truest sense! YOU must repent before it is eternally too late.** See other related articles at
 
 **[Prostitute and Prostitution Research and Education](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm)**  
-**[Emails regarding pornography](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html#e)**  
-**[Hell and who goes there](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html)**  
-**[Heaven or eternal fire: which group are you in?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/destiny.htm)**  
-**[This Place Called Hell](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hellfire.htm)**  
+**[Emails in Bezug auf Pornografie](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html#e)**  
+**[Hölle und wer dort hinkommt](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html)**  
+**[Himmel oder ewiges Feuer: in welcher Gruppe bist du?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/destiny.htm)**  
+**[Dieser Ort Genannt Hölle](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hellfire.htm)**  
 
 ![safe sex](../../files/pictures/a-colorb.gif)
 
-OTHER TOPICS:
+WEITERE THEMEN:
 
-- **[Lust: Another Name For Adultery](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)**
+- **[Begierde: Ein Anderer Name Für Ehebruch](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)**
 
-- **[Whole Counsel of God](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/whole-counsel-of-God.htm)**
+- **[Ganzer Ratschluss Gottes](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/whole-counsel-of-God.htm)**
 
-- **[Sudden Temptation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sudden-temptation.htm)**
+- **[Plötzliche Versuchung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sudden-temptation.htm)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

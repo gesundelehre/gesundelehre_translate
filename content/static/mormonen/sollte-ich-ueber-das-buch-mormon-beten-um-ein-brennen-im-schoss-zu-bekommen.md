@@ -1,4 +1,4 @@
-<!--t Sollte Ich Über Das Buch Mormon Beten Um Ein Brennen Im Schoss Zu Bekommen? - in Arbeit (0% übersetzt) t-->
+<!--t Sollte Ich Über Das Buch Mormon Beten Um Ein Brennen Im Schoss Zu Bekommen? - in Arbeit (70% übersetzt) t-->
 <!--d d-->
 
 Sollte Ich Über Das Buch Mormon Beten Um Ein Brennen Im Schoss Zu Bekommen?
@@ -14,108 +14,106 @@ Quelle: [www.evangelicaloutreach.org/book-of-mormon.htm](http://gesundelehre.tk/
 
 ### Dan Corner
 
-![burning in the bosom pray about the book of mormon](../../files/pictures/evangelical-pray-about-the-book-of-mormon.jpg)
+![Brennen im Schoos Beten Über Das Buch Mormon](../../files/pictures/evangelical-pray-about-the-book-of-mormon.jpg)
 
-**[<big><big>Pray About Book Of Mormon</big></big>](../../files/pictures/mormon-burning-in-the-bosom.pdf)**<big> <big>(pdf cartoon)</big></big>
+**[<big><big>Beten Über Das Buch Mormon</big></big>](../../files/pictures/mormon-burning-in-the-bosom.pdf)**<big> <big>(pdf cartoon)</big></big>
 
-![burning in the bosom Pray About Book Of Mormon](../../files/pictures/a-colorb.gif)
+![Brennen im Schoss Beten Über Das Buch Mormon](../../files/pictures/a-colorb.gif)
 
 
 
-## Mormon Missionaries Want You To Pray About 
-The Book Of Mormon For a _Burning In The Bosom_
+## Missionare Von Mormonen Wollen Dass Du Über Das Buch Mormon Betest, Um Ein _Brennen Im Schoss_ Zu Bekommen
 
 
 
 [![Should I Pray About The Book Of Mormon and burning in the bosom? NO! The devil can give me that feeling!](../../files/pictures/mormon-wondering.jpg "Should I Pray About The Book Of Mormon and burning in the bosom? NO! The devil can give me that feeling!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html)
 
-<big>**[Ask The Mormon Missionaries These Questions](#burning%20in%20the%20bosom)**</big> 
+<big>**[Frage Die Mormonischen Missionare Diese Fragen](#burning%20in%20the%20bosom)**</big> 
 
-**_Should you pray about the Book of Mormon?_ That is an important issue that will come up if you have ever dialoged with or witnessed to a Mormon. If you have, it usually isn’t too long before they want you to _pray about the Book of Mormon_ and for the _testimony of the Holy Spirit_.** They refer us to a passage in the Book of Mormon which is Moroni 10:4:
+**_Sollte man über das Buch Mormon beten?_ Dies ist eine wichtige Angelegenheit, welche auftauchen wird, falls du jemals mit einem Mormone ein Gespärch führtest oder ihm bezeugtest. Falls du schon mal hast, so dauert es üblicherweise nicht allzu lange, bist sie wollen, dass du _über das Buch Mormon betest_ und für das _Zeugnis des Heiligen Geistes_.** Sie verweisen einem auf eine Passage im Buch Mormon welches Moroni 10,4 ist:
+
+### Moroni 10,4
+
+> "Und ich möchte euch ermahnen: Wenn ihr dieses hier empfangt, so fragt Gott, den Ewigen Vater, im Namen Christi, ob es wahr ist; und **wenn ihr mit aufrichtigem Herzen, mit wirklichem Vorsatz fragt** und Glauben an Christus habt, wird er **euch durch die Macht des Heiligen Geistes kundtun, daß es wahr ist**."
+
+Manchmal werden mormonische Missionare Moroni 10:4 mit einem Lehren & Bündnisse 9:8 ergänzen/nachkontern, wo es folgendes heisst:
 
 
-## Moroni 10:4
+### Lehren & Bündnisse 9:8
 
-> "And when ye shall receive these things, I would exhort you that ye would ask God, the Eternal Father, in the name of Christ, if these things are not true; and if ye shall **ask with a sincere heart, with real intent**, having faith in Christ, he will **manifest the truth of it unto you, by the power of the Holy Ghost."**
+> "Aber siehe, ich sage dir: Du mußt es mit deinem Verstand durcharbeiten; **dann mußt du mich fragen, ob es recht ist**, und wenn es recht ist, **werde ich machen, daß dein Herz in dir brennt**; darum wirst du fühlen, daß es recht ist.
 
-Sometimes the Mormon missionaries will supplement Moroni 10:4 with a Doc. & Cov.9:8, which says:
+[![Brennen im Schoss](../../files/pictures/book-of-mormon.jpg "Das Buch Mormon ist NICHT von Gott")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html)
 
-
-## Doctrine and Covenants 9:8
-
-> "But, behold, I say unto you, that you must study it out in your mind; then **you must ask me if it be right,** and if it is right I will cause that **your bosom shall burn within you;** therefore, you shall feel that it is right."
-
-[![burning in the bosom](../../files/pictures/book-of-mormon.jpg "book of mormon is NOT from God")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html)
-
-**Again, Mormon missionaries will use that Moroni passage from the Book of Mormon to try to get the potential convert to _pray about_ the Book of Mormon.** Doesn’t _praying about_ something, including the Book of Mormon, sound good? It seems on the surface to be a completely safe thing to do, but is it really, or can the innocent be misled by such? The Mormons often say something similar to this email from a Latter Day Saint:
+**Nochmals, mormonische Missionare werden diese Moroni-Passage aus dem Buch Mormon gebrauchen, um zu versuchen, dass ein möglicher Konvertit _über_ das Buch Mormon _betet_.** Hört es sich _über etwas beten_, inklusive dem Buch Mormon nicht gut an? Oberflächlich betrachtet scheint es etwas komplett gefahrloses zu sein, aber ist es das wirklich, oder können die Einfältigen/Gutgläubigen durch solches irregeführt werden? Die Mormonen sagen oftmals etwas ähnliches wie diese Email von einem Heiligen der Letzten Tagen:
 
 > It is truly amazing what a loving God will reveal to those who **humble themselves and ask with a sincere heart and real intent!**
 
 Please note they like to use the word _sincere_, which is their cop out before those who dangerously and wrongfully _pray about the Book of Mormon_, but experience nothing, that is, **they receive no so-called _burning in the bosom_ and _testimony of the Holy Spirit_.** The implication is _you weren’t really sincere. If you were, you would have received this_ (supposed) _testimony of the Holy Spirit._
 
 
-## Is The _Testimony of the Holy Spirit_ (Burning In The Bosom) In The Bible
+## Ist Das _Zeugnis vom Heiligen Geist_ (Brennen Im Schoss) In Der Bibel
 
-Sometimes the Mormons will also misuse Bible passages for confirmation about praying to see if you get that special _burning in the bosom_ (or witness of the Holy Spirit)
+Manchmal werden Mormonen auch Bibelpassagen missbrauchen zur Bestätigung des Betens, um zu sehen, ob man das spezielle _Brennen im Schoss_ (oder Zeugnis des Heiligen Geistes) bekommt.
 
 > And beginning with Moses and all the Prophets, he [Jesus] explained to them what was said in all the Scriptures concerning himself. As they approached the village to which they were going, Jesus acted as if he were going farther. But they urged him strongly, “Stay with us, for it is nearly evening; the day is almost over.” So he went in to stay with them. When he was at the table with them, he took bread, gave thanks, broke it and began to give it to them. Then their eyes were opened and they recognized him, and he disappeared from their sight. They asked each other, “**Were not our hearts burning** within us while he talked with us on the road and opened the Scriptures to us?” (Luke 24:27-32)
 
-As one Mormon wrote regarding that passage:
+So schrieb ein Mormone bezüglich dieses Abschnitts:
 
-> Are you familiar with Luke 24:27-32? As Christ expounds the scriptures concerning himself, the Holy Spirit testifies of the truths He is speaking.
+> Bist du vertraut mit Lukas 24,27-32? Während Christ die Schrift erklärt bezüglich sich selbst, gibt der Heilige Geist Zeugnis über die Wahrheiten, die Er spricht.
 
-Did you notice the differences between what the Mormon suggested about _evidence for the Book of Mormon_ from that passage and what the disciples experienced, as cited in Luke 24:27-32? Please note the following: (1) They were already in the true faith before getting that _burning_; (2) The disciples didn't _pray about_ anything before getting that _burning,_ not one thing, (3) The _burning_ came after Jesus taught about himself from the Old Testament (Moses and all the Prophets). **Hence, there absolutely is no connection between Lk. 24:27-32 and praying about the book of mormon -- the LDS Scripture associated with a _Bible-defined false prophet_ ([Joseph Smith](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormons.html)).**
-
-
-## The _Mormon Challenge_ To Pray About The Book of Mormon
-
-The same Mormon followed up with this _Mormon challenge:_
-
-> Again, **I challenge you**. Are you affraid [sic] that God will answer you [sic] prayers and that you will have to change you [sic] thinking to His. His thoughts and words are higher than ours you know. ...he [the devil] can not duplicate the peace and joy that come from a witness from the Holy Spirit—from God. Throughout the Scriptures, when someone had an experience with God, there was NO ROOM FOR MISINTERPRETATION. Ask! Seek! Knock! **I challenge you** (Capital emphasis his).
-
-**They will try to apply the _pressure_, such as revealed there! Get ready for it.**
+Hast du die Unterschiede bemerkt zwischen dem, was der Mormone vorschlug über _Beweis für das Buch Mormon_ von diesem Absatz und dem, was die Jünger wie in Luke 24:27-32 angeführt erfuhren? Bitte beachte das folgende: (1) Sie waren bereits im wahren Glauben, bevor sie dieses _Brennen_ bekamen; (2) Die Jünger _beteten_ nicht _über_ irgendetwas bevor sie dieses _Brennen_ bekamen, sie beteten über gar kein Ding, (3) Das _Brennen_ kam nachdem Jesus über sich selbst lehrte vom Alten Testament (Von Moses und allen Propheten). **Daher gibt es absolut keine Verbindung zwischen Lk. 24,27-32 und dem Beten über das Buch Mormon -- der HLT-Schrift die in Zusthe LDS Scripture associated with a _Bible-defined false prophet_ ([Joseph Smith](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormons.html)).**
 
 
-## <a name="burning%20in%20the%20bosom"></a>A Christian Should Respond to the _Mormon Challenge_ With These Questions
+## Die _Aufforderung der Mormonen_ Über Das Buch Mormon Zu Beten
 
-**How should a Christian respond to the Mormon _challenge_ to _pray about_ evidence for the Book of Mormon and the _testimony of the Holy Spirit?_** You can ask them the following questions: (a) Have you ever prayed about the Koran, the Jehovah’s Witness Bible or Avesta? (b) Have you prayed about bowing before a Mary statue or reciting the **[rosary](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/rosary.html)?** (c) Should you pray about robbing a bank and giving the money to the poor?
+Derselbe Mormone followed up mit dieser _Mormonen Herausforderung:_
 
-**The obvious answer is, _there is no need to pray about anything that is not Biblical and is outside of God’s will,_ including all of those**. Because these things are unbiblical, if God would answer that prayer, it would always be in accord with His written word. But to ask God in prayer something he has already spoken about can be _testing God,_ which is also forbidden.
+> Nochmals, **ich fordere dich auf**. Hast du Anngst [sic] davor, dass Gott dein [sic] Gebete beantworten wird und dass du dei [sic] Denken auf Seines ändern musst. Weisst du, seine Gedanken und Worte sind höher als unsere. ... er [der Teufel] kann den _Frieden und_ die _Freude_ die von einem Zeugnis des Heiligen Geistes von Gott kommen nicht duplizieren/nachmachen. Durch die Schrift hindurch, wenn jemand eine Erfahrung mit Gott hatte, gab es KEINEN SPIELRAUM FÜR FEHLINTERPRETATION. Frage! Erbitte! Klopfe! **ich fordere dich auf** (Grossbuchstaben von ihm).
+
+**Sie werden versuchen _Druck_ anzuwenden, wie hier geoffenbart! Mach dich bereit dafür.**
+
+
+## <a name="burning%20in%20the%20bosom"></a>Ein Christ Sollte auf die _Mormonen Herausforderung_ Mit Diesen Fragen Reagieren/Antworten
+
+**How should a Christian respond to the Mormon _challenge_ to _pray about_ evidence for the Book of Mormon and the _testimony of the Holy Spirit?_** You can ask them the following questions: (a) Hast du schon jemals über den Koran, die Bibel der Zeugen Jehovas oder Avesta gebetet? (b) Hast du darüber gebete, dich vor einer Marienstatue zu verneigen, oder den **[Rosenkranz](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/rosary.html)** aufzusagen? (c) Sollte man darüber beten, eine Bank auszurauben und das Geld den Armen zu geben?
+
+**Die offensichtliche Antwort ist, _es ist kein Bedarf, um über irgend etwas zu beten, was nicht biblisch und ausserhalb von Gottes Willen ist_ inklusive alle oben erwähnten Dinge**. Da diese Dinge unbiblisch sind, falls Gott dieses Gebet beantworten würde, so wäre es immer in Übereinstimmung mit seinem geschriebenen Wort. Aber Gott im Gebet um etwas zu fragen, worüber er bereits gesprochen hat, kann auch _Gott herausfordernd_ sein, was ebenfalls verboten ist.
 
 **Remember also that Paul never asked any potential converts to _pray about_ his message**. What he taught was found in the Scriptures and they could verify it and join the group of _wise_ people, if they would **[repent](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html)** and submissively place their faith in Jesus Christ to follow him. See Acts 17:11,12 cf. Acts 20:21; etc.
 
 Again, be on your guard. To pray about something like the Book of Mormon (the LDS Bible) or bowing before a Mary statue can allow the **[devil](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/devil.html)** to give you an _experience_ that will deceive you. A _burning in the bosom_ from such would not be _the testimony of the Holy Spirit,_ as the Latter Day Saint people like to say/think. **This is very important to remember and tell others about.**
 
-**One of my family members _prayed about_ the [Jehovah's Witnesses](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html) and got _a burning in the bosom_ about that false religion. Is God giving the burning in the bosom experience to the Mormons and people who pray about the Jehovah’s Witnesses too? It would be impossible because these two beliefs are poles apart from each other. (These facts would also be good to share with the Mormon missionaries when they get emphatic about you praying about the Book of Mormon.) Do you remember what the aforementioned Mormon wrote about _peace and joy_ from the Holy Spirit? In part he wrote:**
+**Eines meiner Familienmitgliedern _betete über_ die [Zeugen Jehovas](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jehovahs-witnesses-answered.html) und bekam _ein Brennen im Schoss_ über diese falsche Religion. Gibt Gott die Erfahrung des Brennens im Schoss auch Leuten, die über die Zeugen Jehovas beten? Dies wäre unmöglich, da sich diese zwei Glaubensvorstellungen beträchtlich von einander unterscheiden. (Diese Fakten wären auch gut, wenn man sie mit den Mormonen-Missionaren teilt, wenn sie empathisch darüber werden, dass man über das Buch Mormon betet.) Erinnerst du dich daran, was der oben erwähnte Mormone schrieb bezüglich _Friede und Freude_ vom Heiligen Geist? Zum Teil schrieb er:**
 
-> **... he [the devil] can not duplicate the _peace and joy_ that come from a witness from the Holy Spirit from God.**
+> **... er [der Teufel] kann den _Frieden und_ die _Freude_ die von einem Zeugnis des Heiligen Geistes von Gott kommen nicht duplizieren/nachmachen.**
 
 
-## Is The Devil Deceiving People About LDS Scripture
+## Täuscht Der Teufel Leute Bezüglich HLT Schriften
 
-Again the Mormons, like many others, are wrong about this. **Yes, the devil can duplicate _peace_**. That is what he does in transcendental meditation (TM) and also in **[Catholicism](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)** after one receives the _**[Eucharist](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eucharist.htm)**_. The devil uses these and other experiences to deceive. Please remember this: **Any experience, testimony, [dream](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/dreams.htm), vision, prophecy, teaching, etc. that is supposed to be from God but doesn’t align itself with the [Bible](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) is _not from God_ at all**. The devil can and has used all of the above.
+Nochmals, die Mormonen, wie viele andere irren sich diesbezüglich. **Ja, der Teufel kann _Friede_ duplizieren**. Das ist das, was er in Transzendentaler Meditation (TM) macht und auch im **[Katholizismus](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)** nachdem jemand die _**[Eucharistie](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eucharist.htm)**_ empfängt. Der Teufel gebraucht diese und andere Erfahrungen um zu verführen/irrezuführen. Bitte merke dir folgendes: **Jegliche Erfahrung, Zeugnis, [Traum](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/dreams.htm), Vision, Prophetie, Lehre, etc. die angeblich von Gott kommt, aber sich nicht deckt mit der [Bibel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) ist überhaupt _nicht von Gott_**. Der Teufel kann und hat alle obigen Dinge gebraucht.
 
-**Go by the Bible alone and be safe.** 2 Tim. 3:16,17 tells us that the man of God (Christian) is _thoroughly equipped for every good work_ **with the Scriptures (the Bible) alone.** Remember the **[Book of Mormon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html)** is not _another testament of Jesus Christ_, but is counterfeit Scripture similar to the Koran and like the perverted **[Jehovah's Witness Bible](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)** (_The New World Translation)_.
+**Richte dich allein nach der Bibel, so bist du auf der sicheren Seite.** 2 Tim. 3,16-17 sagt uns, dass der Mensch Gottes (Christ) _vollkommen ausgerüstet ist zu jedem guten WErke_ **mit der Schrift (der Bibel) allein.** Merke dir, das **[Buch Mormon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon-1.html)** ist kein _weiterer Zeuge für Jesus Christus_, sondern ist gefälschte Schrift ähnlich zum Koran oder der pervertierten **[Zeugen Jehovas Bibel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/nwt.html)** (_Die Neue Welt Übersetzung)_.
 
-Remember **the evidence** states the Latter Day Saint church and their LDS Scriptures are not of God. **We, therefore, don’t lack _wisdom_ about the Book of Mormon or Mormonism itself**. Remember those truths when **[witnessing to Mormons](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html).** (So if they mention James 1:5 about _any man lacking wisdom_, answer as just cited.) It is not only futile to pray about the Book of Mormon it is also _dangerous,_ for it can open a person up to a Satanic deception. The devil can give you a _burning in the bosom_ and has done so to deceive precious souls.
+Merke dir, **die Beweise** stehen dafür, dass die Heiligen der Letzten Tage Kirche und ihre HLT Schriften nicht von Gott sin. **Daher mangelt es uns nicht an _Weisheit_ über das Buch Mormon oder dem Mormonentem selbst**. Merke dir diese Wahrheiten, wenn du **[Mormonen bezeugst](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html).** (Falls sie also Jakobus 1,5 zitieren bezüglich _irgendjemandem, dem es an Weisheit mangelt_, antworte wie gerade angeführt.) Es ist nicht nur sinnlos, über das Buch Mormon zu beten, es ist zudem _gefährlich_ denn es kann eine Person für eine satanische Verführung aufschliessen. Der Teufel kann einem ein _Brennen im Schoss geben_ und hat dies auch schon gemacht, um wertvolle Seelen zu verführen.
 
-![burning in the bosom Pray About The Book Of Mormon](../../files/pictures/line2.gif)
+![Brennen im Schoss Beten Über Das Buch Mormon](../../files/pictures/line2.gif)
 
-**OTHER TOPICS:**
+**WEITERE THEMEN:**
 
-- **[Former Roman Catholic](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)**
+- **[Ehemaliger Römisch Katholischer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)**
 
-- **[The New Creation In Christ Radical Change](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/new-creation.html)**
+- **[Die Neue Schöpfung In Christus Radikale Veränderung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/new-creation.html)**
 
-- **[Plan Of Salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
+- **[Plan Der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
 
-- **[How You Can Live Forever and Never Die](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/liveforever.htm)**
+- **[Wie Man Ewig Leben Kann Und Niemals Stirbt](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/liveforever.htm)**
 
-- **[Pray About Book Of Mormon](../../files/pictures/mormon-burning-in-the-bosom.pdf) Cartoon -- pdf**
+- **[Beten Über Das Buch Mormon](../../files/pictures/mormon-burning-in-the-bosom.pdf) Cartoon -- pdf**
 
-- **[Eternal Security or Conditional Security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)**
+- **[Ewige Sicherheit oder Bedingte/Konditionale Sicherheit](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

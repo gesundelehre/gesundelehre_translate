@@ -1,5 +1,5 @@
 <!--t Ewige Sünde, Unverzeihliche Sünde und Lästerung des Heiligen Geistes - in Arbeit (0% übersetzt) t-->
-<!--d Ewige Sünde, Unverzeihliche Sünde und Lästerung des Heiligen Geistes - in Arbeit (0% übersetzt) d-->
+<!--d d-->
 
 Ewige Sünde, Unverzeihliche Sünde und _Lästerung des Heiligen Geistes_
 
@@ -73,11 +73,11 @@ In summary: _Blasphemy of the Holy Spirit_ or _eternal sin_ is **only**  committ
 
 Folks, remember forgiveness and freedom from sin’s addictions are **_only_** found in the Lord Jesus. When you come to first time [**salvation**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html) you will become a [**new creation in Christ**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/new-creation.html). **Do not be deceived: All who _do evil_ will be thrown into the fiery furnace:**
 
-> The Son of Man will send out his angels, and they will weed out of his kingdom **everything that causes sin and all who do evil. They will throw them into the fiery furnace,** where there will be weeping and gnashing of teeth. (Mat 13:41,42)
+> Des Menschen Sohn wird seine Engel aus-senden, und sie werden aus seinem Reiche sammeln **alle Aergernisse und die da Unrecht thun, und werden sie in den Feuerofen werfen**; daselbst wird das Heulen und das Zähneknirschen sein. (Mt 13,41-42; Schlachter 1905)
 
 Turn from your sins and place a **_submissive_** faith in the Lord Jesus for salvation. Follow him unashamedly. **No person or sin is worth going to hell over.** The real salvation issue is this: **Are you following Jesus NOW? The question, _have you ever been born again_ is not the key question for present tense salvation and implies a belief in [once saved always saved](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html). Again, the issue is, where are you at this _present time?_ Hopefully, these Bible truths about _unforgivable sin, eternal sin and blasphemy of the Holy Spirit_ have helped you.**
 
-![Unforgivable Sin](../files/pictures/a-colorb.gif)
+![Unverzeihliche Sünde](../files/pictures/a-colorb.gif)
 
 - **Buy The NO [Eternal Security Book](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/evangelical-books.html)**
 
@@ -100,4 +100,4 @@ Turn from your sins and place a **_submissive_** faith in the Lord Jesus for sal
 **EvangelicalOutreach.org**  
 **EternalLifeBlog.com**
 
-**[Contact Us Or Join Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+**[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**

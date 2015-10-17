@@ -1,5 +1,5 @@
-<!--t Buch Mormon - in Arbeit (0% übersetzt) t-->
-<!--d d-->
+<!--t Buch Mormon (98% übersetzt) t-->
+<!--d on this site there has been something added by www.gesundelehre.tk to the translation of the original, see paragraph A, reference to Doc. & Coc. 132:38-39 was added d-->
 
 Buch Mormon
 
@@ -15,139 +15,142 @@ Quelle: [www.evangelicaloutreach.org/book-of-mormon-1.htm](http://gesundelehre.t
 
 ### Dan Corner
 
-![book of mormon](../../files/pictures/evangelical-pray-about-the-book-of-mormon.jpg)
+![Das Buch Mormon](../../files/pictures/evangelical-pray-about-the-book-of-mormon.jpg)
 
-![Book Of Mormon](../../files/pictures/a-colorb.gif)
+![Das Buch Mormon](../../files/pictures/a-colorb.gif)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=300&pubid=xa-52e6f3bc26a5a9da)
 
 
-## How Can a Mormon Ignore These Devastating Facts About The Book of Mormon?
+## Wie Können Mormonen Diese Verheerenden Fakten Bezüglich Dem Buch Mormon Ignorieren?
 
 
-## A. The Book Of Mormon Contradicts Doctrine and Covenants.
+## A. Das Buch Mormon Widerspricht Lehre und Bündnisse.
 
-[![Book Of Mormon](../../files/pictures/book-of-mormon.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon.htm)
+[![Das Buch Mormon](../../files/pictures/book-of-mormon.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon.htm)
 
-David and Solomon were condemned for their polygamy.
+David und Solomo wurden aufgrund ihrer Polygamie verurteilt.
 
-> Behold, David and Solomon truly had many wives and concubines, which thing was **abominable** before me, saith the Lord, (Jacob 2:24).
+> Siehe, David und Salomo hatten wahrhaftig viele Frauen und Nebenfrauen, und das war ein **Greuel** vor mir, spricht der Herr. (Jakob 2,24).
 
-In contrast to the Book of Mormon, Doctrine and Covenants states that David and Solomon were justified because of polygamy:
+Im Gegensatz zum Buch Mormon, besagt Lehre und Bündnisse, dass David und Solomo aufgrund Polygamie gerechtfertigt wurden:
 
-> Verily, thus saith the Lord unto you my servant Joseph, that inasmuch as you have inquired of my hand to know and understand wherein **I, the Lord, justified** my servants Abraham, Isaac, and Jacob, as also Moses, **David and Solomon, my servants, as touching the principle and doctrine of their having many wives and concubines. (Doc. & Cov. 132:1)**
+> WAHRLICH, so spricht der Herr zu dir, mein Knecht Joseph: Da du von meiner Hand erfragt hast und wissen und verstehen willst, inwiefern **ich, der Herr**, meine Knechte Abraham, Isaak und Jakob **gerechtfertigt habe**, und auch Mose, **David und Salomo, meine Knechte, was den Grundsatz und die Lehre betrifft, daß sie viele Frauen und Nebenfrauen gehabt haben— (Lehre & Bündnisse 132,1)**
 
-**It is irrational to believe both the _Book of Mormon and Doctrine and Covenants_ are scripture just based on that major contradiction alone! Both sources can't be right. Logic says the Book of Mormon is wrong or Doctrine and Covenants is wrong, but both can't be right! It's impossible.**
+[Zusatz von www.gesundelehre.tk: Siehe übrigens auch Lehre & Bündnisse 132,38-39: > "38 **David empfing ebenfalls viele Frauen und Nebenfrauen, und auch Salomo** und Mose, meine Knechte, ebenso viele andere meiner Knechte vom Anfang der Schöpfung an bis zu dieser Zeit; **und in nichts sündigten sie als nur in dem was sie nicht von mir empfangen hatten** 39 Davids Frauen und Nebenfrauen wurden ihm von mir durch die Hand Natans, meines Knechtes, gegeben sowie anderer Propheten, die die Schlüssel dieser Macht innehatten; und in nichts von diesem hat er gegen mich gesündigt als nur im Fall des Urija und dessen Frau; und darum ist er von seiner Erhöhung gefallen und hat sein Teil empfangen; und außerhalb der Welt wird er seine Frauen nicht ererben, denn ich habe sie einem anderen gegeben, spricht der Herr."]
 
-**<big>[What Everybody Ought To Know About Mormonism: Read One Sad Account](#book%20of%20mormon)</big>**
+**Es ist irrational/vernunftswidrig, zu glauben, dass beides das _Buch Mormon und Lehre und Bündnisse_ zur Heiligen Schrift gehören allein schon basierend auf diesem wesentlichen Widerspruch! Beide Quellen können nicht richtig sein. Logik besagt, dass entweder das Buch Mormon oder Lehre & Bündnisse falsch ist, aber beide können nicht richtig sein! Es ist unmöglich.**
 
-
-## B. The Book Of Mormon Condemns Joseph Smith For His Polygamy!
-
-**Joseph Smith, Jr. had approximately 33 wives, 11 of whom also had a second husband! Besides the above quote from Jacob 2:24, various other verses in the Book of Mormon likewise condemn polygamy, and includes all such Mormons!**
-
-> Behold, the Lamanites your brethren, whom ye hate because of their filthiness and the cursing which hath come upon their skins, are **more righteous than you; for they have not forgotten the commandment of the Lord, which was given unto our father-that they should have save it were one wife, and concubines they should have none,** and there should not be whoredoms committed among them. (Jacob 3:5)
-
-1\. See Jacob 1:15; 2:23,24,27,31; 3:5; Mosiah 11:2-4; Ether 10:5,7.
+**<big>[Was Jeder Über Das Mormonentum Wissen Sollte: Lies Einen Traurigen Bericht](#book%20of%20mormon)</big>**
 
 
-## C. The Book Of Mormon Refutes Mormon Doctrine.
+## B. Das Buch Mormon Verurteilt Joseph Smith Aufgrund Seiner Polygamie!
 
-1\. The Father, Son and Holy Ghost are ONE God, not three (Alma 11:44b; Mormon 7:7; 2 Nephi 31:21b and the last sentence in Testimony of Three Witnesses).
+**Joseph Smith, Jr. hatte ungefähr 33 Frauen, von welchen 11 davon auch einen zweiten Ehemann hatten! Neben obigem Zitat von Jacob 2:24 verurteilen verschiedene andere Verse im Buch Mormon gleichermassen Polygamie, und schliessen alle solche Mormonen mit ein!**
 
-2\. God is unchanging, not changing (Moroni 7:22; 8:18; Mormon 9:9,19; 3 Nephi 24:6).
+> 5 Siehe, die Lamaniten, eure Brüder, die ihr wegen ihres Schmutzes und des Fluches, der ihre Haut betroffen hat, haßt, sind **rechtschaffener als ihr; denn sie haben das Gebot des Herrn, das unserem Vater gegeben worden ist, nicht vergessen—daß sie nur eine Frau haben sollen, und Nebenfrauen sollen sie keine haben,** und es solle keine Hurerei unter ihnen begangen werden. (Jakob 3:5)
 
-[![book of mormon celestial marriage](../../files/pictures/celestial-marriage-mormonism.jpg "book of mormon celestial marriage")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsbeliefs.htm)
-
-3\. God is NOT flesh and bones, but instead a spirit (Alma 31:15; 22:9-11; 18:24-28). Remember, Jesus said a spirit does NOT have flesh and bones (Lk. 24:39).
+1\. See Jakob 1,15; 2,23-24.27.31; 3,5; Mosia 11,2-4; Ether 10,5,7.
 
 
-## D. The Book Of Mormon Contains a False Prophecy.
+## C. Das Buch Mormon Widerlegt Mormonische Lehre.
 
-1\. "And thus prophesied Joseph, saying: Behold, that seer will the Lord bless; and they that seek to destroy him shall be confounded..." (2 Nephi 3:14).
+1\. Der Vater, Sohn und Heiliger Geist sind EIN Gott, nicht drei (Alma 11,44b; Mormon 7,7; 2 Nephi 31,21b und der letzte Satz in Testimony of Three Witnesses).
 
-COMMENT: Smith's enemies were not confounded but successful when they desired to destroy him on June 27, 1844 in Carthage, Illinois!
+2\. Gott ist unveränderlich, nicht sich nicht ändernd (Moroni 7,22; 8,18; Mormon 9,9.19; 3 Nephi 24,6).
 
+[![Das Buch Mormon Himmliche Hochzeit](../../files/pictures/celestial-marriage-mormonism.jpg "Das Buch Mormon Himmliche Hochzeit")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsbeliefs.htm)
 
-## E. The Book Of Mormon is Refuted by Anthropology.
-
-1\. The Smithsonian Institution's Dept. Of Anthropology declares the Americas did NOT have steel or horses BEFORE 1492! The Book of Mormon (600 B.C. to 421 A.D.) claims each.
-
-> a. Steel (1 Nephi 4:9).
-
-> b. Horses (Alma 18:9).
-
-2\. Gordon H. Fraser, anthropologist and ethnologist, agrees with the Smithsonian Institution and adds that copper (Mosiah 8:10) was unknown at that early date as referred to in the Book of Mormon!
+3\. Gott ist NICHT Fleisch und Knochen, sondern stattdessen ein Geist (Alma 31:15; 22:9-11; 18:24-28). Denk daran, Jesus sagte, dass ein Geist NICHT Fleisch und Knochen/Bein hat (Lk. 24,39).
 
 
-## F. The Book Of Mormon Allegedly Contains the Fullness of the Everlasting Gospel (Doc. & Cov. 27:5), but doesn't mention the following:
+## D. Das Buch Mormon Enthält eine Falsche Prophetie.
 
-1\. God the Mother, men can become gods, God is an exalted man, marriage for eternity, [**baptism for the dead**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptized-for-the-dead.htm), etc.
+1\. "Und so hat Joseph prophezeit, nämlich: Siehe, diesen Seher wird der Herr segnen; und wer danach trachtet, ihn zu vernichten, wird zuschanden werden..." (2 Nephi 3,14).
 
-COMMENT: According to Doc. & Cov. 128:17, baptism for the dead is the "most glorious of all subjects belonging to the everlasting gospel." However, it's not even mentioned in the Book of Mormon!
-
-
-## G. The Book Of Mormon Wrongly Labeled The "Most Correct Book" (History of the Church, Vol. 4, p. 461).
-
-1\. The Book of Mormon had 3,913 changes from the original 1830 edition!
-
-> a. The 1830 edition of the Book of Mormon calls [**Joseph Smith**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormons.html) the "author and proprietor."
-
-## H. The Book Of Mormon Claims Itself To Be UNtrustworthy.
-
-1\. May have errored (1 Nephi 19:6), wrote from memory (Ether 5:1), wrote to the best of THEIR knowledge (Jacob 7:26; Mormon 9:32), wrote as a result of HUMAN command (Mormon 8:1; Jacob 1:2), wrote what they considered precious (Jacob 1:2) and implies imperfection in their record (Mormon 9:32,33).
-
-COMMENT: Unlike the Book of Mormon, the Bible claims itself to be the inspired Word of God. See 2 Tim. 3:16,17; 2 Pet. 1:21.
+KOMMENTAR: Smiths Feinde wurden nicht verflucht, sondern waren erfolgreich als sie begehrten, ihn am 27. Juni 1844 in Carthage, Illinois zu vernichten/beseitigen!
 
 
-## I. Three Witnesses For The Book of Mormon.
+## E. Das Buch Mormon wird durch Anthropologie/Menschenkunde Widerlegt.
+
+1\. Das Departement Der Anthropologie des Smithsonian Insitut gibt an, dass die Amerikaner WEDER Stahl noch Pferde hatten VOR 1492! Das Buch Mormon (600 B.C. bis 421 A.D.) behauptet beides.
+
+> a. Stahl (1 Nephi 4,9).
+
+> b. Pferde (Alma 18,9).
+
+2\. Gordon H. Fraser, Anthropologe und Ethnologe, stimmt der Smithsonian Institution überein und fügt hinzu, dass Kupfer (Mosiah 8,10) unbekannt war zum frühen Zeitpunkt auf welchen im Buch Mormon Bezug genommen wird!
+
+
+## F. Das Buch Mormon Beinhaltet Angeblich Die Fülle des Immerwährenden Evangeliums (Lehre & Bündnisse 27,5), aber erwähnt die folgenden Dinge nicht:
+
+1\. Gott die Mutter, Menschen können Götter werden, Gott ist ein verherrlichter Mensch, Ehe für die Ewigkeit, [**Taufe für die Toten**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptized-for-the-dead.htm), etc.
+
+COMMENT: Laut Lehre & Bündnisse 128,17 ist Taufe für die Toten "dieses herrlichste aller Themen, die zum immerwährenden Evangelium gehören" Solches ist im Buch Mormon jedoch nicht einmal erwähnt!
+
+
+## G. Das Buch Mormon Wird Fälschlicherweise Als Das "Korrekteste Buch" (History of the Church, Vol. 4, p. 461) Bezeichnet.
+
+1\. Das Buch Mormon hatte 3'913 Veränderungen seit der ursprünglichen Ausgabe in 1830!
+
+> a. Die 1830-er Ausgabe des Buchs Mormon bezeichnet [**Joseph Smith**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormons.html) als den "Autor und Inhaber/Besitzer."
+
+
+## H. Das Buch Mormon Gibt Selbst An, Dass Es NICHT Vertrauenswürdig Sei
+
+1\. Viele haben sich geirrt (1 Nephi 19,6), schrieben aus dem Gedächtnis (Ether 5,1), haben nach IHREM besten Wissen und Gewissen geschrieben (Jacob 7,26; Mormon 9,32), schrieben als Folge von MENSCHLICHEM Befehl (Mormon 8,1; Jakob 1,2), schrieben was sie als wertvoll erachteten (Jakob 1,2) und es wird auch Unvollkommenheit in der Niederschrift eingeschlossen (Mormon 9,32-33).
+
+KOMMENTAR: Im Gegensatz zum Buch Mormon, gibt die Bibel an, das inspirierte Wort Gottes zu sein. Siehe 2. Tim. 3,16-17; 2 Petr. 1,21.
+
+
+## I. Drei Zeugen Für Das Buch Mormon.
 
 1\. Martin Harris
 
-> a. Claimed he visited the moon (The Story of the Mormons, New York, 1902, p. 35).
+> a. Behauptete, dass er den Mond besucht habe (The Story of the Mormons, New York, 1902, p. 35).
 
-> b. Called "wicked" (Doc. & Cov. 3:12,13 and 10:6,7).
+> b. "schlecht" (=boshaft) genannt (Lehre & Bündnisse 3,12-13 und 10,6-7).
 
 2\. Oliver Cowdery
 
-> a. Was a thief (Letter quoted in Senate Document 189, Feb. 15, 1841, pp. 6-9).
+> a. War ein Dieb (Brief zitiert im Senate Document 189, Feb. 15, 1841, pp. 6-9).
 
-> b. Attempted counterfeiter (A History of the Latter-day Saints in Northern Missouri From 1836 to 1839, p. 146).
+> b. Ein Versuchter Fälscher (A History of the Latter-day Saints in Northern Missouri From 1836 to 1839, p. 146).
 
 3\. David Whitmer
 
-> a. Said in the Spring of 1838 the heads of the church and many of the members had gone deep into ERROR and BLINDNESS (An Address to all Believers in Christ, by David Whitmer, 1887, pp. 27,28).
+> a. Sagte im Frühling von 1838, dass die Leiter der Kirche und viele ihrer Mitglieder tiefem IRRTUM und BLINDHEIT verfallen waren (An Address to all Believers in Christ, by David Whitmer, 1887, pp. 27,28).
 
-> b. Was likened unto a "dumb ass" by Joseph Smith (History of the Church, Vol. 3, p. 228).
+> b. Wurde von Joseph Smith mit einem "blöden Esel" verglichen (History of the Church, Vol. 3, p. 228).
 
-4\. All three apostatized (Journal of Discourses, Vol. 7, pp. 114,115).
-
-
-## Concluding Comments About The _Book of Mormon_
-
-Friend, there is no need to [**pray about the Book of Mormon**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon.htm) or Mormonism in general in light of the aforementioned facts! To become a Christian, go directly to God in sincere, humble and repentant prayer asking for mercy because of your sins (Lk. 18:13). Know that Christ bought our salvation with His own blood (Isa. 53:6; Col. 1:14; Eph. 2:13). Place all 100% of your TRUST in Jesus for your salvation (Acts 16:30,31; Jn. 6:47; etc.) as you obey, follow and submit to Him (Lk. 9:23-26; Acts 20:21; Acts 10:43; etc.). [**Baptism**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptism.html) and good works play no role in initial salvation (Eph. 2:8,9; Titus 3:5; Rom. 11:6). "We have come to share in Christ if we hold firmly till the end the confidence we had at first" (Heb. 3:14). **Study your [Bible](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) and only the Bible to learn about salvation. The Book Of Mormon is not the word of God nor is it reliable.**
+4\. Alle drei fielen ab/wurden abtrünnig (Journal of Discourses, Vol. 7, pp. 114,115).
 
 
-### **Please pass this article on to a Mormon friend or anyone who has a Book of Mormon.**
+## Abschliessende Kommentare Bezüglich Dem _Buch Mormon_
+
+Freund, es gibt keinen Bedarf, [**über das Buch Mormon zu beten**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon.htm) oder über das Mormentum im Allgemeinen im Licht der vorgenannten Fakten! Um ein Christ zu werden, geht direkt zu Gott in aufrichtigen, demütigen und bussfertigem Gebet und bitte um Barmherzigkeit für deine Sünden (Lk. 18,13). Wisse, dass Christus unsere Errettung/unser Heil mit seinem Blut gekaut hat (Jes. 53,6; Kol. 1,14; Eph. 2,13). Setze alle 100% deines VERTRAUENS auf Jesus für deien Errettung/dein Heil (Apg 16,30-31; Joh. 6,47; etc.) während du ihm gehorchst, folgst und dich Ihm unterwirfst (Lk. 9,23-26; Apg 20,21; Apg 10,43; etc.). [**Taufe**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptism.html) und gute Werke spiele keine Rolle in anfänglicher Errettung (Eph. 2,8-9; Titus 3,5; Rom. 11,6). "Denn wir sind Christi Genossen, wenn wir die anfängliche Zuversicht [standhaft] bis ans Ende festbehalten" (Heb. 3,14). **Studiere deine [Bibel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) und nur die Bibel, um über Errettung zu lernen. Das Buch Mormon ist nicht das Wort Gottes, noch ist es zuverlässig..**
 
 
-## A Mormon's Wife Testifies
+### **Bitte gib diesen Artikel an einen Freund weiter, der ein Mormone ist, oder ein Buch Mormon besitzt.**
 
-<a name="book%20of%20mormon"></a>I am a victim of [**Mormonism**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html) as, I guess, many are. My husband took out our retirement savings to pay his so-called "tithing". I no longer have a companion....He yelled at me because I put one of his "magic underwear" components on the floor. I'm left alone many times, especially on Sunday. When he first became a Mormon, he was not told about temple worship, magic underwear, the [**perverted doctrine that is normally withheld from investigators**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsbeliefs.htm). I wonder if this deception or "bait and switch" technique of merchandising people's souls can be stopped. I know the Mormon church is big and rich from poor people's money who are scared they won't be admitted to the celestial kingdom, but maybe if enough people are appalled and scarred from Mormonism, a class action suit can be entered against this terrible pseudo-Christian religion.
 
-![Book Of Mormon](../../files/pictures/a-colorb.gif)
+## Die Frau Eines Mormonen Bezeugt
 
-- **[Mormonism teaches all other religious creeds are an abomination](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsabomination.htm)**
+<a name="book%20of%20mormon"></a>Ich bin ein Opfer vom [**Mormonentum**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/mormon.html) wie viele, denke ich. Mein Ehemann hob alle unsere Ersparnisse für den Ruhestand ab, um seinen so-genannten "Zehnten" zu bezahlen. Ich habe keinen Gefährten mehr....Er schrie mich an, weil ich eine seiner "magischen Unterwäsche"-Bestandteile auf den Boden tat. Ich werde zu Hause oft alleine gelassen, speziell am Sonntag. Als er zuerst ein Mormone wurde, wurde ihm nichts gesagt von der Anbetung im Tempel, magischer Unterwäsche, die [**pervertierten Lehren, die normalerweise vor Ermittlern zurückgehalten werden**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsbeliefs.htm). Ich frage mich, ob diese Täuschung oder Lochvogeltaktik wo mit Menschenseelen gehandelt wird, gestoppt werden kann. Ich weiss, dass die Mormonenkirche gross und reich ist aufgrund vom Geld von armen Leuten, die verängstigt sind, nicht ins himmlische Königreich gelassen zu werden, aber wenn vielleicht genug Leute entsetzt und mit Narben bedeckt sind vom Mormonentum, kann ev. a class action suit can be entered gegen diese schreckliche pseudo-christliche Religion.
 
-- **[Should you pray about the Book of Mormon?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon.htm)**
+![Das Buch Mormon](../../files/pictures/a-colorb.gif)
 
-- **[Baptism for the dead](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptized-for-the-dead.htm)**
+- **[Mormonismus Lehrt Alle Andern Religiösen Credo Sind Ein Greuel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsabomination.htm)**
 
-- **[Real Mormon Teachings](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsbeliefs.htm)**
+- **[Solltest du über das Buch Mormon beten?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/book-of-mormon.htm)**
 
-- **[Plan Of Salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
+- **[Taufe für die Toten](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/baptized-for-the-dead.htm)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+- **[Tatsächliche Mormonen-Lehren](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ldsbeliefs.htm)**
+
+- **[Plan Der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)**
+
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

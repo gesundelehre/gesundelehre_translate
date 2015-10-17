@@ -1,4 +1,4 @@
-<!--t Von Heirat-Scheidung-Wiederverheiratung-Ehebruch - in Arbeit (0% übersetzt) t-->
+<!--t Von Heirat-Scheidung-Wiederverheiratung-Ehebruch - in Arbeit (80% übersetzt) t-->
 <!--d Heirat, Ehe, Ehebruch, Scheidung, Wiederverheiratung, Wiederheirat, Unzucht, Hurerei d-->
 
 Lehre bezüglich Heirat-Scheidung-Wiederverheiratung-Ehebruch
@@ -8,224 +8,226 @@ Lehre bezüglich Heirat-Scheidung-Wiederverheiratung-Ehebruch
 
 # Nachfolgend die Übersetzung der Datei von [evangelicaloutreach.org/divorce.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/divorce.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/unzucht-homosexualitaet-ehebruch/heirat-scheidung-wiederverheiratung-ehebruch.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
 
-Source: [www.evangelicaloutreach.org/divorce.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/divorce.html)
+Quelle: [www.evangelicaloutreach.org/divorce.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/divorce.html)
 
 
 Scheidung, Wiederverheiratung und Ehebruch
 ===
 
-**An actual post and a Biblical response.**
+**Ein tatsächliche Nachricht und eine biblische Antwort.**
 
 ### Dan Corner  
 
-**[Pat Robertson's Horrific Advice on Divorce](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/pat-robertson-divorce.mp3)** (mp3)  
-**[Pat Robertson](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/patrobertson.html) Receives The Skull and Crossbones Award for Teaching Eternal Security**
+**[Pat Robertson's Entsetzlicher Ratschlag Bezüglich Scheidung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/audio/pat-robertson-divorce.mp3)** (mp3)  
+**[Pat Robertson](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/patrobertson.html) Erhält den Skull and Crossbones Award dafür, dass er Ewige Sicherheit Lehrt**
 
 [![Bookmark and Share](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 <script type="text/javascript" src="http://s7.addthis.com/js/250/addthis_widget.js#username=xa-4ce723c86d857fe0"></script>
 
-![divorce remarriage adultery](../files/pictures/evangelical-outreach-divorce-remarriage-adultery.jpg "divorce remarriage adultery")
+![Scheidung Wiederheirat Ehebruch](../files/pictures/evangelical-outreach-divorce-remarriage-adultery.jpg "Scheidung Wiederheirat Ehebruch")
 
-[![Adultery Divorce Remarriage](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0) 
+[![Ehebruch Scheidung Wiederheirat](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0) 
 
-![Divorce Remarriage ADULTERY](../files/pictures/021.gif)
-## There Is An Epidemic Of Divorce and Remarriage (Adultery) 
+![Scheidung Wiederheirat Ehebruch](../files/pictures/021.gif)
+## Es Gibt Eine Epidemie Von Scheidung und Wiederverheiratung (Ehebruch)
  
  
-[![Eternal Security or Once Saved Always Saved LIE](../files/pictures/carnal-christians-osas.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antinomianism.htm) 
+[![Ewige Sicherheit oder Einmal Gerettet Immer Gerettet LÜGE](../files/pictures/carnal-christians-osas.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antinomianism.htm) 
 
-**[INTERNET POST BY UNKNOWN MAN Regarding *Divorce and Remarriage*]**  
-> I really need some input here. If a Christian man (me) *divorces* his wife due to incompatibility and neglect (and various other mental anguish associated with a marriage that could not/would not be fixed even with MUCH prayer), and has a significant female other who is also a Christian and *divorced* due to abuse and mental cruelty, can they (we) marry each other after being truly forgiven by God for divorcing our spouses? She and I are SO much in love and we want to serve the Lord together as husband and wife. We have read the Bible and seen prohibition of marriage of divorced people, but we know so many Christian couples who are both divorced and remarried and have good, solid marriages and serve the Lord well.  
-Thanks for your help. 
+**[INTERNET POST/NACHRICHT VON UNBEKANNTEM MANN Bezüglich _Scheidung und Wiederheirat_]**  
+> Ich brauche hier wirklich eine Hilfestellung [_engl. input_]. Falls ein christlicher Mann (ich) sich von seiner Frau _scheidet_ aufgrund von Unvereinbarkeit und Vernachlässigung (und verschiedene andere mentale Schmerzen verbunden mit einer Ehe, die selbst mit VIEL Gebet nicht wieder hinbekommen werden könnte/würde), und eine signifikante weibliche Person hat, welche auch eine Christin und _geschieden_ ist aufgrund von Missbrauch und mentale Grausamkeit, können sie (wir) einander heiraten, nachdem uns von Gott wirklich vergeben wurde dafür, dass wir uns von unsern Ehegatten geschieden haben? Wir sind wirklich SO sehr ineinander verliebt und wollen dem Herrn zusammen als Ehemann und Ehefrau dienen. Wir haben die Bibel gelesen und gesehen dass Heirat von geschiedenen Leuten verboten ist, aber wir kennen so viele christlichen Paare, welche beide geschieden und wiederverheiratet sind und eine gute, solide Ehe haben und dem Herrn gut dienen.
+Danke für deine Hilfe. 
 
-[![divorce remarriage adultery](../files/pictures/divorce-remarriage-adultery_de.jpg "divorce remarriage adultery")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance-from-remarriage-adultery.html)
+[![Scheidung Wiederheirat Ehebruch](../files/pictures/divorce-remarriage-adultery_de.jpg "divorce remarriage adultery")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance-from-remarriage-adultery.html)
  
 - - - - - - 
   
- **[EVANGELICAL OUTREACH [Bible Answer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible-answers.html) on _Divorce and Remarriage_]**  
+ **[EVANGELICAL OUTREACH [Bibel Antwort](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible-answers.html) on _Divorce and Remarriage_]**  
  
-**[[Find Out Who Was The Divorced Herodias Married To](#divorceremarriageadultery)]** 
- 
- 
- Greetings in Jesus' name. You said you really need some input. As a person who has spent thousands of hours reading and studying the **[Bible](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html),** and one who pastored for over 6.5 years in the Pittsburgh area, the following is my input: 
+**[[Finde Heraus Mit Wem Die Geschiedene Herodias Verheiratet War](#divorceremarriageadultery)]** 
  
  
- (1) To divorce over "incompatibility and neglect" is not a legitimate reason, according to the Word of God! Please note **Matt. 5:32**: 
- > "But I tell you that anyone who divorces his wife, except for marital unfaithfulness, causes her to commit adultery, and anyone who marries a woman so divorced commits adultery." 
+Grüsse in Jesu Namen. Du sagtest, dass du wirklich irgendeine Hilfestellung [_engl. input_] brauchst. Als eine eine Person, die tausende Stunden damit verbracht hat, die [Bibel](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) zu lesen und zu studieren und jemand, der über 6.5 Jahre im Gebiet um Pittsburgh Pastor/seelsorgerisch tätig war, ist das Folgende meine Hilfestellung [_engl. input_]:
  
- [![law of marriage](../files/pictures/law-of-marriage_de.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance-from-remarriage-adultery.html)
+ 
+(1) Zu scheiden aufgrund von "Inkompatibilität/Unvereinbarkeit und Vernachlässigung" ist kein rechtmässiger Grund laut dem Wort Gottes! Bitte beachte **Mt. 5,32**: 
+> "Ich aber sage euch: Wer sich von seinem Weibe scheidet, ausgenommen wegen Unzucht, der macht, dass sie die Ehe bricht. Und wer eine Geschiedene zur Ehe nimmt, der bricht die Ehe." (Schlachter 1905)
+ 
+[![Gesetz der Ehe](../files/pictures/law-of-marriage_de.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance-from-remarriage-adultery.html)
 
-Similarly, Scripture states: 
- > "I tell you that anyone who divorces his wife, except for marital unfaithfulness, and marries another woman commits adultery" **(Matt. 19:9)**. 
+Gleichermassen sagt die Schrift/Bibel:
+> "Ich sage euch aber: Wer sein Weib fortschickt[=es entlässt = sich von ihm scheidet], es sei denn um Unzucht willen, und eine andere heiratet; der bricht die Ehe; und wer eine Abgeschiedene [=Geschiedene] heiratet, der bricht die Ehe." (**Mt 19,9**; Schlachter 1905)
   
- > "Anyone who divorces his wife and marries another woman **commits adultery**, and **the man who marries a divorced woman commits adultery**" **(Lk. 16:18)**. 
+> "Jeder, der sich von seinem Weibe scheidet, und eine andere heiratet, **der bricht die Ehe**, und **Jeder, der eine von ihrem Manne Geschiedene heiratet, der bricht die Ehe**." (**Lukas 16,18**; Schlachter 1905)
 
- > "Some Pharisees came and tested him by asking, 'Is it lawful for a man to divorce his wife?' 'What did Moses command you?' he replied. They said, 'Moses permitted a man to write a certificate of divorce and send her away.' 'It was because your hearts were hard that Moses wrote you this law,' Jesus replied. 'But at the beginning of creation God "made them male and female." "For this reason a man will leave his father and mother and be united to his wife, and the two will become one flesh." So they are no longer two, but one. Therefore **what God has joined together, let man not separate**.' When they were in the house again, the disciples asked Jesus about this. He answered, '**Anyone who divorces his wife and marries another woman commits adultery against her. And if she divorces her husband and marries another man, she commits adultery**' " **(Mk. 10:2-12)**. 
+> "Und die Pharisäer traten herzu, versuchten ihn und fragten: Ist es recht, dass sich ein Mann von seinem Weibe scheide? Er aber antwortete und sprach zu ihnen: Was hat euch Moses geboten? Sie sprachen: Moses hat erlaubt einen Scheidebrief zu schreiben und sich zu scheiden. Und Jesus antwortete und sprach zu ihnen: Um eueres Herzens Härtigkeit willen hat er euch dieses Gebot vorgeschrieben; am Anfang der Schöpfung aber hat Gott sie geschaffen Mann und Weib. Darum wird ein Mensch Vater und Mutter verlassen und seinem Weibe anhangen und die Zwei werden Ein Fleisch sein. So sind sie nicht mehr Zwei, sondern Ein Fleisch. **Was nun Gott zusammengefügt hat, das soll der Mensch nicht scheiden!** Und seine Jünger fragten ihn zu Hause nochmals darüber. Und er sprach zu ihnen: **Wer sich von seinem Weibe scheidet und eine andere zur Ehe nimmt, der bricht an ihr die Ehe. Und wenn ein Weib sich von ihrem Manne scheidet und einen andern nimmt, so bricht sie die Ehe.**" (**Mk 10,2-12**; Schlachter 1905)
 
-## Divorce in Jesus' Day 
 
-The aforementioned Scriptures about divorce and remarriage were given by the Lord Jesus. Clearly, he stated marital unfaithfulness (sexual immorality) is the only cause for a divorce [but the only example of such was when Joseph wrongly thought Mary was sexually immoral WHEN THEY WERE PLEDGED to be married and he was going to "divorce" (Mt. 1:19) her]! Hence, if one divorces his spouse for any other reason besides sexual immorality, regardless what that reason is, he is indicted by these verses!
+## Scheidung zu Jesu Zeiten
 
-[![remarriage adultery](../files/pictures/remarriages.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/apostatechurch.htm)
+Die oben erwähnten Abschnitte bezüglich Scheidung und Wiederheirat wurden durch den Herrn Jesus gegeben. Klar, er besagte, dass Eheliche Untreue (Sexuelle Immoral/Unzucht/Hurerei) der einzige Grund für eine Scheidung waren [aber das einzige Beispiel von solchem war, als Joseph fälschlicherweise dachte, dass Maria sexuell unmoralisch war, ALS SIE VERLOBT WAREN, und gedachte, sie zu entlassen/sich von ihr zu scheiden (Mt 1,19)]! Daher, falls jemand seinen Ehegatten aufgrund von sonst irgend einem Grund entlässt ausser sexueller Unmoral, ungeachtet dessen, was der Grund ist, so wird er durch diese Verse angeklagt!
 
-**If such a person would then "marry" another, not only would he be committing adultery, but the person he "marries" would likewise be committing adultery! All people, who have never been married, need to know these facts before they consider marrying someone who might not be eligible for marriage again, namely a divorced person.**
+[![Wiederverheiratungs-Ehebruch](../files/pictures/remarriages.jpg)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/apostatechurch.htm)
 
-When we consider passages like 1 Cor. 6:9,10 and Rev. 21:8, we can only conclude that an adulterous marriage, as referred to in Matt. 5:32 and 19:9, will result in **both parties being thrown into the lake of fire, that is, unless that ceases and they find forgiveness for their adultery**.
+**Falls solch eine Person dann jemand anders "heiraten" würde, so würde nicht nur er Ehebruch begehen, sondern gleicherweise würde die Person, die er "heiratet" Ehebruch begehen! Alle Leute, die niemals verheiratet gewesen sind, müssen diese Fakten wissen, bevor sie darüber nachdenken, jemanden zu heiraten, der vielleicht nicht mehr wieder für Heirat auswählbar sein könnte, namentlich eine geschiedene Person.**
 
-## The Innocent Party In A *Divorce* 
+Wenn wir andere Stellen berücksichtigen wie 1. Kor. 6,9-10 und Off. 21,8, so können wir nur schlussfolgern, dass eine ehebrecherische Ehe, wie darauf in Mt 5,32 und 19,19 verwiesen wird, darin resultieren wird, dass **beide Beteiligte in den Feuersee geworfen werden, das heisst, sofern das nicht aufhört und sie Vergebung für ihren Ehebruch finden**
 
-[![marriage annulment remarriage adultery](../files/pictures/marriage-annulment-remarriage-adultery.jpg "The marriage annulment myth leads to remarriage adultery")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)
+## Die Unschuldige Partei In Einer _Scheidung_
 
-On the other hand, Lk. 16:18 seems to teach that even **the [innocent party](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ab.htm) in an unscriptural divorce** that remarries becomes guilty of **adultery**: 
-> "Whosoever putteth away his wife, and marrieth another, committeth adultery: and **whosoever marrieth her that is put away from her husband committeth adultery** (KJV)."
+[![Ehe Annulierung Wiederheirat Ehebruch](../files/pictures/marriage-annulment-remarriage-adultery.jpg "Der Ehe-Annulierungs Mythos führt zu Wiederverheiratungs-Ehebruch")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/catholic.html)
+
+Andererseits, scheint Lk. 16,18 zu lehren, dass sogar **die [unschuldige Partei](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ab.htm) in einer unbiblischen Scheidung** welche wieder heiratet, des **Ehebruches** schuldig wird: 
+> "Jeder, der sich von seinem Weibe scheidet, und eine andere heiratet, der bricht die Ehe, und **Jeder, der eine von ihrem Manne Geschiedene heiratet, der bricht die Ehe.** (Schlachter 1905)"
+
+Der Apostel Paulus gab diese Anweisungen an die Christen seinerzeit:
+> "Den Verheirateten aber gebiete nicht ich, sondern der Herr, dass ein Weib sich nicht **scheide** [oder _trenne_ wie einige Übersetzungen es schreiben] von dem Mann; **wäre sie aber schon geschieden, SO BLEIBE SIE UNVERHEIRATET oder versöhne sich mit dem Mann**; der Mann aber soll das Weib nicht entlassen. Den Uebrigen aber sage ich, nicht der Herr: Wenn ein Bruder ein ungläubiges Weib hat, und diese ist einverstanden, bei ihm zu wohnen, so soll er sie nicht entlassen; und wenn ein Weib einen ungläubigen Mann hat, und dieser ist einverstanden, bei ihr zu wohnen, so soll sie den Mann nicht verlassen. - Denn der ungläubige Mann ist geheiliget durch das Weib, und das ungläubige Weib ist geheiliget durch den Bruder; sonst wären euere Kinder unrein, nun aber sind sie heilig. Will sich aber der Ungläubige **scheiden**, so **scheide** er! Der Bruder oder die Schwester ist in solchen Fällen nicht gebunden. Im Frieden aber hat uns Gott berufen." (1. Kor 7,10-15; Schlachter 1905)
  
- The Apostle Paul gave these instructions about remarriage to the Christians of his day: 
- > "And unto the married I command, yet not I, but the Lord, Let not the wife **depart** [or *separate* as some translation have it] from her husband: But and if she **depart, LET HER REMAIN UNMARRIED, or be reconciled to her husband**: and let not the husband put away his wife. But to the rest speak I, not the Lord: If any brother hath a wife that believeth not, and she be pleased to dwell with him, let him not put her away. And the woman which hath an husband that believeth not, and if he be pleased to dwell with her, let her not leave him. For the unbelieving husband is sanctified by the wife, and the unbelieving wife is sanctified by the husband: else were your children unclean; but now are they holy. But if the unbelieving **depart**, let him **depart**. A brother or a sister is not under bondage in such cases: but God hath called us to peace" (1 Cor. 7:10-15). 
+Das griechische Wort für "scheiden" in den Versen 10, 11 und 15 befindet sich auch in Mt. 19,6 und Mk. 10,9 als mit Scheidung gebraucht: 
+> "So sind sie nun nicht mehr Zwei, sondern Ein Fleisch. Was nun Gott zusammengefügt hat, **das soll der Mensch nicht scheiden**." (Mt 19,6)
+
+> "Was nun Gott zusammengefügt hat, **das soll der Mensch nicht scheiden**! (Mk 10,9)"
+
+Andererseits aber, muss dasselbe griechische Wort sich **nicht** auf _Scheidung_ beziehen:
+
+> "Danach **schied** Paulus von Athen und kam gen Korinth" (Apg 18,1; Luther 1545)
+
+> "Denn vielleicht ist er deswegen für eine Zeit von dir **getrennt** gewesen, auf daß du ihn für immer besitzen mögest," (Philemon 1,15; elb1905)
+
+## Bis Dass Der Tod Uns Scheidet, Dann Wiederheirat
+
+[![Scheidung Wiederheirat Ehebruch Was ist eine Ehe](../files/pictures/what-is-a-marriage.jpg "Was eine Ehe ist, ist durch GOTT definiert, nicht durch die Welt!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)
+
+**Die Witwe könnte auch wiederheiraten, aber nur WENN ihr Ehegatte stirbt:**
+> "Denn **die verheiratete Frau ist bei Lebzeiten des Mannes dem Gesetze verpflichtet**; **wenn aber der Mann stirbt, so ist sie von dem Ehegesetz befreit.** **So wird sie nun bei Lebzeiten des Mannes eine _Ehebrecherin_ genannt, wenn sie eines andern Mannes Weib wird; stirbt aber der Mann, so ist sie vom Gesetze frei, also dass sie keine _Ehebrecherin_ ist, wenn sie eines andern Mannes wird.**" (Röm 7,2-3; Schlachter 1905) 
+
+> "**Eine Frau ist gebunden, solange ihr Mann lebt**; wenn aber ihr Mann entschlafen ist, so ist sie frei, sich zu verheiraten, mit wem sie will; nur daß es im Herrn geschehe." (**1. Kor 7,39**; Schlachterbibel 1951)
  
- The Greek word for "depart" in verses 10, 11 and 15 is also found at Matt. 19:6 and Mk. 10:9 as used with divorce: 
- > "Wherefore they are no more twain, but one flesh. What therefore God hath joined together, **let** not man **put asunder**." 
-
- > "What therefore God hath joined together, **let** not man **put asunder**." 
-
-But then on the other hand that same Greek word does **not** have to refer to _divorce_: 
-
-> "After these things Paul **departed** from Athens, and came to Corinth" (Acts 18:1).
-
-> "For perhaps he therefore **departed** for a season, that thou shouldest receive him for ever" (Philemon 15). 
-
-## Until Death Do We Part, Then Remarriage 
-
-[![divorce remarriage adultery what is a marriage](../files/pictures/what-is-a-marriage.jpg "What is a marriage is defined by GOD, not the world!")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian-life.html)
-
-**The widow could also remarry, but only IF her spouse dies:**
-> "For example, by law **a married woman is bound to her husband as long as he is alive**, but **if her husband dies, she is released from the law of marriage**. So then, **if she marries another man while her husband is still alive, she is called an *adulteress*. But if her husband dies, she is released from that law and is not an *adulteress*, even though she marries another man"** (Rom. 7:2,3). 
-
- > "**A woman is bound to her husband as long as he lives**. But if her husband dies, she is free to marry anyone she wishes, but he must belong to the Lord" **(1 Cor. 7:39)**. 
  
- (2) You mentioned getting forgiven for "divorcing our spouses." Please know that there is no such thing in Scripture as getting forgiven from the *sin of divorce*! This subtle twisting of the Word regarding getting forgiven over the sin of "divorce" has led some to go through with it, then remarry, **hence committing *adultery* themselves and causing their new "spouse" to become guilty of the same sin**. Without a doubt, in many cases, a *remarriage* is the world's term for what the Lord taught is **adultery**. *Remarriage* would be **adultery** in God's eyes because it is an unrecognized marriage as far as He is concerned. (A *remarriage* is justified when the spouse dies.)
+(2) Du erwähntest, vergeben zu werden für das "Scheiden von unseren Ehegatten". Wisse bitte, dass es in der Bibel kein vergeben-werden für die _Sünde der Scheidung_ gibt! Diese raffinierte Verdrehung vom Wort bezüglich dem vergeben-werden für die Sünde der "Scheidung", brachte einige dazu, das durchzumachen, dann wieder zu heiraten, **dadurch selber _Ehebruch_ zu begehen und zu bewirken dass ihr neuer "Ehegatte" derselben Sünde schuldig wird.** Zweifelsfrei, in manchen Fällen ist _Wiederheirat_ der Begriff der Welt für was der Herr lehrte, dass es **Ehebruch** ist. _Wiederheirat_ wäre **Ehebruch** in Gottes Augen, da es eine nicht anerkannte Ehe ist, soweit Er betroffen ist. (Eine _Wiederheirat_ ist gerechtfertigt, wenn der Ehegatte stirbt.)
 
-**[READ MORE ABOUT: Adultery, Divorce And An Illegitimate Marriage](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ab.htm)**
+**[LIES MEHR ÜBER: Ehebruch, Scheidung Und Eine Unrechtmässige Ehe](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ab.htm)**
 
- (3) When Jesus spoke of committing adultery over an illegitimate marriage, as cited in Matt. 5:32 and 19:9, a **CONTINUOUS-TENSE ADULTERY** is what would result. This would be impossible if one would illegitimately marry a person, then repent of his *sin of divorce* and an illegitimate marriage and go on as if it was now a marriage recognized by **[Almighty God](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/almighty.html).** 
+(3) Als Jesus davon sprach, Ehebruch zu begehen wegen einer unrechtmässigen Ehe, wie zitiert in Mt 5,32 und 19,9, so würde ein **KONTINUIERLICHER EHEBRUCH** daraus resultieren. Dies wäre unmöglich, wenn jemand unrechtmässig eine Person heiraten würde, dann Busse tun würde über seine _Sünde der Scheidung_ und einer unrechtmässigen Ehe und dann weitermacht, wie wenn es nun eine Ehe wäre, welche von **[Gott dem Allmächtigen](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/almighty.html)** anerkannt würde.
 
 <a name="divorceremarriageadultery"></a>
-## The Adulterous and Divorced, Herodias 
+## Die Ehebrecherische und Geschiedene, Herodias
 
-[![remarriage adultery return to first husband](../files/pictures/remarriage-adultery-return-to-first-husband.png "Should she return to her first husband?")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christiansingles.html)
+[![Wiederverheiratungs-Ehebruch Zum Ersten Ehemann Zurückkehren](../files/pictures/remarriage-adultery-return-to-first-husband.png "Sollte sie zu ihrem ersten Ehemann zurückkehren?")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christiansingles.html)
 
-(4) **Whose wife was Herodias**? Please consider the following passage from Mk. 6:17, 18: 
-> "For Herod himself had given orders to have John arrested, and he had him bound and put in prison. He did this because of Herodias, **his brother Philip's wife**, whom he had **married**. For John had been saying to Herod, 'It is not lawful for you to have your brother's wife.'" 
+(4) **Wessen Ehefrau war Herodias**? Bitte ziehe die folgende Passage von Mk. 6,17-18 in Betracht: 
+> "Denn er, Herodes, hatte hingesandt und den Johannes greifen und ihn im Gefängnis binden lassen, um der Herodias willen, **des Weibes seines Bruders Philippus**, weil er sie **geheiratet** hatte. Denn Johannes hatte dem Herodes gesagt:  Es ist dir nicht erlaubt, das Weib deines Bruders zu haben." (elb1905)
 
-NOTE: **Even though Herod had "married" Herodias, she was still considered "Philip's wife."** That is why John said it was not lawful for him to have his brother's wife. In other words, ***adultery* was being committed by both Herodias and Herod.** 
+ANMERKUNG: **Obwohl Herodes Herodias "geheiratet" hatte, wurde sie immer noch als "Philippus' Frau" betrachtet.** Das ist der Grund, weshalb Johannes sagte, dass es für ihn nicht erlaubt war, seines Bruders Frau zu haben. Mit andern Worten **_Ehebruch_ wurde von beiden Herodias und Herodes begangen.**
 
-(5) You say you are so much in love and desire to serve the Lord together as husband and wife. Such is an impossibility. Neither of you two will be recognized from God's perspective as bound together by Him as husband and wife! This statement, though it may seem hard, is the truth, based on Scripture. The best way for you two to serve the Lord is to begin by **stop entertaining the devil's [sexual temptation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sexualtemptation.htm)** that you two would like to get married. This is like two people saying "We want to rob a bank and then serve the Lord with the money." 
+(5) Du sagst, dass ihr so fest in einander verliebt seid und danach begehrt, dem Herrn zusammen als Ehemann und Ehefrau zu dienen. Solches ist eine Unmöglichkeit. Keiner von euch zweien wird von Gottes Perspektive aus als von ihm als Ehemann und Ehefrau zusammengebunden anerkannt werden. Diese Aussage, obschon sie hart erscheinen mag, ist die Wahrheit, basierend auf der Bibel. Die Beste Art und Weise für euch, dem Herrn zu dienen ist, **damit aufzuhören, des Teufels [sexuelle Versuchung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/sexualtemptation.htm) zu unterhalten**, dass ihr zwei gern heiraten wollt. Dies ist wie zwei Leute, die sagen "Wir wollen eine Bank ausrauben und dann dem Herrn mit dem Geld dienen."
 
- **[PERSONAL TESTIMONY of Repentance From Remarriage Adultery](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance-from-remarriage-adultery.html)** 
+ **[PERSÖNLICHES ZEUGNIS Von Busse Von Einem Wiederverheiratungs-Ehebruch](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance-from-remarriage-adultery.html)** 
 
- (6) To say you know of other "Christian couples" who are both *divorced and remarried* and have good solid marriages and serve the Lord is meaningless! To be guilty of ***adultery*** excludes one from being a real Christian. What other people have or don't have or do or don't do has nothing to do with us individually. We are to go by the Word of God regardless if anyone else goes by it or not. It seems like you are trying to find every possible reason to "marry" outside of the will of God to justify your desires, even to the point of looking at others who have done a similar evil thing. 
+(6) Zu sagen, dass ihr von andern "Christlichen Paaren" wisst, welche beides _geschieden und wiederverheiratet_ sind und gute solide Ehen haben und dem Herrn dienen ist bedeutungslos! Des **_Ehebruchs_** schuldig zu sein schliesst einen davon aus, ein wahrer Christ zu sein. Was andere Leute haben oder nicht haben oder tun oder nicht tun hat nichts mit uns als Einzelnen zu tun. Wir müssen nach dem Wort Gottes gehen, ungeachtet davon ob sonst jemand nach ihm geht oder nicht. Es scheint als ob du jeden erdenklichen Grund zu finden versuchst um deine Wünsche zu rechtfertigen, ausserhalb von Gottes Willen zu "heiraten", sogar bis zu dem Punkt auf andere zu schauen, die eine ähnlich Böse Sache getan haben.
 
- **[Find Out How To Crucify The Flesh](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/crucify-the-flesh.html)** 
+**[Finde Heraus Wie Man Das Fleisch Kreuzigt](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/crucify-the-flesh.html)** 
 
- There are **many** people, even in the "church," who are illegitimately married. Such are committing continuous **adultery** from God's perspective and really are not "Christian" as they may profess to be. **It is impossible to be a Christian and to be sexually immoral at the same time, in spite of what some are teaching. Do not be deceived: There is no such thing as once saved always saved, also known as eternal security or the perseverance of the saints. So if you think you can both divorce, then marry each other and be spiritually safe, based upon eternal security, you are Scripturally mistaken. The teaching of eternal security is a rampant heresy that has multitudes in danger of [Hell](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html) without such knowing they're in this type of danger.** [Please see our other information exposing and refuting the heresy of **[eternal security](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)**, **[perseverance of the saints](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/perseverance-of-the-saints.htm)** or **[once saved always saved](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html).**] 
+Es gibt **viele** Leute, sogar in der "Kirche", die illegitim verheiratet sind. Solche begehen andauernden **Ehebruch** aus Gottes Perspektive und sind in Wirklichkeit keine "Christen" wie sie erklären [_engl. profess_] zu sein. **Es ist unmöglich, ein Christ und Unzüchtig zur selben Zeit [_engl. sexually immoral_] zu sein, ungeachtet dessen, was einige lehren. Werde nicht irregeführt: Es gibt kein Einmal Gerettet Immer Gerettet, auch bekannt als Ewige Sicherheit oder Beharrlichkeit der Gläubigen. Wenn ihr also denkt, dass ihr euch beide scheiden lassen und anschliessend einander heiraten könnt und geistlich sicher sein würdet, basierend auf Ewiger Sicherheit, so seid ihr biblisch irregeführt. Die Lehre von Ewiger Sicherheit ist eine wuchernde Irrlehre welche Mengen/Massen in Gefahr der [Hölle](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html) hat, ohne dass jene wissen, dass sie in dieser Gefahr schweben.** [Bitte siehe unsere andern Informationen, welche die Irrlehre der [**Ewigen Sicherheit**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html), [**Beharrlichkeit der Gläubigen**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/perseverance-of-the-saints.htm) oder [**Einmal Gerettet Immer Gerettet**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html) aufdecken und widerlegen.
 
-## A Wayward Wife or *Divorcee* Is NOT Single 
+## Eine Frau Eines Andern oder *Geschiedene [_engl. divorcee_]* Ist NICHT Ledig
 
 (7) **A wayward wife is called the adulteress**: 
 > "It [wisdom] will save you also from the **adulteress, from the wayward wife** with her seductive words, who has **left the partner of her youth and ignored the covenant she made before God**. For her house leads down to death and her paths to the spirits of the dead. **None who go to her** return or **attain the paths of life**. Thus you will walk in the ways of good men and keep to the paths of the righteous. For the upright will live in the land, and the blameless will remain in it; but the wicked will be cut off from the land, and the unfaithful will be torn from it" (Prov. 2:16-22). 
 
-COMMENT: Please note, the adulteress in the above passage is really a **divorcee**, for she _left the partner of her youth and ignored the covenant she made before God._ **Marriage is a covenant between two people and God.** Also, a "wayward wife" is called elsewhere in Scripture an **immoral person**, a **[prostitute](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm)** and an **adulteress**:
+KOMMENTAR: Bitte beachte, die Ehebrecherin in der obigen Passage ist really a **divorcee**, da sie _den Freund ihrer Jugend verlassen und den vor ihrem Gott geschlossenen Ehebund vergessen hat_. **Ehe ist ein Bund zwischen zwei Luten und Gott.** Also, a "wayward wife" is called elsewhere in Scripture an **immoral person**, eine **[Prostituierte](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm)** und eine **Ehebrecherin**:
 
-> "For these commands are a lamp, this teaching is a light, and the corrections of discipline are the way to life, keeping you from the **immoral woman**, from the smooth tongue of the **wayward wife**. Do not lust in your heart after her beauty or let her captivate you with her eyes, for the **prostitute** reduces you to a loaf of bread, and the **adulteress** preys upon your very life" (Prov. 6:23-26). 
+> "Denn das Gebot ist eine Leuchte, und die Lehre ist ein Licht, Zucht und Vermahnung sind ein Weg des Lebens. Sie sollen dich bewahren vor dem **schlechten Weib**, vor der glatten Zunge der **Fremden**; daß du in deinem Herzen nicht nach ihrer Schönheit begehrest und sie dich nicht fange mit ihren Augenwimpern. Denn um einer **Hure** willen kommt man an den Bettelstab, und **eines andern Weib** gefährdet die teure Seele!" (Sprüche 6,23-26; Schlachterbibel 1951)
 
-Consider also the following Scripture which states that marriage is a _covenant_ before God:
+Beachte auch die folgende Bibelstelle, welche besagt, dass die Ehe ein _Bund_ vor Gott ist:
 
-> "You ask, 'Why?' It is because the LORD is acting as the witness between you and the wife of your youth, because you have broken faith with her, though **she is your partner, the wife of your marriage covenant**. Has not the LORD made them one? In flesh and spirit they are his. And why one? Because he was seeking godly offspring. So guard yourself in your spirit, and **do not break faith with the wife** of your youth. '**I hate divorce**,' says the LORD God of Israel, 'and I hate a man's covering himself with violence as well as with his garment,' says the LORD Almighty. So guard yourself in your spirit, and **do not break faith**" (Malachi 2:14-16).
+> "Und ihr fragt: «Warum?» Weil der HERR Zeuge war zwischen dir und dem Weibe deiner Jugend, welcher du nun untreu geworden bist, **obschon sie deine Gefährtin und das Weib deines Bundes ist!** Und hat er sie nicht eins gemacht und geistesverwandt mit ihm? Und wonach soll das eine trachten? Nach göttlichem Samen! So hütet euch denn in eurem Geiste, und **niemand werde dem Weibe** seiner Jugend **untreu!** **Denn ich hasse die Ehescheidung**, spricht der HERR, der Gott Israels, und daß man sein Kleid mit Frevel zudeckt, spricht der HERR der Heerscharen; darum hütet euch in eurem Geist und **seid nicht treulos!**" (Mal 2,14-16; Schlachterbibel 1951)
 
-As Scripture says elsewhere, what God has joined together, let not man separate:
-> "So they are no longer two, but one. Therefore **what God has joined together, let man not separate**" (Matt. 19:6). 
+Wie die Bibel anderswo besagt, was Gott zusammengefügt hat, soll der Mensch nicht scheiden:
+> "So sind sie nun nicht zwei, sondern ein Fleisch. **Was nun Gott zusammengefüget hat, das soll der Mensch nicht scheiden.**" (Matt 19,6; Luther 1545)
 
-Notice the rest of the dialogue:
-> "'Why then,' they asked, 'did Moses command that a man give his wife a certificate of divorce and send her away?' Jesus replied, 'Moses permitted you to divorce your wives because your hearts were hard. But it was not this way from the beginning. **I tell you that anyone who divorces his wife, except for marital unfaithfulness, and marries another woman commits adultery.'** The disciples said to him, '**If this is the situation between a husband and wife, it is better not to marry**.' Jesus replied, 'Not everyone can accept this word, but only those to whom it has been given. For some are eunuchs because they were born that way; others were made that way by men; and others have renounced marriage because of the kingdom of heaven. The one who can accept this should accept it.' " (Matt. 19:7-12).
+Beachte den Rest dieses Dialoges:
+> "Da sprachen sie zu ihm: Warum hat denn Moses befohlen, ihr einen Scheidebrief zu geben und sie fortzuschicken? Er sprach zu ihnen: Moses hat euch nach eures Herzens Härtigkeit erlaubt, eure Weiber fortzuschicken; von Anfang aber ist es nicht also gewesen. **Ich sage euch aber: Wer sein Weib fortschickt, es sei denn um Unzucht willen, und eine andere heiratet; der bricht die Ehe; und wer eine Abgeschiedene heiratet, der bricht die Ehe.** Seine Jünger sprechen zu ihm: **Hat ein Mensch solche Pflichten gegen sein Weib, so ist es nicht gut, zur Ehe zu schreiten!** Er aber sprach zu ihnen: Nicht alle fassen dieses Wort, sondern nur die, denen es gegeben ist. Denn es gibt Verschnittene, die von Mutterleib also geboren sind; und es gibt Verschnittene, die von Menschen verschnitten sind; und es gibt Beschnittene, die sich selbst verschnitten haben um des Himmelreichs willen. Wer es fassen kann, der fasse es!" (Mt 19,7-12; Schlachter 1905)
 
-This life is a test (Jam. 1:12; Rev. 2:10,11; 3:10) and that includes properly dealing with *divorce*. The stakes are eternal. **Only the minority will pass the test and enter through the narrow gate that leads to life (Matt. 7:13,14). The vast majority of people will be thrown into the lake of fire (Rev. 20:15; 21:8).** Don't get yourself snared by an illegitimate marriage that may bring much temporal pleasure and comfort now, but reap an **eternal torment in fire** and great regret over such later:
-> "What good is it for a man to gain the whole world, yet forfeit his **soul**?" (Mk 8:36).
+Dieses Leben ist ein Test (Jam. 1:12; Rev. 2:10,11; 3:10) and that includes properly dealing with *divorce*. The stakes are eternal. **Only the minority will pass the test and enter through the narrow gate that leads to life (Matt. 7:13,14). The vast majority of people will be thrown into the lake of fire (Rev. 20:15; 21:8).** Don't get yourself snared by an illegitimate marriage that may bring much temporal pleasure and comfort now, but reap an **eternal torment in fire** and great regret over such later:
+> "Denn was wird es einem Menschen nützen, wenn er die ganze Welt gewönne und seine **Seele** einbüßte? (Markus 8,36; elb1905)"
 
-**Again, it is NOT always God's will to remarry, as 1 Cor. 7:11 clearly states. Ponder the apostle's teaching on this, under grace, if you are thinking about doing such:**
-> "But and if she depart, LET HER REMAIN UNMARRIED, or be reconciled to her husband: and let not the husband put away his wife" (1 Cor. 7:11). 
+**Nochmals, es ist NICHT immer Gottes Wille, wiederzuheiraten, wie 1. Kor 7,11 klar besagt. Sinne über des Apostels Lehre über dies, unter Gnade, falls du darüber nachdenkst, solches zu tun:**
+> "wäre sie aber schon geschieden, SO BLEIBE SIE UNVERHEIRATET oder versöhne sich mit dem Manne. Der Mann aber soll die Frau nicht verstoßen." (1. Kor 7,11; Schlachterbibel 1951)
 
-Stay in the Bible and go by its counsel. Live in the fear of God. Think beyond the grave and ponder your own judgment before God. **No person, regardless how much you may be drawn to him or her, is worth going to eternal punishment over**. 
+Bleibe in der Bibel und geh nach ihrem Ratschlag. Lebe in der Furcht Gottes. Denke jenseits des Grabes und denke über dein eigenes Gericht vor Gott nach. **Keine Person, ungeachtet dessen, wie sehr man sich zu ihm oder ihr hingezogen fühlt, ist es wert, dafür in die ewige Bestrafung zu gehen.**
 
-## Divorce *Except For Fornication* Exception Clause 
+## Scheidung *Es Sei Denn Wegen Unzucht* Ausnahmeklausel
 
-**The Lord Jesus taught on many touchy subjects. Among them all, *divorce and remarriage* being *adultery* is one of the most volatile, especially in our day when 50% or more marriages are ending in *divorce*. In fact, if one wanted to study divorce and remarriage for himself, he should also look up *adultery* in the Scriptures to learn what Jesus said about *divorce*!** In every case it is crystal clear, except twice (Mt. 5:32; 19:9). Both of those passages say "except for fornication." The same Greek word translated fornication (KJV) is also found in 1 Cor. 5:1 and refers to the incest (and ***adultery***) mentioned there. Hence, the word should be translated *sexual immorality*, since fornication in our day is understood differently and between two unmarried people.
+**Der Herr Jesus lehrte on many empfindliche(n) Themen. Unter ihnen allen, ist dass _Scheidung und Wiederheirat_ gleich _Ehebruch_ ist, eines der flüchtigsten, speziell heutzutage wenn 50% oder mehr Ehen in einer _Scheidung_ enden. In der Tat, falls jemand Scheidung und Wiederheirat für sich selbst studieren wollte, so sollte er auch _Ehebruch_ in der Bibel nachschlagen, um zu lernen, was Jesus über _Scheidung_ sagte!** In jedem Fall ist es glasklar/kristallklar, ausgenommen zweimal (Mt 5,32; 19,9). Beide dieser Passagen sagen "ausgenommen wegen Unzucht". Dasselbe griechische Wort welches mit Unzucht/Hurerei übersetzt wird, findet man auch in 1. Kor5,1 und bezieht sich auf den Inzest (und **_Ehebruch_**) welcher dort erwähnt wird. Daher sollte das Wort übersetzt werden mit *sexueller Immoral/Unmoral*, da Unzucht heutzutage anders und zwischen zwei unverheirateten Leuten verstanden wird.
 
 **Many remarried people are resting their salvation on the sexual immorality of their former spouse, which they think has freed them through a *divorce* to remarry without being guilty of *adultery*, based on Mt. 5:32 and 19:9. How sound is that? To expand the possibility of what those verses are saying one should focus on Mt. 1:19:** 
- > Because Joseph her husband was a righteous man and did not want to expose her [Mary] to public disgrace, he had in mind to **divorce** her quietly. 
+> Aber Joseph, ihr Mann, war gerecht und wollte sie [Maria] nicht der Schmach aussetzen, nahm sich (also) vor, sich heimlich von ihr zu **scheiden**. (Mt 1,19; Jantzen-NT)
 
-Joseph was planning on ***divorcing*** Mary. What is significant is, that was BEFORE they were actually married, that is, while they were only *pledged* (engaged) to be married (Mt. 1:18,19; Lk. 1:27)! Also, the same Greek word for *divorce* as found in Mt. 1:19 is also found in Mt. 5:32 and 19:9! **Could it be that only during that *engagement* time (as we would say in our day) is divorce permitted and that being only for *sexual immorality?* This could be the intended meaning of Mt. 5:32 and 19:9. If that is how we should understand Mt. 5:32 and 19:9, then there are no exceptions for divorce once a person does actually get married, as is clear in *the law of marriage* (Rom. 7:2,3) and even at 1 Cor. 7:39.** Please study this subject out for yourself, especially if it applies to your situation. Such a study could benefit your soul or the souls of your loved ones. This information is important for *Christian singles* to know, who are looking for a life-long godly spouse to serve God with.
+Joseph plante, Maria zu **_entlassen_**. Was bedeutsam ist, ist dass dies war, BEVOR sie überhaupt verheiratet waren, das heisst, während sie nur *verlobt* waren (Mt. 1,18-19; Lk. 1,27)! Ausserdem findet man dasselbe griechische Wort in Mt1,19 für *Scheidung* auch in Mt5,32 und 19,9! **Könnte es sein, dass Scheidung nur während dieser _Verlobungs_zeit (wie wir heutzutage sagen würden) erlaubt war und das nur aufgrund von *sexueller Unmoral?* Dies könnte die beabsichtigte Bedeutung von Mt 5,32 und 19,9 sein. If that is how we should understand Mt. 5:32 and 19:9, then there are no exceptions for divorce once a person does actually get married, as is clear in *the law of marriage* (Rom. 7:2,3) and even at 1 Cor. 7:39.** Please study this subject out for yourself, especially if it applies to your situation. Such a study could benefit your soul or the souls of your loved ones. This information is important for *Christian singles* to know, who are looking for a life-long godly spouse to serve God with.
 
-[**Here Is Truth On *Christian Singles and Christian Dating***](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christiansingles.html) 
+[**Hier Ist Wahrheit Bezüglich *Christliche Ledige und Christliches Dating***](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christiansingles.html) 
 
-## S. Michael Houdmann Downplays *Adultery* 
+## S. Michael Houdmann verharmlost *Ehebruch*
 
-There are multitudes of promenient teachers who will **downplay the LETHAL dangers of an *adulterous marriage***, one not recognized by God. Here is one by S. Michael Houdmann:
+Es gibt Mengen an prominente Lehrern, die die **TÖDLICHEN Gefahren einer _ehebrecherischen Ehe_**, einer die nicht von Gott anerkannt ist, herunterspielen werden. Nachfolgend ein Beispiel von S. Michael Houdmann:
 
-> **A divorced and/or remarried** believer should not feel any less loved by God, even if the divorce and/or remarriage is not covered under the possible exception clause of Matthew 19:9. **God often uses even the sinful disobedience of Christians to accomplish great good.** ([**S. Michael Houdmann**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/got-questions.html), What does the Bible say about divorce and remarriage, emphasis mine)
+> **Ein geschiedener und/oder wiederverheirateter** Gläubiger sollte sich nicht weniger von Gott geliebt fühlen, selbst wenn die Scheidung und/oder Wiederheirat nicht abgedeckt ist durch die mögliche Ausnahmeklausel in Matthäus 19,9. **Gott gebraucht oftmals den sündhaften Ungehorsam von Christen, um bedeutend [_engl. great_] Gutes zu vollbringen..** ([**S. Michael Houdmann**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/got-questions.html), Was sagt die Bibel über Scheidung und Wiederheirat, Betonung von mir (=Dan Corner))
 
-**In other words, heretics want us to believe an adulterous marriage is *sinful disobedience* (really *CONTINOUS TENSE ADULTERY*), but somehow *great good* can come out of it!** [Where does the Bible say great good comes out of *adultery.* That's what the devil wants us to believe.] Houdmann is also saying there are *Christian adulterers*, which fits his doctrine and contradicts 1 Cor. 6:9,10! Should we just trash what the Bible says and believe the multitude of teachers, like S. Michael Houdmann, who declare such garbage? GOD FORBID!
+**Mit andern Worten, Ketzer wollen uns glaubhaft machen, an adulterous marriage is *sinful disobedience* (really *KONTINUIERLICHER EHEBRUCH*), aber irgendwie kann _great good_ daraus hervorkommen!** [Wo sagt die Bibel, dass great good aus _Ehebruch_ hervorkommt. Das ist was der Teufel uns glaubhaft machen will.] Houdmann sagt ausserdem, dass es _christliche Ehebrecher_ gibt, was seiner Lehre entspricht und 1. Kor6,9-10 widerspricht! Sollten wir einfach das was die Bibel sagt fortschmeissen und den Massen an Lehrern glauben, wie S. Michael Houdmann, der solch Müll verkündet? GOTT BEWAHRE!/DAS SEI FERNE!
 
-## Ministers Who Marry *Divorced* People Promote *Adultery* 
+## Pfarrer, Die _Geschiedene_ Leute Verheiraten, Fördern _Ehebruch_
 
 Ministers who "marry" two people that are not eligible for marriage, because of a past marriage, are helping to perpetuate this rampant problem with *adultery.* To teach contrary to the Scriptures on any issue of divorce and remarriage can stumble others and bring judgment down on the teacher(s):
 
- (a) They are causing another to commit adultery through their teachings: 
- > " 'But you have turned from the way and **by your teaching have caused many to stumble**' " (Mal. 2:8). 
+(a) They are causing another to commit adultery through their teachings: 
+> "Ihr dagegen seid vom rechten Wege abgewichen, **habt viele durch eure Unterweisung (oder: Gesetzesauslegung) zu Fall gebracht**..." (Mal. 2,8; Menge). 
  
- > Nevertheless, I have this against you: You tolerate that woman Jezebel, who calls herself a prophetess. **By her teaching she misleads my servants into sexual immorality** and the eating of food sacrificed to idols. (Rev 2:20) 
+> Aber ich habe wider dich, daß du das Weib Jesabel duldest,  welche sich eine Prophetin nennt, **und sie lehrt und verführt meine Knechte, Hurerei zu treiben** und Götzenopfer zu essen. (Off 2,20; elb1905) [Hurerei = Unzucht]
 
- (b) Such ministers would also be indited by Lk. 17:1-3:
- > "Jesus said to his disciples: '**Things that cause people to sin** are bound to come, but **woe to that person through whom they come**. It would be better for him to be thrown into the sea with a millstone tied around his neck than for him to cause one of these little ones to sin. **So watch yourselves**.' " 
+(b) Such ministers would also be indited by Lk. 17:1-3:
+> Er sprach aber zu den Jüngern: Es ist unvermeidlich, dass **Aergernisse** kommen; **wehe aber dem, durch welchen sie kommen!** Es wäre ihm besser, dass ein Mühlstein um seinen Hals gelegt, und er ins Meer geworfen würde, als dass er einem dieser Kleinen Aergernis gebe. **Habet Acht auf euch selbst!**" (Lk 17,1-3a; Schlachter 1905)
 
 ## Jeopardizing The Entire Fold - Spreading *ADULTERY* 
 
-(c) For ministers to have known illegitimately married couples, that is adulterers as God sees them, in their folds and to extend the right hand of Christian fellowship toward them, is to jeopardize the spiritual well-being of the entire congregation:
-> "Don't you know that **a little yeast works through the whole batch of dough**? Get rid of the old yeast that you may be a new batch without yeast--as you really are" (1 Cor. 5:6, 7). 
+(c) For ministers to have bekannte unrechtmässig verheiratete Paare, das heisst Ehebrecher wie Gott sie sieht, in ihren folds and to extend the right hand of Christian fellowship toward them, ist, das geistliche Wohlergehen der gesamten Versammlung zu gefährden:
+> "Euer Rühmen ist nicht fein! Wisset ihr nicht, dass **ein wenig Sauerteig den ganzen Teig durchsäuert**? Feget den alten Sauerteig aus, damit ihr ein neuer Teig seid, gleichwie ihr ungesäuert seid! ... " (1. Kor 5,6-7; Schlachter 1905)
 
- Christians are commanded **under grace** not to associate with or even to eat with a person who is sexually immoral (which includes *adultery*) and claims to be a Christian:
- > "But now I am writing you that **you must not associate** with **anyone who calls himself a brother but is sexually immoral** or greedy, an idolater or a slanderer, a drunkard or a swindler. **With such a man do not even eat**" (1 Cor. 5:11). 
+Christen wird **unter Gnade** befohlen, nicht mit jenen Gesellschaft zu haben, oder auch nur mit einer Person zu essen, welche sexuell unmoralisch ist (was _Ehebruch_ einschliesst) und behauptet ein Christ zu sein:
+> "Nun aber habe ich euch geschrieben, **dass ihr keinen Umgang haben sollt**, **wenn jemand, der sich einen Bruder nennen lässt, ein Unzüchtiger** oder Habsüchtiger oder Götzendiener oder Lästerer oder Trunkenbold oder Räuber **ist**; **mit einem solchen sollt ihr nicht einmal essen**." (1. Kor 5,11; Schlachter 1905)
  
- **Ministry is not a popularity contest.** A true shepherd is to preach the truth, and guard the sheep that have been entrusted to him, even if it is unpopular as it was for **[John the Baptist](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john_the_baptist.htm).**
+**Dienst [_engl. Ministry_] ist kein Beliebtheits-Wettbewerb.** Ein wahrer Hirte muss die Wahrheit predigen und die Schafe schützen, die ihm anvertraut worden sind, sogar wenn es unbeliebt ist, wie es für **[Johannes den Täufer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john_the_baptist.htm)** war.
  
-## IF You Are In An *Adulterous* Marriage 
+## FALLS Du In Einer _Ehebrecherischen_ Ehe Bist
 
-**If you are now convinced from the Scriptures that you are in an _adulterous_ so-called _marriage_, please know it is _adulterous_ because it is NOT recognized by God as a marriage to him. Man might refer to it as a _marriage_, but God sees it as _adultery_ for both parties because it isn't legitimate. To God, it is not different from two people _living together_ who would never claim to be married and who are having sexual union! They are continuing in sexual immorality, just like it is a continuous state of adultery, which is being committed by people who are not married in God's sight.**
+**Falls du nun von der Bibel her überzeugt bist, dass du in einer _ehebrecherischen_ so-genannten _Ehe_ bist, bitte wisse, dass sie _ehebrecherisch_ ist, da sie NICHT von Gott als eine Ehe für ihn anerkannt wird. Der Mensch mag vielleicht darauf als eine _Ehe_ Bezug nehmen, aber Gott sieht es als _Ehebruch_ für beide Parteien an, da sie nicht legitim/rechtmässig ist. Für Gott ist dies nicht anders, als zwei Leute, die _zusammen leben_ die nie angaben verheiratet zu sein und Geschlechtsverkehr haben! Sie machen weiter in sexueller Unmoral, genauso wie es ein kontinuierlicher Zustand des Ehebruchs ist, welcher begangen wird von zwei Leuten, welche in Gottes Augen nicht verheiratet sind.**
 
-Since the two people in an adulterous so-called marriage are NOT married, if they went their own separate ways it could not be _divorce_ in God's eyes, since they were never married in God's eyes, only in man's eyes. In man's eyes, _divorce_ would result from such, but that is not the issue here. The issue is _**how does God** view two people in an adulterous marriage?_ 
+Da die zwei Leute in einer ehebrecherischen so-genannten Ehe NICHT verheiratet sind, falls sie ihre eigenen separaten Wege gingen könnte es nicht _Scheidung_ in Gottes Augen sein, da sie überhaupt nie in Gottes Augen verheiratet gewesen waren, nur in den Augen der Menschen. In der Menschen Augen würde daraus _Scheidung_ resultieren, aber um das geht es hier nicht. Es geht hier um _**wie sieht Gott** zwei Leute in einer ehebrecherischen Ehe?_
 
-If the same two people in an _adulterous marriage_ live under the same roof as brother and sister **with no sexual contact,** would that be acceptable to God? Some think it might be. One thing is certain, **their sexual contact is _adultery_ to God and that will send them to the lake of fire (Rev. 21:8; 1 Cor. 6:9,10; etc.) unless they get forgiven and stop all sexual union (adultery). Don't be deceived by [John MacArthur ministries](http://www.eternallifeblog.com/john-macarthur-adulterous-marriage/) which also downplays such _adultery!_**
+Falls dieselben zwei Leute in einer _ehebrecherischen Ehe_ unter demselben Dach als Bruder und Schwester **ohne sexuellen Kontakt** leben würden, wäre das akzeptabel für Gott? Manche denken, es könnte akzeptabel sein. Eines ist klar, **ihr sexueller Kontakt ist _Ehebruch_ für Gott und das wird sie in den Feuersee befördern (Off21,8; 1.Kor6,9-10 etc.) es sei denn ihnen wird vergeben und sie hören auf mit jeglicher sexuellen Vereinigung (Ehebruch) Werde nicht irregeführt durch [John MacArthur Ministries](http://www.eternallifeblog.com/john-macarthur-adulterous-marriage/) welche ebenso _Ehebruch_ verharmlosen/herunterspielen!**
 
-## 1 Cor. 7:1-5 Passage Does Not Apply > To An Adulterous Marriage 
+## Der Stelle in 1. Kor. 7,1-5 Gilt Nicht Für Eine Ehebrecherische Ehe
 
-**Since two people in an *adulterous marriage* are not married in God's eyes, the 1 Cor. 7:1-5 passage referring to *married people* does NOT apply. The sexual union for them must stop for it is *adultery* and therefore forbidden because the marriage is in name only. It is not a bonafide marriage before God.** Don't be deceived by the multitude of ear-ticklers, who downplay the adultery in an adulterous marriage. Be on your guard. Your SOUL is your most valuable possession.
+**Da zwei Leute in einer _ehebrecherischen Ehe_ in Gottes Augen nicht verheiratet sind, gilt der Abschnitt in 1. Kor 7,1-5 für _verheiratete Leute_ NICHT. Die sexuelle Vereinigung muss für sie aufhören, da es _Ehebruch_ und daher verboten ist, weil die Ehe nur dem Namen nach ist. Es ist keine gutgläubige/ehrliche Ehe vor Gott.** Werde nicht irregeführt von der Menge an Ohrenkitzler, die den Ehebruch in eine ehebrecherische Ehe verharmlosen/herunterspielen. Sei auf der Hut. Deine SEELE ist dein wertvollster Besitz.
 
-## It is NOT Merciful To Deceive About Divorce and Remarriage 
+## Es ist NICHT Barmherzig Bezüglich Scheidung und Wiederverheiratung zu Täuschen
 
-Though it might sound like the message of the Lord Jesus about divorce and remarriage being adultery is *too harsh for our day,* it is relevant and true mercy because it is based on God's truth and spiritual reality. Remember this: **a false teacher is DANGEROUS, especially when teaching on any subject connected with salvation. In fact, he can be your worst enemy, though he may seem compassionate, caring and lenient. A false teacher is NOT ultimately concerned about your SOUL! He is more concerned about himself and keeping his own congregation and/or ministry! Chances are he has a mortgage or a car payment! For some it might just be his teaching influence over a large number he is thinking about!** With over 50% of the professing Christians in the American churches being divorced and remarried, the typical *pastor* of our day will be reluctant, at best, to repeat Jesus' teaching on divorce and remarriage, but his negligence doesn't change Jesus' message! Don't be deceived. Learn the truth about [repentance and forgiveness](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html). God's word is [final authority](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html). **Your eternal destiny depends on what you do with that message! NO sin or person is worth going to hell over.** GOD BLESS YOU.
+Obwohl es sich vielleicht anhört, als ob die Botschaft vom Herrn Jesus über Scheidung und Wiederheirat _für heutzutage zu rau_ ist, ist sie relevant und wahre Barmherzigkeit, da sie auf Gottes Wahrheit gegründet und geistliche Realität ist. Präge dir folgendes ein: **ein falscher Lehrer ist GEFÄHRLICH, speziell, wenn er bezüglich einem Thema lehrt, welches im Zusammenhang steht mit Errettung. In der Tat, er kann dein schlimmster Feind sein, obwohl er vielleicht barmherzig, sorgend und nachsichtig/gelinde/mild scheint. Ein falscher Lehrer ist schliesslich/letztendlich NICHT besorgt um deine SEELE! Er ist mehr besorgt um sich selbst und das Behalten seiner Versammlung und/oder seines Dienstes! Es spricht alles dafür, dass er eine Hypothek oder eine Auto-Abzahlung/Bezahlung hat! For some it might just be his teaching influence over a large number he is thinking about!** Mit über 50% der erklärten/bekennenden Christen in den Amerikanischen Kirchen, die geschieden und wiederverheiratet sind, wird sich der typische _Pastor_ heutzutage  bestenfalls dagegen sträuben, Jesu Lehre bezüglich Scheidung und Wiederverheiratung zu wiederholen, aber seine Nachlässigkeit ändert Jesu Botschaft nicht! Werde nicht irregeführt. Lerne die Wahrheit über [Busse und Vergebung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html). Gottes Wort ist die [letztendliche Autorität](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html). **Dein ewiges Schicksal hängt davon ab, was du mit dieser Botschaft tust! KEINE Sünde oder Person ist es wert, dafür in die Hölle zu gehen.** GOTT SEGNE DICH.
 
-Folks, **don't marry a *divorced* person whose spouse is still alive! Such a *divorce and remarriage equals adultery*.**
+Leute, **heiratet keine _geschiedene_ Person wessen Ehegatte immer noch am Leben ist! Solch eine _Scheidung und Wiederverheiratung ist gleich Ehebruch_.**
  
-![Divorce Remarriage ADULTERY](../../files/021.gif)
+![Scheidung Wiederheirat Ehebruch](../../files/021.gif)
  
 - **[Wicked People and How To Be Forgiven](wicked-people-forgiven.html)** 
-- **[The Plan Of Salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)** 
-- **[Backslider, God Wants You Back](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/backslider.html)** 
-- **[Lust: Another Name For Adultery](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)** 
-- **[A 25 year marriage is destroyed by wife's adultery](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ab.htm)** 
+- **[Der Plan Der Errettung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)** 
+- **[Rückfälliger, Gott Will Dich Zurück](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/backslider.html)** 
+- **[Begierde: Ein Anderer Name Für Ehebruch](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)** 
+- **[Eine 25-jährige Ehe wird durch den Ehebruch der Frau zerstört](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ab.htm)** 
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)  
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)  
 
 [Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach  
 PO Box 265  
-Washington, PA 15301 
+Washington, PA 15301  
 [EvangelicalOutreach.org](http://evangelicaloutreach.org)  
 [EternalLifeBlog.com](http://EternalLifeBlog.com)

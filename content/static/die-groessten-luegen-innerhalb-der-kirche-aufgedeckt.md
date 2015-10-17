@@ -1,4 +1,4 @@
-<!--t Die grössten Lügen innerhalb der Kirche aufgedeckt! | Exposing the Greatest Lies in the Church! t-->
+<!--t Lügen in der Kirche aufgedeckt! | Lies in the church exposed! t-->
 <!--d  d-->
 
 ## Deutsch 

@@ -14,13 +14,13 @@ Quelle: [www.evangelicaloutreach.org/prostituteemail.htm](http://gesundelehre.tk
 
 ### Dan Corner
 
-![prostitute speaks](../../files/pictures/a-colorb.gif)
+![Prostituierte spricht](../../files/pictures/a-colorb.gif)
 
 [![Bookmark and Share](../s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0)
 
 
 
-## This Prostitute Speaks and Reveals Her Deceptions
+## Diese Prostituierte Spricht und Offenbart Ihre Täuschung
 
 We address many different subjects on our web site. One subject deals with _**[prostitutes](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm)**_, which resulted in the following email from one. (Afterwards you will read a _bible answer_ to her -- a practicing prostitute.)
 
@@ -28,11 +28,11 @@ We address many different subjects on our web site. One subject deals with _**[p
 
 ## [Find Out Now How God Views ALL Prostitutes](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm)
 
-[![prostitute speaks](../../files/pictures/God-sees-prostitutes.jpg "Prostitutes are spiritual snare to others and themselves.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/unsaved-people.htm)
+[![Prostituierte spricht](../../files/pictures/God-sees-prostitutes.jpg "Prostitutes are spiritual snare to others and themselves.")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/unsaved-people.htm)
 
-## Bible Answer To A Prostitute
+## Bibelantwort An Eine Protituierte
 
-(**[Bible Answer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible-answers.html)) Please know that the Bible does NOT say anywhere that Mary was at any time a prostitute. That is a common error but not based on fact. (It might be in the movies, but it’s not in the Bible.) Also, please know that it is impossible to be in sexual sin (as you are) and be a follower of God at the same time. You are not only sinning against God, you are causing others to do the same. This is very bad.**
+(**[Bibelantwort](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible-answers.html)) Please know that the Bible does NOT say anywhere that Mary was at any time a prostitute. That is a common error but not based on fact. (It might be in the movies, but it’s not in the Bible.) Also, please know that it is impossible to be in sexual sin (as you are) and be a follower of God at the same time. You are not only sinning against God, you are causing others to do the same. This is very bad.**
 
 The GOOD NEWS is you can be forgiven and **[set free from this sin addiction](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/romans6.html)** that has you as its **[slave](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/slave.htm)**. You will have to sincerely **[repent](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/repentance.html)** (turn from your sins) and place a submissive faith in JESUS for your **[salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/plan-of-salvation.html)** though. Please carefully ponder Luke 18:13,14\. Please note the following Scripture:
 
@@ -60,7 +60,7 @@ For the vast majority that will read this post, **please know that one doesn’t
 
 - **[Premarital Safe Sex - Are Any Sexually Active Singles Really Safe?](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/safesex.html)**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **[Evangelical](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/index.html) Outreach**  
 **PO Box 265**  

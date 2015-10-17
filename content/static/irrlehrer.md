@@ -1,4 +1,4 @@
-<!--t Irrlehrer | False Teachers t-->
+﻿<!--t Irrlehrer Übersichtsliste | False Teachers Overview-List t-->
 <!--d Irrlehrer die sich im Internet rumtreiben Name Bild Irrlehren Kontext steht in Kontakt mit mehr Infos DerTheologe Die Bibel sei verf lscht worden d-->
 
 <!--
@@ -24,9 +24,9 @@ new:
 <!--TODO: |Hans-Jürgen Böhm|![alt][picture hans_juergen_boehm]|Taufe sei heilsnotwenig, nur auf den Namen Jesu darf man getauft sein, Weiter lehrt er, daß die AT-Gebote zu halten wären.|context|Ein-Gott Lehre (Anmerkungen von apostasia.net: man frägt sich, wie er durch seinen Ein-Gott im Heil sein will.; Halten Sie sich von Böhm fern!), (info von [www.apostasia.net/node/146](http://gesundelehre.tk/forwarder.php?url=http://www.apostasia.net/node/146)|-->
 
 
-[picture armin_mauerhofer]: files/false_teachers/armin_mauerhofer.jpg
-[picture c_s_lewis]: files/false_teachers/c_s_lewis.jpg
-[picture greg_violi_mit_frau]: files/false_teachers/greg_violi_mit_frau.jpg
+[picture armin_mauerhofer]: ../files/false_teachers/armin_mauerhofer.jpg
+[picture c_s_lewis]: ../files/false_teachers/c_s_lewis.jpg
+[picture greg_violi_mit_frau]: ../files/false_teachers/greg_violi_mit_frau.jpg
 
 -->
 
@@ -41,7 +41,7 @@ Nachfolgend eine Liste von Irrlehrern. _(viele Irrlehrer auf dieser Liste von [a
 - **Universalismus** (am Ende würden alle gerettet)
 - **Wohlstandsevangelium**
 - **_Charismatik_** / Pfingsbewegung / in Trance oder Extase begeben (z.B. durch Musik) / falsches Trunkensein im Geist / falsches Zungenreden / Rückwärts umfallen -> wie Shakti Pat & Schamanismus & in anderen Religionen
-- **komplette Verweltlichung und Anpassung an die Welt** z.B. auch durch Kurse/Einladungen/moderne Musik/Pantomime/Theather/Umfragen/Gemeinschaft mit Sündern haben -> **_Emerging Church_**
+- **komplette Verweltlichung und Anpassung an die Welt** z.B. auch durch Kurse/Einladungen/moderne Musik/Pantomime/Theather/Umfragen/Gemeinschaft mit Sündern haben -> **_Emerging Church_** (Emerging Church rejects among other things absolute/objective views and standards, Bible is not the authortative and final word of God, don't believe in a literal hell, don't believe in the coming judgment and that God will pour out his wrath on this earth, and they believe that the cross of Christ is offensive, they discourage rational thingking as well as clear biblical teaching, and they belive in spirit experiences more than in the scriptures as well as embracing mystical practices that are not found in Gods word, post-modern-theology - more info you can get [here](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/bell/video/EmergentChurch-ExposedDefined.mp3) - what unites them all is their eschatology toni jones: "we are on a tractor beam of redemption, God is in the future - he sends out a tractor beam that is pulling world history toward himself in a saving way" so the don't have to fear future judgment because they don't have that in their book (That Mt24 and Revelation happen literally is being fervently opposed by them...)
 - **falsche Einheit** & **Ökumene** bzw. Evangelische Allianz
 - **Dominionismus**
 - **Judaisierer** bzw. **Judaismus** wird den Leuten aufgezwungen, damit sie glauben, man MÜSSE den **Sabbat (am Samstag) halten** um gerettet zu werden und man müsse auch noch **jüdisch Feste / Traditionen und Essensgewohnheiten** einhalten und **Jesus müsse man Yeshua und Gott Jahwe nennen** etc.
@@ -67,21 +67,21 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 
 
 
-[picture prueftalles.com]: files/false_teachers/prueftalles.com.jpg
-[picture 119ministries.com]: files/false_teachers/119ministries.com.jpg
-[picture der_theologe]: files/false_teachers/der_theologe.jpg
-[picture dieter_potzel]: files/false_teachers/dieter_potzel.jpg
-[picture infokriegermcm]: files/false_teachers/infokriegermcm.jpg
-[picture gabriele_wittek]: files/false_teachers/gabriele_wittek.jpg
-[picture harold_graf]: files/false_teachers/harold_graf.jpg
-[picture harold_graf_offenbarungen]: files/false_teachers/harold_graf_offenbarungen.jpg
-[picture jan_siegl]: files/false_teachers/jan_siegl.jpg
-[picture jim_staley]: files/false_teachers/jim_staley.jpg
-[picture jim_staley_passion_for_truth_ministries]: files/false_teachers/jim_staley_passion_for_truth_ministries.jpg
-[picture maggie_doerr]: files/false_teachers/maggie_doerr.jpg
-[picture steve_okunola]: files/false_teachers/steve_okunola.jpg
-[picture universelles_leben1]: files/false_teachers/universelles_leben1.jpg
-[picture universelles_leben2]: files/false_teachers/universelles_leben2.jpg
+[picture prueftalles.com]: ../files/false_teachers/prueftalles.com.jpg
+[picture 119ministries.com]: ../files/false_teachers/119ministries.com.jpg
+[picture der_theologe]: ../files/false_teachers/der_theologe.jpg
+[picture dieter_potzel]: ../files/false_teachers/dieter_potzel.jpg
+[picture infokriegermcm]: ../files/false_teachers/infokriegermcm.jpg
+[picture gabriele_wittek]: ../files/false_teachers/gabriele_wittek.jpg
+[picture harold_graf]: ../files/false_teachers/harold_graf.jpg
+[picture harold_graf_offenbarungen]: ../files/false_teachers/harold_graf_offenbarungen.jpg
+[picture jan_siegl]: ../files/false_teachers/jan_siegl.jpg
+[picture jim_staley]: ../files/false_teachers/jim_staley.jpg
+[picture jim_staley_passion_for_truth_ministries]: ../files/false_teachers/jim_staley_passion_for_truth_ministries.jpg
+[picture maggie_doerr]: ../files/false_teachers/maggie_doerr.jpg
+[picture steve_okunola]: ../files/false_teachers/steve_okunola.jpg
+[picture universelles_leben1]: ../files/false_teachers/universelles_leben1.jpg
+[picture universelles_leben2]: ../files/false_teachers/universelles_leben2.jpg
 
 - - -
 <!--
@@ -97,7 +97,7 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 |:--|:--|:--|:--|:--|
 |Albert Frey|![alt][picture albert_frey]|Katholik (siehe z.B. hier: [http://de.wikipedia.org/wiki/Albert_Frey_(Musiker)](http://gesundelehre.tk/forwarder.php?url=http://de.wikipedia.org/wiki/Albert_Frey_(Musiker)) und im Selbstportrait auf der Webseite [www.adams-frey.de/](http://gesundelehre.tk/forwarder.php?url=http://www.adams-frey.de/) sowie auf [www.portal-onken.de](http://gesundelehre.tk/forwarder.php?url=http://www.portal-oncken.de/news/newsarchiv.php?lfdnr=256)), katholische/freimaurerische/tempelritter-/Vatikan-Symbolik "Kreuz und Krone"/"Cross and Crown" -> solche Symboliken braucht man nicht einfach so, deshalb: **ist er ein Freimaurer?**|ProChrist, fand zum "christlichen" Glauben durch den **katholischen** Priester resp. **Jesuiten** Fred Ritzhaupt, verbunden mit der (katholischen, ökumenischen & in der evangelischen Allianz-) Immanuel-Gemeinschaft in Ravensburg (katholisch-charismatisch Erneuerungsbewegung/"Taufe im Heiligen Geist")|[Mehr Infos auf www.diewahrheitistnochda.de](http://gesundelehre.tk/forwarder.php?url=http://www.diewahrheitistnochda.de/irrlehrer-verf%C3%BChrer/albert-frey/)|
 
-[picture albert_frey]: files/false_teachers/albert_frey.jpg
+[picture albert_frey]: ../files/false_teachers/albert_frey.jpg
 
 - - -
 
@@ -118,19 +118,19 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 |Toby Mac|![alt][picture toby_mac]||
 |Trip Lee|![alt][picture trip_lee]||
 
-[picture 4_king_and_country]: files/false_teachers/4_king_and_country.jpg
-[picture andy_mineo]: files/false_teachers/andy_mineo.jpg
-[picture dc_talk]: files/false_teachers/dc_talk.jpg
-[picture ihop]: files/false_teachers/ihop.jpg
-[picture jesus_culture]: files/false_teachers/jesus_culture.jpg
-[picture lecrae]: files/false_teachers/lecrae.jpg
-[picture michael_w_smith]: files/false_teachers/michael_w_smith.jpg
-[picture misty_edwards]: files/false_teachers/misty_edwards.jpg
-[picture planetshakers]: files/false_teachers/planetshakers.jpg
-[picture skillet]: files/false_teachers/skillet.jpg
-[picture tim_hughes]: files/false_teachers/tim_hughes.jpg
-[picture toby_mac]: files/false_teachers/toby_mac.jpg
-[picture trip_lee]: files/false_teachers/trip_lee.jpg
+[picture 4_king_and_country]: ../files/false_teachers/4_king_and_country.jpg
+[picture andy_mineo]: ../files/false_teachers/andy_mineo.jpg
+[picture dc_talk]: ../files/false_teachers/dc_talk.jpg
+[picture ihop]: ../files/false_teachers/ihop.jpg
+[picture jesus_culture]: ../files/false_teachers/jesus_culture.jpg
+[picture lecrae]: ../files/false_teachers/lecrae.jpg
+[picture michael_w_smith]: ../files/false_teachers/michael_w_smith.jpg
+[picture misty_edwards]: ../files/false_teachers/misty_edwards.jpg
+[picture planetshakers]: ../files/false_teachers/planetshakers.jpg
+[picture skillet]: ../files/false_teachers/skillet.jpg
+[picture tim_hughes]: ../files/false_teachers/tim_hughes.jpg
+[picture toby_mac]: ../files/false_teachers/toby_mac.jpg
+[picture trip_lee]: ../files/false_teachers/trip_lee.jpg
 
 - - -
 
@@ -188,11 +188,11 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 |Johann Ludwig Konrad Allendorf, Liederdichter (*1693 - †1773)|![alt][picture johann_ludwig_konrad_allendorf]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch), UdH-Nachweis gefunden von apostasia.net: >>Auszüge aus Liedern: Du bist mir wunderbar gewogen Und bleibest es in Ewigkeit. Wir bleiben ewig ungeschieden. Von Gott uns nichts mehr trennet. Laß uns ewig, Himmelssonne, Seelenwonne, Dich genießen Und in Deinem Lob zerfließen.<<|
 |Johannes Hartl (Dr.)|![alt][picture johannes_hartl]||Leiter Gebetshaus Augsburg, Katholische Kirche, Charismatische Erneuerungsbewegung, EXPLO15||
 |Johannes Reimer (Prof. Dr.)|![alt][picture johannes_reimer]||Emerging Church|[Mehr Infos auf www.diewahrheitistnochda.de](http://gesundelehre.tk/forwarder.php?url=http://www.diewahrheitistnochda.de/irrlehrer-verf%C3%BChrer/johannes-reimer-prof-dr/) und noch [ein PDF hierzu](http://gesundelehre.tk/forwarder.php?url=diewahrheitistnochda_johannes_reimer_ich_bete_zu_allah)|
-|**_Joyce Meyer_**|![alt][picture joyce_meyer]|Wohlstandsevangelium, Word-Faith|||
+|**_Joyce Meyer_**|![alt][picture joyce_meyer]|Wohlstandsevangelium, Word-Faith, Jesus habe am Kreuz und in der Hölle bezahlt für 3 Tage und 3 Nächte, alle Mächte der Hölle waren auf ihm und lachten ihn aus|||
 |Karl-Heinz Vanheiden|![alt][picture karl_heinz_vanheiden]|UdH/OSAS|Autor (Bibelfälscher) der Bibelübersetzung NeÜ (<!-- /*TODO: Jahrzahl prüfen*/ -->2003? 2014?, Neue Evangelistische Übersetzung), [www.kh-vanheiden.de](http://gesundelehre.tk/forwarder.php?url=http://www.kh-vanheiden.de), [www.bibelbund.de](http://gesundelehre.tk/forwarder.php?url=http://www.bibelbund.de), Zeitschrift: "Bibel und Gemeinde", Bibelbund e.V., Lehrt an der Bibelschule Brugstaedt e.V. [www.bibelburg.de](http://gesundelehre.tk/forwarder.php?url=http://www.bibelburg.de), [http://www.derbibelvertrauen.de/](http://gesundelehre.tk/forwarder.php?url=http://www.derbibelvertrauen.de/)|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch), UdH-Nachweis gefunden von apostasia.net: Predigt:  Kennzeichen der Wiedergeburt, 2000|
 |Klaus Ritter|![alt][picture klaus_ritter]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
 |Kurt Vetterli|![alt][picture kurt_vetterli]|UdH/OSAS, Westminster-Bekenntnis (= Calvinismus)|Evangelisch-Reformierte Kirche W.B. Basel [http://basel.erkwb.ch/kontakt/](http://gesundelehre.tk/forwarder.php?url=basel.erkwb.ch/kontakt/), Verax-Konferenz (siehe [www.betanien.de/verlag/material/VeraxKonferenz09.pdf](http://gesundelehre.tk/forwarder.php?url=http://www.betanien.de/verlag/material/VeraxKonferenz09.pdf))(also Kontakt mit dem Betanien-Verlag), Kontakt mit Verax-Institut|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
-|**Leo Bigger**|![alt][picture leo_bigger]|Versucht Spagat zu meistern zwischen Spass haben UND Gott haben|Leiter ICF Church & Movement, EXPLO15, Praisecamp|[Link zu Interview-Artikel](http://gesundelehre.tk/forwarder.php?url=to-do)|
+|**Leo Bigger**|![alt][picture leo_bigger]|Versucht Spagat zu meistern zwischen Spass haben UND Gott haben|Leiter ICF Church & Movement, EXPLO15, Praisecamp, icf.churchonline.org|[Link zu Interview-Artikel](http://gesundelehre.tk/forwarder.php?url=http://www.tagesanzeiger.ch/leben/gesellschaft/Ich-befahl-dem-Teufel-aus-ihr-zu-fahren-/story/11087234) - Zitate von dort: Journalist:>>Freikirchen und die katholische Kirche verkünden doch den gleichen Gott.<< Leo Bigger:>>Es ist kein anderer Glaube, doch ich bekam Jesus neu erklärt<< -- er sagt also dass es der gleiche Glaube ist wie die katholische Kirche hat, also ganz klar Irrlehrer - anscheinend hat das ICF den gleichen abgöttischen Glauben wie die kath. Kirche?; Journalist:>>Ist für Sie die katholische Kirche eine Sekte?<< Leo Bigger:>>Nein. Meine Prägung ist katholisch, wie soll ich da ein Feindbild haben?<<; Journalist:>>Kontrollieren Sie, ob die Anhänger Ihrer Kirche keusch leben?<< Leo Bigger:>>Natürlich nicht. Jeder entscheidet selbst, wie er sein Leben lebt. Nicht alle befolgen meine Empfehlungen. Ich vermittle nur Werte. Viele haben auch Sex, obwohl sie wissen, dass Gott es anders möchte<< -- dies muss jedoch kontrolliert werden laut 1. Korintherbrief! - "Nun aber habe ich euch geschrieben, daß ihr keinen Umgang haben sollt mit jemandem, der sich Bruder nennen läßt und dabei ein UNZÜCHTIGER oder Habsüchtiger oder Götzendiener oder Lästerer oder Trunkenbold oder Räuber ist; mit einem solchen sollt ihr nicht einmal essen." (1Kor 5:11, Schlachterbibel 1951) - wer Unzucht betreibt (Unzucht  = Inzucht / Sex ausserhalb der Ehe / Sex mit Tieren) oder homosexuell ist (1. Kor6,9-11 / Galater5,19-21) der ist auf dem Weg zur Hölle und NICHT gerettet - solche müssen sich bekehren. Wenn ein Bruder solches tut (d.h. NACH seiner Bekehrung) so ist er wiederum nicht mehr gerettet und muss Busse tun (=davon umkehren) und deshalb muss jener ausgeschlossen werden, auf dass er einsieht dass er auf dem falschen Weg ist und sich bekehrt und wieder Busse tut davon.|
 |Lilo Keller|![alt][picture lilo_keller]|Charismatik|Stiftung Schleife||
 |Maleachi-Kreis|![alt][picture maleachi_kreis]|UdH/OSAS|[www.maleachi-kreis.de](http://gesundelehre.tk/forwarder.php?url=http://www.maleachi-kreis.de)|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch), Anmerkung von apostasia.net: "die Botschaft aus dem Buch Maleachi gilt besonders diesem Kreis"|
 |Manuel Peters|![alt][picture manuel_peters]|UdH/OSAS|[www.ausserhalbdeslagers.de](http://gesundelehre.tk/forwarder.php?url=http://www.ausserhalbdeslagers.de)|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch); UdH-Beweis gefunden von apostasia.net in "Das falsche Evangelium der exklusiven Brüderbewegung"|
@@ -204,7 +204,7 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 |Martin Erdmann|![alt][picture martin_erdmann]|konsistenter 5-Punkte-Calvinist|Präsiden des [**Verax-Institutes**](http://gesundelehre.tk/forwarder.php?url=www.verax.ws), Kontakt mit Betanien-Verlag, **Verax-Konferenz**|**UdH-Nachweis von apostasia.net:** >>"Das ist eine erschreckende Behauptung, denn das Gegenteil ist wahr. Weder ist Martin Erdmann Dispensationalist (lediglich Millennialist, aber da gibt es nur sehr wenige Überschneidungen mit dem Dispensationalismus) noch hat er etwas gegen den Calvinismus, vielmehr steht er in der Heilslehre zum Calvinismus und kämpft dafür! Aber was in USA unter New Calvinism läuft (und was Martin Erdmann zu Recht kritisiert), hat mit dem herkömmlichen Calvinismus kaum noch etwas zu tun." Hans-Werner Deppe über Erdmann in seinem Forum<<, **aus dem [Glaubensbekenntnis des Verax-Instutes](http://gesundelehre.tk/forwarder.php?url=http://veraxinstitut.ch/ueber-uns/organisation)**: >>Die Fünf Punkte des Calvinismus: 1) Totale Verderbtheit der menschlichen Natur; 2) Bedingungslose Erwählung zum Heil; 3) Begrenzte Versöhnung (spezielle Erlösung); 4) Unwiderstehliche Gnade; 5) Durchhalten der Heiligen (Gläubigen).<<|
 |Martin Schneeberg|![alt][picture martin_schneeberg]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
 |Michael Gülk, Christliche Hauskreisgemeinde Hamburg|![alt][picture michael_guelk]|UdH/OSAS|[www.christliche-hauskreisgemeinde.de](http://gesundelehre.tk/forwarder.php?url=http://www.christliche-hauskreisgemeinde.de)|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch), UdH-Nachweis gefunden von apostasia.net: >>Homepage unter "Ich bin mir nicht sicher ob ich ein Christ bin": "...Alleine durch Gnade, alleine durch Jesus Christus und alleine durch den Glauben. Hier unterstreicht das “Allein” die Tatsache, dass der gefallene Mensch (Sünder) keinen Beitrag zu seiner Erlösung zu leisten vermag...Und eines weiß ich: Gott ist jederzeit der Rettende und ich jederzeit nichts als der Gerettete in der Zeit und für die Ewigkeit..<<|
-|Michael Schneider|![alt][picture michael_schneider]|UdH/OSAS, Entrückung VOR einer Trübsalszeit (siehe Glaubensbekenntnis cg-allendorf.de)|Christliche Gemeinde Giessen-Allendorf bei Gießen, [freiegnade.blogspot.de](http://gesundelehre.tk/forwarder.php?url=http://freiegnade.blogspot.de), [www.cg-allendorf.de](http://gesundelehre.tk/forwarder.php?url=http://www.cg-allendorf.de), [www.schneid9.de](http://gesundelehre.tk/forwarder.php?url=http://www.schneid9.de), [www.bruederbewegung.de](http://gesundelehre.tk/forwarder.php?url=http://www.bruederbewegung.de)|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch), UdH-Nachweis gefunden von apostasia.net: >>"Free Grace: Wahre Christen können abfallen, in schlimme Sünde geraten und völlig versagen. (Das Neue Testament enthält viele Warnungen an Christen.) Es ist sogar denkbar,  dass Christen die Wahrheit dauerhaft aufgeben, sich dem Wirken des Geistes Gottes in ihrem Leben verschließen und den Herrn letztlich verleugnen. Gott jedoch verlässt seine Kinder nicht, sondern züchtigt sie geduldig (1Kor 10,30–32; Hebr 6,1–12; 12,4–11). Selbst »wenn wir untreu sind – er bleibt treu« (2Tim 2,13), und wir werden ins ewige Leben eingehen." aus aus http://freiegnade.blogspot.de [Anmerkung Webseitenbetreiber: Wenn UdH-Irrlehrer das Wort "Abfall" benutzen, dann deckt sich deren Vorstellung nicht mit dem, was die Bibel unter "Abfall" versteht.<< ----> Standard-UdH-Irrlehrer-Argumentation mit 2.Tim2,13 - der Kontext wird ausgeblendet welcher deutlich machen würde, dass Jesus sehr wohl verleugnen wird - Kontext: Glaubwürdig ist das Wort: Sind wir mitgestorben, so werden wir auch mitleben; dulden wir, so werden wir mitherrschen; **_verleugnen wir, so wird er uns auch verleugnen;_** _sind wir untreu, so bleibt er treu; denn er kann sich selbst nicht verleugnen._ (2Tim 2:11-13, Schlachterbibel 1951) - also heisst das, wenn wir verleugnen und untreu werden so ist er sich selbst treu und dem was er gesagt hat und Jesus hat gesagt, dass wer ihn verleugnet, der wird von ihm verleugnet werden -> also können wir GANZ sicher sein, dass Jesus uns verleugnen wird, wenn wir ihn verleugnen, denn er kann SICH SELBST nicht verleugnen. Ausschnitt aus [Glaubensbekenntnis der cg-allendorf.de](http://gesundelehre.tk/forwarder.php?url=http://www.cg-allendorf.de/waswirglauben.html): >>6. Das Heil ist eine vollkommene Erlösung durch die Gnade Gottes. Es wird als freies Geschenk durch den persönlichen Glauben an den Herrn Jesus Christus und sein vollendetes Werk am Kreuz empfangen (Röm 3,24.28; Tit 3,5–7) **_und ist unverlierbar_** (Joh 10,27–30; Röm 8,28–30).<< ausserdem glauben sie an eine Entrückung VOR einer Trübsalszeit: >>11. **_Die Wiederkunft Jesu Christi ist ein jederzeit mögliches Ereignis_** (Mt 24,42). Zuerst wird der Herr Jesus kommen, um die Gemeinde zu sich zu nehmen (1Thess 4,16.17), danach wird er die Völker richten (Mt 25,31–46) und auf der Erde das Tausendjährige Reich gründen (Offb 20,1–6).<< ---> nein, es kann nicht einfach so jederzeit geschehen (siehe all die Zeichen in Mt24, die vorher geschehen müssen)|
+|Michael Schneider|![alt][picture michael_schneider]|UdH/OSAS, Entrückung VOR einer Trübsalszeit (siehe Glaubensbekenntnis cg-allendorf.de)|Christliche Gemeinde Giessen-Allendorf bei Gießen, [freiegnade.blogspot.de](http://gesundelehre.tk/forwarder.php?url=http://freiegnade.blogspot.de), [freiegnade.blogspot.ch](http://gesundelehre.tk/forwarder.php?url=http://freiegnade.blogspot.de), [www.cg-allendorf.de](http://gesundelehre.tk/forwarder.php?url=http://www.cg-allendorf.de), [www.schneid9.de](http://gesundelehre.tk/forwarder.php?url=http://www.schneid9.de), [www.bruederbewegung.de](http://gesundelehre.tk/forwarder.php?url=http://www.bruederbewegung.de)|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch), UdH-Nachweis gefunden von apostasia.net: >>"Free Grace: Wahre Christen können abfallen, in schlimme Sünde geraten und völlig versagen. (Das Neue Testament enthält viele Warnungen an Christen.) Es ist sogar denkbar,  dass Christen die Wahrheit dauerhaft aufgeben, sich dem Wirken des Geistes Gottes in ihrem Leben verschließen und den Herrn letztlich verleugnen. Gott jedoch verlässt seine Kinder nicht, sondern züchtigt sie geduldig (1Kor 10,30–32; Hebr 6,1–12; 12,4–11). Selbst »wenn wir untreu sind – er bleibt treu« (2Tim 2,13), und wir werden ins ewige Leben eingehen." aus aus http://freiegnade.blogspot.de [Anmerkung Webseitenbetreiber: Wenn UdH-Irrlehrer das Wort "Abfall" benutzen, dann deckt sich deren Vorstellung nicht mit dem, was die Bibel unter "Abfall" versteht.<< ----> Standard-UdH-Irrlehrer-Argumentation mit 2.Tim2,13 - der Kontext wird ausgeblendet welcher deutlich machen würde, dass Jesus sehr wohl verleugnen wird - Kontext: Glaubwürdig ist das Wort: Sind wir mitgestorben, so werden wir auch mitleben; dulden wir, so werden wir mitherrschen; **_verleugnen wir, so wird er uns auch verleugnen;_** _sind wir untreu, so bleibt er treu; denn er kann sich selbst nicht verleugnen._ (2Tim 2:11-13, Schlachterbibel 1951) - also heisst das, wenn wir verleugnen und untreu werden so ist er sich selbst treu und dem was er gesagt hat und Jesus hat gesagt, dass wer ihn verleugnet, der wird von ihm verleugnet werden -> also können wir GANZ sicher sein, dass Jesus uns verleugnen wird, wenn wir ihn verleugnen, denn er kann SICH SELBST nicht verleugnen. Ausschnitt aus [Glaubensbekenntnis der cg-allendorf.de](http://gesundelehre.tk/forwarder.php?url=http://www.cg-allendorf.de/waswirglauben.html): >>6. Das Heil ist eine vollkommene Erlösung durch die Gnade Gottes. Es wird als freies Geschenk durch den persönlichen Glauben an den Herrn Jesus Christus und sein vollendetes Werk am Kreuz empfangen (Röm 3,24.28; Tit 3,5–7) **_und ist unverlierbar_** (Joh 10,27–30; Röm 8,28–30).<< ausserdem glauben sie an eine Entrückung VOR einer Trübsalszeit: >>11. **_Die Wiederkunft Jesu Christi ist ein jederzeit mögliches Ereignis_** (Mt 24,42). Zuerst wird der Herr Jesus kommen, um die Gemeinde zu sich zu nehmen (1Thess 4,16.17), danach wird er die Völker richten (Mt 25,31–46) und auf der Erde das Tausendjährige Reich gründen (Offb 20,1–6).<< ---> nein, es kann nicht einfach so jederzeit geschehen (siehe all die Zeichen in Mt24, die vorher geschehen müssen)|
 |**Mike Pilavachi**|![alt][picture mike_pilavachi]|Emerging Church|Emerging Church from England (Soul Survivor), Praisecamp, EXPLO15||
 |Missionswerk Heukelbach, Stiftung Missionswerk Werner Heukelbach, Kinder-Radio Doppeldecker|![alt][picture missionswerk_heukelbach]|UdH/OSAS, Entrückung VOR der Trübsalszeit die jederzeit geschehen könne|[doppeldecker.info](http://gesundelehre.tk/forwarder.php?url=http://doppeldecker.info)|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch), UdH-Nachweis gefunden von apostasia.net: Auf direkte Nachfrage per E-Mail.|
 |Nicky Gumbel (mit Frau Pippa)|![alt][picture nicky_und_pippa_gumbel]|Alphalive-Kurs-Pionier|Gemeinschaft mit Vatikan/Papst, Campus für Chrisus||
@@ -263,134 +263,134 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 |Wolfgang Nestvogel (Dr.)|![alt][picture wolfgang_nestvogel]|UdH/OSAS|Dozent für Praktische Theologie an der **Akademie für _Reformatorische Theologie_ (ART)** (Anmerkung: das ist sozusagen schon Calvinismus) in Hannover (2001-2010), seit 2005 zusätzlich deren Rektor. [www.wolfgang-nestvogel.de](http://gesundelehre.tk/forwarder.php?url=http://www.wolfgang-nestvogel.de); [www.beg-hannover.de/](http://gesundelehre.tk/forwarder.php?url=http://www.beg-hannover.de/)|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch), Beweis für UdH zu finden in  "Erwählung und/oder Bekehrung?"; aus dem [Bekenntnis der bekennenden evangelischen Gemeinde in Hannover](http://gesundelehre.tk/forwarder.php?url=http://www.beg-hannover.de/Bekenntnis.htm), wo Herr Nestvogel in der Gemeindeleitung ist: >>Wir bekennen, dass der Christ im Glauben an Christus der Sünde widersteht, aber aufgrund der in ihm wohnenden Sünde in diesem Leben keine ethische Vollkommenheit erlangt.<< _Das bedeutet somit, dass an die Irrlehre der Erbsünde geglaubt wird; auch von dort_: >>Wir verwerfen die Lehre, der Mensch könne aus sich heraus glauben und der Glaube sei ein Gefühl oder nur ein Bewusstseinsakt.<< - dies zeigt auch wieder deutlich dass man nicht glaubt, dass der Mensch sehr wohl fähig ist, Gott zu gehorchen. (dies ist der erste Punkt des Calvinismus (**_T_**.U.L.I.P.)|
 |Wolfgang Wegert (*1943)|![alt][picture wolfgang_wegert]|UdH/OSAS|Gemeinde und Missionswerk Arche, Hamburg|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
 
-[picture akademie_fuer_reformatorische_theologie]: files/false_teachers/akademie_fuer_reformatorische_theologie.jpg
-[picture andreas_boppart]: files/false_teachers/andreas_boppart.jpg
-[picture andreas_jannsen]: files/false_teachers/andreas_jannsen.jpg
-[picture anselm_gruen]: files/false_teachers/anselm_gruen.jpg
-[picture arend_remmers]: files/false_teachers/arend_remmers.jpg
-[picture arnd_bretschneider]: files/false_teachers/arn_bretschneider.jpg
-[picture arne_beccard]: files/false_teachers/arne_beccard.jpg
-[picture arnold_fruchtenbaum]: files/false_teachers/arnold_fruchtenbaum.jpg
-[picture benedikt_peters]: files/false_teachers/benedikt_peters.jpg
-[picture bernhard_brockhaus]: files/false_teachers/bernhard_brockhaus.jpg
-[picture betanien_verlag]: files/false_teachers/betanien_verlag.jpg
-[picture bibelchristen.de]: files/false_teachers/bibelchristen.de.jpg
-[picture bibel_center_freie_theologische_fachschule_breckerfeld]: files/false_teachers/bibel_center_freie_theologische_fachschule_breckerfeld.jpg
-[picture bibelschule_brake]: files/false_teachers/bibelschule_brake.jpg
-[picture biblischer_hoerfunk_bbn]: files/false_teachers/biblischer_hoerfunk_bbn.jpg
-[picture boa_biblische_ausbildung_am_ort]: files/false_teachers/boa_biblische_ausbildung_am_ort.jpg
-[picture bruno_schwengeler]: files/false_teachers/bruno_schwengeler.jpg
-[picture brunstad_christian_church]: files/false_teachers/brunstad_christian_church.jpg
-[picture carl_brockhaus]: files/false_teachers/carl_brockhaus.jpg
-[picture christina_brudereck]: files/false_teachers/christina_brudereck.jpg
-[picture christoph_kunz]: files/false_teachers/christoph_kunz.jpg
-[picture clkv]: files/false_teachers/clkv.jpg
-[picture daniel_platte]: files/false_teachers/daniel_platte.jpg
-[picture derek_prince]: files/false_teachers/derek_prince.jpg
-[picture detlef_kuehlein]: files/false_teachers/detlef_kuehlein.jpg
-[picture dirk_noll]: files/false_teachers/dirk_noll.jpg
-[picture dirk_schuermann]: files/false_teachers/dirk_schuermann.jpg
-[picture doyle_klaassen]: files/false_teachers/doyle_klaassen.jpg
-[picture dwg_radio]: files/false_teachers/dwg_radio.jpg
-[picture ebtc_europaeisches_bibel_trainings_centrum]: files/false_teachers/ebtc_europaeisches_bibel_trainings_centrum.jpg
-[picture enrico_hirsch]: files/false_teachers/enrico_hirsch.jpg
-[picture erlo_stegen]: files/false_teachers/erlo_stegen.jpg
-[picture ernst_modersohn]: files/false_teachers/ernst_modersohn.jpg
-[picture fred_ritzhaupt]: files/false_teachers/fred_ritzhaupt.jpg
-[picture frere_roger]: files/false_teachers/frere_roger.jpg
-[picture fritz_koch]: files/false_teachers/fritz_koch.jpg
-[picture georg_otto_schmid]: files/false_teachers/georg_otto_schmid.jpg
-[picture georg_walter]: files/false_teachers/georg_walter.jpg
-[picture george_zeller]: files/false_teachers/george_zeller.jpg
-[picture gernot_frisch]: files/false_teachers/gernot_frisch.jpg
-[picture gerrid_setzer]: files/false_teachers/gerrid_setzer.jpg
-[picture gleason_l_archer]: files/false_teachers/gleason_l_archer.jpg
-[picture gottfried_holic]: files/false_teachers/gottfried_holic.jpg
-[picture gregor_dalliard]: files/false_teachers/gregor_dalliard.jpg
-[picture hans_juergen_boehm]: files/false_teachers/hans_juergen_boehm.jpg
-[picture hans_juergen_boehm]: files/false_teachers/hans_juergen_boehm.jpg
-[picture hans_peter_royer]: files/false_teachers/hans_peter_royer.jpg
-[picture hans_peter_wepf]: files/false_teachers/hans_peter_wepf.jpg
-[picture hans_werner_deppe]: files/false_teachers/hans_werner_deppe.jpg
-[picture hanspeter_und_vreni_nuesch]: files/false_teachers/hanspeter_und_vreni_nuesch.jpg
-[picture hartmut_jaeger]: files/false_teachers/hartmut_jaeger.jpg
-[picture heidi_baker]: files/false_teachers/heidi_baker.jpg
-[picture helmut_bauer]: files/false_teachers/helmut_bauer.jpg
-[picture herold_schriftenmission]: files/false_teachers/herold_schriftenmission.jpg
-[picture horst_deckert]: files/false_teachers/horst_deckert.jpg
-[picture ivo_sasek]: files/false_teachers/ivo_sasek.jpg
-[picture johann_ludwig_konrad_allendorf]: files/false_teachers/johann_ludwig_konrad_allendorf.jpg
-[picture johannes_hartl]: files/false_teachers/johannes_hartl.jpg
-[picture johannes_reimer]: files/false_teachers/johannes_reimer.jpg
-[picture joyce_meyer]: files/false_teachers/joyce_meyer.jpg
-[picture karl_heinz_vanheiden]: files/false_teachers/karl_heinz_vanheiden.jpg
-[picture klaus_ritter]: files/false_teachers/klaus_ritter.jpg
-[picture kurt_vetterli]: files/false_teachers/kurt_vetterli.jpg
-[picture leo_bigger]: files/false_teachers/leo_bigger.jpg
-[picture lilo_keller]: files/false_teachers/lilo_keller.jpg
-[picture maleachi_kreis]: files/false_teachers/maleachi_kreis.jpg
-[picture manuel_peters]: files/false_teachers/manuel_peters.jpg
-[picture manuel_seibel]: files/false_teachers/manuel_seibel.jpg
-[picture marius_buehlmann]: files/false_teachers/marius_buehlmann.jpg
-[picture martin_buehlmann_mit_frau]: files/false_teachers/martin_buehlmann_mit_frau.jpg
-[picture martin_dreyer]: files/false_teachers/martin_dreyer.jpg
-[picture martin_erdmann]: files/false_teachers/martin_erdmann.jpg
-[picture martin_schneeberg]: files/false_teachers/martin_schneeberg.jpg
-[picture michael_guelk]: files/false_teachers/michael_guelk.jpg
-[picture michael_schneider]: files/false_teachers/michael_schneider.jpg
-[picture mike_pilavachi]: files/false_teachers/mike_pilavachi.jpg
-[picture missionswerk_heukelbach]: files/false_teachers/missionswerk_heukelbach.jpg
-[picture nicky_und_pippa_gumbel]: files/false_teachers/nicky_und_pippa_gumbel.jpg
-[picture nikolaus_ludwig_graf_von_zinzendorf]: files/false_teachers/nikolaus_ludwig_graf_von_zinzendorf.jpg
-[picture norbert_homuth]: files/false_teachers/norbert_homuth.jpg
-[picture pater_raniero_cantalamessa]: files/false_teachers/pater_raniero_cantalamessa.jpg
-[picture peter_bronclik]: files/false_teachers/peter_bronclik.jpg
-[picture peter_streitenberger]: files/false_teachers/peter_streitenberger.jpg
-[picture peter_voth]: files/false_teachers/peter_voth.jpg
-[picture ralf_fenning]: files/false_teachers/ralf_fenning.jpg
-[picture reformatorischer_verlag_beese]: files/false_teachers/reformatorischer_verlag_beese.jpg
-[picture reinhard_bonnke]: files/false_teachers/reinhard_bonnke.jpg
-[picture reinhold_keinberger]: files/false_teachers/reinhold_keinberger.jpg
-[picture rene_malgo]: files/false_teachers/rene_malgo.jpg
-[picture roger_liebi]: files/false_teachers/roger_liebi.jpg
-[picture roland_senk]: files/false_teachers/roland_senk.jpg
-[picture roland_werner]: files/false_teachers/roland_werner.jpg
-[picture rudolf_ebertshaeuser]: files/false_teachers/rudolf_ebertshaeuser.jpg
-[picture schilo_christliche_missionsgemeinschaft]: files/false_teachers/schilo_christliche_missionsgemeinschaft.jpg
-[picture sebastian_heck]: files/false_teachers/sebastian_heck.jpg
-[picture siegfried_schad]: files/false_teachers/siegfried_schad.jpg
-[picture simone_schmieder]: files/false_teachers/simone_schmieder.jpg
-[picture sola_scriptura_ev]: files/false_teachers/sola_scriptura_ev.jpg
-[picture soundwords.de]: files/false_teachers/soundwords.de.jpg
-[picture stephan_isenberg]: files/false_teachers/stephan_isenberg.jpg
-[picture stephan_isenberg2]: files/false_teachers/stephan_isenberg2.jpg
-[picture stefan_koethe]: files/false_teachers/stefan_koethe.jpg
-[picture stefan_pohl]: files/false_teachers/stefan_pohl.jpg
-[picture ted_richley]: files/false_teachers/ted_richley.jpg
-[picture thomas_giese]: files/false_teachers/thomas_giese.jpg
-[picture thomas_lieth]: files/false_teachers/thomas_lieth.jpg
-[picture thomas_schirrmacher]: files/false_teachers/thomas_schirrmacher.jpg
-[picture thomas_zindel]: files/false_teachers/thomas_zindel.jpg
-[picture thorsten_attendorn]: files/false_teachers/thorsten_attendorn.jpg
-[picture tim_kelly]: files/false_teachers/tim_kelly.jpg
-[picture tobias_faix]: files/false_teachers/tobias_faix.jpg
-[picture torben_danielzik]: files/false_teachers/torben_danielzik.jpg
-[picture torben_sondergaard]: files/false_teachers/torben_sondergaard.jpg
-[picture ulrich_brinkmann]: files/false_teachers/ulrich_brinkmann.jpg
-[picture ulrich_eggers]: files/false_teachers/ulrich_eggers.jpg
-[picture ulrich_parzany]: files/false_teachers/ulrich_parzany.jpg
-[picture urban_camenzind]: files/false_teachers/urban_camenzind.jpg
-[picture uwe_seidel]: files/false_teachers/uwe_seidel.jpg
-[picture walter_a_elwell]: files/false_teachers/walter_a_elwell.jpg
-[picture walter_heidenreich]: files/false_teachers/walter_heidenreich.jpg
-[picture walter_nitsche]: files/false_teachers/walter_nitsche.jpg
-[picture werner_nachtigal]: files/false_teachers/werner_nachtigal.jpg
-[picture wilfried_plock]: files/false_teachers/wilfried_plock.jpg
-[picture wilhelm_pahls]: files/false_teachers/wilhelm_pahls.jpg
-[picture willem_ouweneel]: files/false_teachers/willem_ouweneel.jpg
-[picture wolfgang_buehne]: files/false_teachers/wolfgang_buehne.jpg
-[picture wolfgang_nestvogel]: files/false_teachers/wolfgang_nestvogel.jpg
-[picture wolfgang_wegert]: files/false_teachers/wolfgang_wegert.jpg
+[picture akademie_fuer_reformatorische_theologie]: ../files/false_teachers/akademie_fuer_reformatorische_theologie.jpg
+[picture andreas_boppart]: ../files/false_teachers/andreas_boppart.jpg
+[picture andreas_jannsen]: ../files/false_teachers/andreas_jannsen.jpg
+[picture anselm_gruen]: ../files/false_teachers/anselm_gruen.jpg
+[picture arend_remmers]: ../files/false_teachers/arend_remmers.jpg
+[picture arnd_bretschneider]: ../files/false_teachers/arn_bretschneider.jpg
+[picture arne_beccard]: ../files/false_teachers/arne_beccard.jpg
+[picture arnold_fruchtenbaum]: ../files/false_teachers/arnold_fruchtenbaum.jpg
+[picture benedikt_peters]: ../files/false_teachers/benedikt_peters.jpg
+[picture bernhard_brockhaus]: ../files/false_teachers/bernhard_brockhaus.jpg
+[picture betanien_verlag]: ../files/false_teachers/betanien_verlag.jpg
+[picture bibelchristen.de]: ../files/false_teachers/bibelchristen.de.jpg
+[picture bibel_center_freie_theologische_fachschule_breckerfeld]: ../files/false_teachers/bibel_center_freie_theologische_fachschule_breckerfeld.jpg
+[picture bibelschule_brake]: ../files/false_teachers/bibelschule_brake.jpg
+[picture biblischer_hoerfunk_bbn]: ../files/false_teachers/biblischer_hoerfunk_bbn.jpg
+[picture boa_biblische_ausbildung_am_ort]: ../files/false_teachers/boa_biblische_ausbildung_am_ort.jpg
+[picture bruno_schwengeler]: ../files/false_teachers/bruno_schwengeler.jpg
+[picture brunstad_christian_church]: ../files/false_teachers/brunstad_christian_church.jpg
+[picture carl_brockhaus]: ../files/false_teachers/carl_brockhaus.jpg
+[picture christina_brudereck]: ../files/false_teachers/christina_brudereck.jpg
+[picture christoph_kunz]: ../files/false_teachers/christoph_kunz.jpg
+[picture clkv]: ../files/false_teachers/clkv.jpg
+[picture daniel_platte]: ../files/false_teachers/daniel_platte.jpg
+[picture derek_prince]: ../files/false_teachers/derek_prince.jpg
+[picture detlef_kuehlein]: ../files/false_teachers/detlef_kuehlein.jpg
+[picture dirk_noll]: ../files/false_teachers/dirk_noll.jpg
+[picture dirk_schuermann]: ../files/false_teachers/dirk_schuermann.jpg
+[picture doyle_klaassen]: ../files/false_teachers/doyle_klaassen.jpg
+[picture dwg_radio]: ../files/false_teachers/dwg_radio.jpg
+[picture ebtc_europaeisches_bibel_trainings_centrum]: ../files/false_teachers/ebtc_europaeisches_bibel_trainings_centrum.jpg
+[picture enrico_hirsch]: ../files/false_teachers/enrico_hirsch.jpg
+[picture erlo_stegen]: ../files/false_teachers/erlo_stegen.jpg
+[picture ernst_modersohn]: ../files/false_teachers/ernst_modersohn.jpg
+[picture fred_ritzhaupt]: ../files/false_teachers/fred_ritzhaupt.jpg
+[picture frere_roger]: ../files/false_teachers/frere_roger.jpg
+[picture fritz_koch]: ../files/false_teachers/fritz_koch.jpg
+[picture georg_otto_schmid]: ../files/false_teachers/georg_otto_schmid.jpg
+[picture georg_walter]: ../files/false_teachers/georg_walter.jpg
+[picture george_zeller]: ../files/false_teachers/george_zeller.jpg
+[picture gernot_frisch]: ../files/false_teachers/gernot_frisch.jpg
+[picture gerrid_setzer]: ../files/false_teachers/gerrid_setzer.jpg
+[picture gleason_l_archer]: ../files/false_teachers/gleason_l_archer.jpg
+[picture gottfried_holic]: ../files/false_teachers/gottfried_holic.jpg
+[picture gregor_dalliard]: ../files/false_teachers/gregor_dalliard.jpg
+[picture hans_juergen_boehm]: ../files/false_teachers/hans_juergen_boehm.jpg
+[picture hans_juergen_boehm]: ../files/false_teachers/hans_juergen_boehm.jpg
+[picture hans_peter_royer]: ../files/false_teachers/hans_peter_royer.jpg
+[picture hans_peter_wepf]: ../files/false_teachers/hans_peter_wepf.jpg
+[picture hans_werner_deppe]: ../files/false_teachers/hans_werner_deppe.jpg
+[picture hanspeter_und_vreni_nuesch]: ../files/false_teachers/hanspeter_und_vreni_nuesch.jpg
+[picture hartmut_jaeger]: ../files/false_teachers/hartmut_jaeger.jpg
+[picture heidi_baker]: ../files/false_teachers/heidi_baker.jpg
+[picture helmut_bauer]: ../files/false_teachers/helmut_bauer.jpg
+[picture herold_schriftenmission]: ../files/false_teachers/herold_schriftenmission.jpg
+[picture horst_deckert]: ../files/false_teachers/horst_deckert.jpg
+[picture ivo_sasek]: ../files/false_teachers/ivo_sasek.jpg
+[picture johann_ludwig_konrad_allendorf]: ../files/false_teachers/johann_ludwig_konrad_allendorf.jpg
+[picture johannes_hartl]: ../files/false_teachers/johannes_hartl.jpg
+[picture johannes_reimer]: ../files/false_teachers/johannes_reimer.jpg
+[picture joyce_meyer]: ../files/false_teachers/joyce_meyer.jpg
+[picture karl_heinz_vanheiden]: ../files/false_teachers/karl_heinz_vanheiden.jpg
+[picture klaus_ritter]: ../files/false_teachers/klaus_ritter.jpg
+[picture kurt_vetterli]: ../files/false_teachers/kurt_vetterli.jpg
+[picture leo_bigger]: ../files/false_teachers/leo_bigger.jpg
+[picture lilo_keller]: ../files/false_teachers/lilo_keller.jpg
+[picture maleachi_kreis]: ../files/false_teachers/maleachi_kreis.jpg
+[picture manuel_peters]: ../files/false_teachers/manuel_peters.jpg
+[picture manuel_seibel]: ../files/false_teachers/manuel_seibel.jpg
+[picture marius_buehlmann]: ../files/false_teachers/marius_buehlmann.jpg
+[picture martin_buehlmann_mit_frau]: ../files/false_teachers/martin_buehlmann_mit_frau.jpg
+[picture martin_dreyer]: ../files/false_teachers/martin_dreyer.jpg
+[picture martin_erdmann]: ../files/false_teachers/martin_erdmann.jpg
+[picture martin_schneeberg]: ../files/false_teachers/martin_schneeberg.jpg
+[picture michael_guelk]: ../files/false_teachers/michael_guelk.jpg
+[picture michael_schneider]: ../files/false_teachers/michael_schneider.jpg
+[picture mike_pilavachi]: ../files/false_teachers/mike_pilavachi.jpg
+[picture missionswerk_heukelbach]: ../files/false_teachers/missionswerk_heukelbach.jpg
+[picture nicky_und_pippa_gumbel]: ../files/false_teachers/nicky_und_pippa_gumbel.jpg
+[picture nikolaus_ludwig_graf_von_zinzendorf]: ../files/false_teachers/nikolaus_ludwig_graf_von_zinzendorf.jpg
+[picture norbert_homuth]: ../files/false_teachers/norbert_homuth.jpg
+[picture pater_raniero_cantalamessa]: ../files/false_teachers/pater_raniero_cantalamessa.jpg
+[picture peter_bronclik]: ../files/false_teachers/peter_bronclik.jpg
+[picture peter_streitenberger]: ../files/false_teachers/peter_streitenberger.jpg
+[picture peter_voth]: ../files/false_teachers/peter_voth.jpg
+[picture ralf_fenning]: ../files/false_teachers/ralf_fenning.jpg
+[picture reformatorischer_verlag_beese]: ../files/false_teachers/reformatorischer_verlag_beese.jpg
+[picture reinhard_bonnke]: ../files/false_teachers/reinhard_bonnke.jpg
+[picture reinhold_keinberger]: ../files/false_teachers/reinhold_keinberger.jpg
+[picture rene_malgo]: ../files/false_teachers/rene_malgo.jpg
+[picture roger_liebi]: ../files/false_teachers/roger_liebi.jpg
+[picture roland_senk]: ../files/false_teachers/roland_senk.jpg
+[picture roland_werner]: ../files/false_teachers/roland_werner.jpg
+[picture rudolf_ebertshaeuser]: ../files/false_teachers/rudolf_ebertshaeuser.jpg
+[picture schilo_christliche_missionsgemeinschaft]: ../files/false_teachers/schilo_christliche_missionsgemeinschaft.jpg
+[picture sebastian_heck]: ../files/false_teachers/sebastian_heck.jpg
+[picture siegfried_schad]: ../files/false_teachers/siegfried_schad.jpg
+[picture simone_schmieder]: ../files/false_teachers/simone_schmieder.jpg
+[picture sola_scriptura_ev]: ../files/false_teachers/sola_scriptura_ev.jpg
+[picture soundwords.de]: ../files/false_teachers/soundwords.de.jpg
+[picture stephan_isenberg]: ../files/false_teachers/stephan_isenberg.jpg
+[picture stephan_isenberg2]: ../files/false_teachers/stephan_isenberg2.jpg
+[picture stefan_koethe]: ../files/false_teachers/stefan_koethe.jpg
+[picture stefan_pohl]: ../files/false_teachers/stefan_pohl.jpg
+[picture ted_richley]: ../files/false_teachers/ted_richley.jpg
+[picture thomas_giese]: ../files/false_teachers/thomas_giese.jpg
+[picture thomas_lieth]: ../files/false_teachers/thomas_lieth.jpg
+[picture thomas_schirrmacher]: ../files/false_teachers/thomas_schirrmacher.jpg
+[picture thomas_zindel]: ../files/false_teachers/thomas_zindel.jpg
+[picture thorsten_attendorn]: ../files/false_teachers/thorsten_attendorn.jpg
+[picture tim_kelly]: ../files/false_teachers/tim_kelly.jpg
+[picture tobias_faix]: ../files/false_teachers/tobias_faix.jpg
+[picture torben_danielzik]: ../files/false_teachers/torben_danielzik.jpg
+[picture torben_sondergaard]: ../files/false_teachers/torben_sondergaard.jpg
+[picture ulrich_brinkmann]: ../files/false_teachers/ulrich_brinkmann.jpg
+[picture ulrich_eggers]: ../files/false_teachers/ulrich_eggers.jpg
+[picture ulrich_parzany]: ../files/false_teachers/ulrich_parzany.jpg
+[picture urban_camenzind]: ../files/false_teachers/urban_camenzind.jpg
+[picture uwe_seidel]: ../files/false_teachers/uwe_seidel.jpg
+[picture walter_a_elwell]: ../files/false_teachers/walter_a_elwell.jpg
+[picture walter_heidenreich]: ../files/false_teachers/walter_heidenreich.jpg
+[picture walter_nitsche]: ../files/false_teachers/walter_nitsche.jpg
+[picture werner_nachtigal]: ../files/false_teachers/werner_nachtigal.jpg
+[picture wilfried_plock]: ../files/false_teachers/wilfried_plock.jpg
+[picture wilhelm_pahls]: ../files/false_teachers/wilhelm_pahls.jpg
+[picture willem_ouweneel]: ../files/false_teachers/willem_ouweneel.jpg
+[picture wolfgang_buehne]: ../files/false_teachers/wolfgang_buehne.jpg
+[picture wolfgang_nestvogel]: ../files/false_teachers/wolfgang_nestvogel.jpg
+[picture wolfgang_wegert]: ../files/false_teachers/wolfgang_wegert.jpg
 
 - - -
 
@@ -403,17 +403,18 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 |Alphonsus Ligouri †|![alt][picture alphonsus_ligouri]|believest that "Mary is Our Life", Through Mary Alone Can We Hope For Remission of Our Sins, Mary is a Type of Noah’s Ark and She Saves From Eternal Death||[www.evangelicaloutreach.org/alphonsus-liguori.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/alphonsus-liguori.htm)|
 |Arthur C. Custance (*1910 - †1985)|![alt][picture arthur_c_custance]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
 |Arthur W. Pink (*1886 - †1952)|![alt][picture arthur_w_pink]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch); Quote from Arthur Pink: >>_The experience described in Rom. 7:14-25 is that of every genuine Christian._<<|
-|Augustinus (von Hippo) / Aurelius Augustinus †|![alt][picture augustinus_von_hippo]|Calvinismus, Katholizismus, Gebet an Maria für Errettung, Erbsünde, Manichaesmus||[www.evangelicaloutreach.org/augustineprayer.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/augustineprayer.htm)|
+|Augustinus (von Hippo) / Aurelius Augustinus †|![alt][picture augustinus_von_hippo]|Calvinismus, Katholizismus, Gebet an Maria für Errettung, Erbsünde, Absolute Vorherbestimmung, Unmöglichkeit des Abfallens vom Glauben (Ewige Sicherheit / Einmal Gerettet Immer Gerettet), der Mensch hat keinen Freien Willen, Man kann nicht wissen, ob man gerettet ist, Gott befiehlt Unmöglichkeiten, Maniachaeismus, Säuglingstaufe, höchste Authorität der Römisch katholischen Kirche, Fegefeuer, Gebet für die Toten, Die Verdammung von ungetauften Säuglingen und Erwachsenen, Sex sei sündhaft, da Verderbtheit vererbt wird||[www.evangelicaloutreach.org/augustineprayer.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/augustineprayer.htm), mehr infos auch auf (http://eternalsecurity.us/a_historical_examination.htm](http://gesundelehre.tk/forwarder.php?url=http://eternalsecurity.us/a_historical_examination.htm)|
 |Barry Napier, Bible Theology Ministries|![alt][picture barry_napier]|UdH/OSAS|Bible Theology Ministries|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch), Quote from there: >>Being Saved: ..."We can never lose our salvation, but we can certainly lose out on the many blessings God has in store for every person who is saved."<< - [Wesbite where Barry Napier said this](http://gesundelehre.tk/forwarder.php?url=http://www.christiandoctrine.com/christian-doctrine/salvation/610-being-saved), Proof for OSAS from [their Doctrinal Statement](http://gesundelehre.tk/forwarder.php?url=http://www.christiandoctrine.com/the-ministry/504-beliefs-of-bible-theology-ministries#5.%20Salvation): >>5. Salvation   Salvation is the free gift of God - thus it is 'all of Grace' and Grace alone. We can do nothing at all to obtain salvation. Repentance and acceptance of the free gift do not obtain salvation, for they are also free gifts of God, as is faith itself. Salvation is given without the intervention of priests, church, creeds or baptism. **_Once saved, always saved...we cannot lose salvation._**<<|
 |Benny Hinn|![alt][picture benny_hinn]|Lügner & Betrüger, fördert falschen heiligen Geist, falscher Prophet|Toronto-Blessing|[www.eternallifeblog.com/2013/12/06/benny-hinn-false-prophet/](http://gesundelehre.tk/forwarder.php?url=http://www.eternallifeblog.com/2013/12/06/benny-hinn-false-prophet/)|
 |Bernie Koerselman|![alt][picture bernie_koerselman]||promotes David Servant|[www.evangelicaloutreach.org/Bernie_Koerselman.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Bernie_Koerselman.htm)|
 |Bill Bright|![alt][picture bill_bright]|"Erfinder" der die4Punkte resp. dazumals hiess es noch die 4 geistlichen Gesetze|Gründer Campus Crusade (Campus für Christus)||
 |Bill Hybels|![alt][picture bill_hybels]|Emerging Church|Gründer von Willow Creek, fördert Alpha-Kurs||
 |Bill Johnson|![alt][picture bill_johnson]|(Extrem-)Charismatik|Leiter von Bethel Church Redding California (in Connecttion with IHOP), New Apostolic Reformation (NAR), Global Outreach Day, Zeichen & Wunder, Toronto-Blessing, Glory-Clouds|For more information see "Jesus Culture" which is a ministry of Bethel Redding|
-|Billy Graham|![alt][picture billy_graham]|OSAS|Freimaurer [further Information](http://gesundelehre.tk/forwarder.php?url=http://www.angelfire.com_la2/la2/prophet1/grahammason.htm), Verbindungen zum Papst|[www.evangelicaloutreach.org/billy.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/billy.htm)|
+|Billy Graham|![alt][picture billy_graham]|OSAS|Freimaurer [further Information](http://gesundelehre.tk/forwarder.php?url=http://www.angelfire.com_la2/la2/prophet1/grahammason.htm), Verbindungen zum Papst, he loved the pope, he thinks the Transcript at Larry King: "I think he [the Pope] is with the Lord, because he believed, he believed in the cross, that was his focus"|[www.evangelicaloutreach.org/billy.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/billy.htm), direct qutation from him (Interview from [here](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/graham/video/BILLYGRAHAM-SoftWaterDownAnswer.mp3): "But what about those faiths, the mormons and the others that you've mentioned believe in Christ, they believe that they will meet Christ - what about those the Jews, the Muslims who don't believe in Yeshua - **That's in Gods Hands I can't be that judge** - you don't judge them - **No** "|
 |Bog George|![Bob George][picture bob_george]|Eternal Security (OSAS)||More information on [www.evangelicaloutreach.org/bob_george.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bob_george.htm); "So is committing fornication permissible? Yes. Is it profitable? No, it isn’t." (People To People radio broadcast, 11-16-93) "...sin is not the issue..." (ibid., 9-29-93) "... a person who is born-again will go to heaven if they commit suicide" (Personal letter from Ed Hecht of People To People, 12-17-93)|
-|**_Brian (& his wife Bobbie) Houston_**|![alt][picture brian_and_bobbie_houston]|[Brian lehrte, dass Christen und Muslime zu demselben Gott beten würden / he taught that Christians and Muslims serve the same God](http://gesundelehre.tk/forwarder.php?url=to-do), Wohlstandsevangelium/Prosperity-Gospel (Brian Houston wrote a book called "you need more money - discovering Gods amazing financial plan for your life"), PRO-Homosexualität, PRO-Abortion (They say "life is sacred, but whatever you choose to do, this is still home for you, wer're not gonna kick you out of this house, you have to make your own decision and we're gonna walk with you either way - this is what we believe, life is sacred, but we still love you" -> so they won't discipline and exclude someone who aborts from Hillsong), Brian blatantly lies "the message doesn't change, sometimes if the church isn't gonna change the methods, then it will become irrelevant" -> so he basically says they don't change(d) the Gospel only the methods - which is not true at all...|Hillsong Church Australia, EXPLO15, Contact to Carl Lentz (Lead Pastor Hillsong NYC); Hillsong became first church to sign with major Hollywood Agency "William Morris Endeavor" (which already represents Joel Osteen); Contact to **Rick Warren**, **Joseph Prince**, **John C. Maxwell** (see <a href="#love_offering_circuit">love-offering-circuit</a>; Hillsong has Connection with Justin Bieber; Hillsong uses Illuminati-Symbolism (Pyramide)|totally worldly and contemporary with the music - the same as in the world with the difference that once in a while they shout Jesus; Hillsong made in 2008 55Million$-tax-free (25Mio from Donations/Tithes, 10Mio from Bible-Colleges/Courses, 7Mio from Music, 4Mio from Conferences); <a name="love_offering_circuit"></a>Transcript from Video from "Current Affair" on TV-channel :::9:"Even Justin Bieber performed here, but this week it's playing host to the Hillsong annual conference - but to get in here, you have to pay Rock-Concert prices, 350$ for adults, 120$ for teenagers, 80$ for children - but this conference and others like it around the world generate up to 5Mio and for followers, the entry-fee is just the beginning... these albums... make sure you get one of these, get a few of em and give them away as gift. Former member Tanja?? Elember?? says that during the conference there's constant pressure to buy Brian Houstons books (in the video there's a bookstand depicted on which it says 'Buy 4 + Get 1 For Free' - concerning the books and music made by his sons Joel?? band?? Hillsong United. They make sure you buy ressources, so the DVD go with it and Pastor Brian has a new book out, so that's being promoted really heavily, and it's the case of 'well if you don't wonna buy this stuff, you're not really supportive', so there's a lot of pressure keep buying . The converence has never had so much publicity and it's all thanks to one special beliver ...scene of Justin Bieber Fan wanting a selfie of him with Justin... Brian Houston: >>He came at his own cost, and belive me, there's a lot of cost involved just because he wants to be part of the conference, and so he's up here in the crowd somewhere with everyone else<< Journalist: >>where about is he?<<, >>he's over in that area up there<<. >>This would be Brian Houstons dream come true, he's absolutely loving it, even though I guess a lot of other Christians would see Justin Bieber as the last person that you would point to as an example to young people.<< >>Its extraordinary, that Justin Bieber would ?lead? himself to this sort of a excercise.<< >>Yeah I volunteer young and free, I'm one of the youth leaders, so it's exciting it's ?super? stressful but its great, it's good<< Most of the people doing the hard work to make the conference a success don't get paid... >>You're happy to give of your own time?<< >>So happy.. It took a whole week of work just to do this...<< >>But the volunteers you see walking around are usually Bible-College-Students, who are told they will fail Bible-College if they don't give their volunteer time to this course today<< It's a claim we recieved supported by this email we received by a former student: >>_Being a former studend I have personally experienced what we go through, especially around Conference time. Hundreds of students getting sick for weeks because of the amount of time we are required to volunteer in order to graduate from the school that we paid to be at... They call that "serving" but it's really just thousands of hours of free labour so that they can make millions_.<< **_Perhaps the biggest scam going on here at this conference is something called love offerings_**: Many of the speakers here are pastors from overseas churches and every time they get up to present, buckets are handed around the audatorium and followers are asked to donate. It's a 'you scratch my back - i'll scratchh your back'-arrangement, that makes pastors like Brian Houston very rich. >>It's not like a speaker circuit. It IS a speaker circuit. And this/there is a well established network of pastors, who travel around the world to each others churches and they come there on the basis of promises that they're gonna get a cirtain amount of money from these love-offerings, which are only cashed i forget >>Rick Warren: Thank you for inviting me, it's good to be back<< So they come to a church in Australia that they might make 30 or 40'000 Dollars in a single day -single day- speaking at 2 or 3 different services during the day and the Australian Pastors can get the same sort of thing when they go to the churches in America or elsewhere South-Africa, England you name it. **There are bags of cash flowing around the world with this love-offering-circuit**, literally BAGS OF CASH and they walk out of this country, we have no idea how much they take up, because they don't tell us.<< Appearing at the conference this year US-Preacher Rick Warren, worht of reported 15Mio Dollars, John C. Maxwell who sold 25Mio copies of his books and Joseph Prince from Singapur reportedly worth more than 5Mio Dollars. >>Some of these international pastors are multimillianairs, yet the congregation here is being asked to hand over cash.<< >>They're starting to call it the sunday morning ??sticka??, they pass around the love-offering bucket and say, look if you wonna contribute to what we do ...?????"<<, Some of Hillsong’s churches appear to be open to gays and lesbians.[more infos concering Homosexuality and Hillsong](http://gesundelehre.tk/forwarder.php?url=http://www.nytimes.com/2014/10/18/us/megachurch-pastor-signals-shift-in-tone-on-gay-marriage.html?_r=0); |
+|**_Brian (& his wife Bobbie) Houston_**|![alt][picture brian_and_bobbie_houston]|[Brian lehrte, dass Christen und Muslime zu demselben Gott beten würden / he taught that Christians and Muslims serve the same God](http://gesundelehre.tk/forwarder.php?url=https://www.youtube.com/watch?v=iTRm7HTU4d0), Wohlstandsevangelium/Prosperity-Gospel (Brian Houston wrote a book called "you need more money - discovering Gods amazing financial plan for your life"), PRO-Homosexualität, PRO-Abortion (They say "life is sacred, but whatever you choose to do, this is still home for you, wer're not gonna kick you out of this house, you have to make your own decision and we're gonna walk with you either way - this is what we believe, life is sacred, but we still love you" -> so they won't discipline and exclude someone who aborts from Hillsong), Brian blatantly lies "the message doesn't change, sometimes if the church isn't gonna change the methods, then it will become irrelevant" -> so he basically says they don't change(d) the Gospel only the methods - which is not true at all...|Hillsong Church Australia, EXPLO15, Contact to Carl Lentz (Lead Pastor Hillsong NYC); Hillsong became first church to sign with major Hollywood Agency "William Morris Endeavor" (which already represents Joel Osteen); Contact to **Rick Warren**, **Joseph Prince**, **John C. Maxwell** (see <a href="#love_offering_circuit">love-offering-circuit</a>; Hillsong has Connection with Justin Bieber; Hillsong uses Illuminati-Symbolism (Pyramide)|totally worldly and contemporary with the music - the same as in the world with the difference that once in a while they shout Jesus; Hillsong made in 2008 55Million$-tax-free (25Mio from Donations/Tithes, 10Mio from Bible-Colleges/Courses, 7Mio from Music, 4Mio from Conferences); <a name="love_offering_circuit"></a>Transcript from Video from "Current Affair" on TV-channel :::9 ([see Video from Brian Moonan (but watch out, he teaches as well the lie of Eternal Security)](https://www.youtube.com/watch?v=VywWziahEaw)):"Even Justin Bieber performed here, but this week it's playing host to the Hillsong annual conference - but to get in here, you have to pay Rock-Concert prices, 350$ for adults, 120$ for teenagers, 80$ for children - but this conference and others like it around the world generate up to 5Mio and for followers, the entry-fee is just the beginning... these albums... make sure you get one of these, get a few of em and give them away as gift. Former member Tanja?? Elember?? says that during the conference there's constant pressure to buy Brian Houstons books (in the video there's a bookstand depicted on which it says 'Buy 4 + Get 1 For Free' - concerning the books and music made by his sons Joel?? band?? Hillsong United. They make sure you buy ressources, so the DVD go with it and Pastor Brian has a new book out, so that's being promoted really heavily, and it's the case of 'well if you don't wonna buy this stuff, you're not really supportive', so there's a lot of pressure keep buying . The converence has never had so much publicity and it's all thanks to one special beliver ...scene of Justin Bieber Fan wanting a selfie of him with Justin... Brian Houston: >>He came at his own cost, and belive me, there's a lot of cost involved just because he wants to be part of the conference, and so he's up here in the crowd somewhere with everyone else<< Journalist: >>where about is he?<<, >>he's over in that area up there<<. >>This would be Brian Houstons dream come true, he's absolutely loving it, even though I guess a lot of other Christians would see Justin Bieber as the last person that you would point to as an example to young people.<< >>Its extraordinary, that Justin Bieber would ?lead? himself to this sort of a excercise.<< >>Yeah I volunteer young and free, I'm one of the youth leaders, so it's exciting it's ?super? stressful but its great, it's good<< Most of the people doing the hard work to make the conference a success don't get paid... >>You're happy to give of your own time?<< >>So happy.. It took a whole week of work just to do this...<< >>But the volunteers you see walking around are usually Bible-College-Students, who are told they will fail Bible-College if they don't give their volunteer time to this course today<< It's a claim we recieved supported by this email we received by a former student: >>_Being a former studend I have personally experienced what we go through, especially around Conference time. Hundreds of students getting sick for weeks because of the amount of time we are required to volunteer in order to graduate from the school that we paid to be at... They call that "serving" but it's really just thousands of hours of free labour so that they can make millions_.<< **_Perhaps the biggest scam going on here at this conference is something called love offerings_**: Many of the speakers here are pastors from overseas churches and every time they get up to present, buckets are handed around the audatorium and followers are asked to donate. It's a 'you scratch my back - i'll scratchh your back'-arrangement, that makes pastors like Brian Houston very rich. >>It's not like a speaker circuit. It IS a speaker circuit. And this/there is a well established network of pastors, who travel around the world to each others churches and they come there on the basis of promises that they're gonna get a cirtain amount of money from these love-offerings, which are only cashed i forget >>Rick Warren: Thank you for inviting me, it's good to be back<< So they come to a church in Australia that they might make 30 or 40'000 Dollars in a single day -single day- speaking at 2 or 3 different services during the day and the Australian Pastors can get the same sort of thing when they go to the churches in America or elsewhere South-Africa, England you name it. **There are bags of cash flowing around the world with this love-offering-circuit**, literally BAGS OF CASH and they walk out of this country, we have no idea how much they take up, because they don't tell us.<< Appearing at the conference this year US-Preacher Rick Warren, worht of reported 15Mio Dollars, John C. Maxwell who sold 25Mio copies of his books and Joseph Prince from Singapur reportedly worth more than 5Mio Dollars. >>Some of these international pastors are multimillianairs, yet the congregation here is being asked to hand over cash.<< >>They're starting to call it the sunday morning ??sticka??, they pass around the love-offering bucket and say, look if you wonna contribute to what we do ...?????"<<, Some of Hillsong’s churches appear to be open to gays and lesbians.[more infos concering Homosexuality and Hillsong](http://gesundelehre.tk/forwarder.php?url=http://www.nytimes.com/2014/10/18/us/megachurch-pastor-signals-shift-in-tone-on-gay-marriage.html?_r=0); |
 |Brian H Edwards|![alt][picture brian_h_edwards]|UdH/OSAS|Hook Evangelical Church Surbition London [www.brianedwards.org.uk](http://gesundelehre.tk/forwarder.php?url=http://www.brianedwards.org.uk)|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch), Zitat von dort: >>aus "How Can I Become a Christian?" _Trevor_: But how can I be sure that he will hear and forgive me? And how can I be sure I will keep on being a Christian? And what's the next step after I've asked God to forgive me? _Edwards_: Hold on! Let's take those one at a time. How can you be sure God will listento your prayer and will forgive you? Because Jesus once promised 'Whoever comesto me I will never drive away' - and you can trust him to keep his word; and alsobecause the New Testament tells us that if we own up to our sin: 'He is faithful andjust and will forgive us our sins and purify us from all unrighteousness.' So, trust Godto keep his promises.How can you be sure you will never lose your salvation? First of all because,again, you have Christ's word for it. In John 10:28 he promises: 'I give them eternallife, and they shall never perish; no one can snatch them out of my hand.' But also, as you read your Bible you will discover the amazing fact that nobody is a Christian because they chose to follow God, but because long before the world began, God chose to save them.<<|
+|**_Brian McLaren_**|![alt][picture brian_mclaren]|Teaches that God is incapable of forgiving because he will send people to hell; rejects the biblical view of Hell (Colossians2,8)|His writings played a key role in the emerging church movement)|See [Interveiw on www.false-teachers.com](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/mclaren/video/BrianMcLaren-HellAtonement.mp3)|
 |Bruce Wilkinson|![alt][picture bruce_wilkinson]|Eternal Security (OSAS)|Author of the book The Prayer of Jabez, executive editor of the Daily Walk Bible|[www.evangelicaloutreach.org/bruce_wilkinson.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bruce_wilkinson.htm) |
 |C. Peter Wagner|![alt][picture c_peter_wagner]||Founder of Global Harves Ministries, NAR (New Apostolic Reformation)||
 |C.H. Mackintosh aka Charles Henry Mackintosh (*1820-†1869)|![alt][picture c_h_mackintosh]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
@@ -429,7 +430,7 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 |Chuck Smith|![Chuck Smith][picture chuck_smith]|Imputed Righteousness, Eternal Security (OSAS)||[www.evangelicaloutreach.org/chucksmith.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/chucksmith.htm)|
 |Cindy Jacobs|![alt][picture cindy_jacobs]|false Prophetess (see [here](http://gesundelehre.tk/forwarder.php?url=to-do))|NAR (New Apostolic Reformation) Founder of Generals International together with Mike Jacobs, Global Outreach Day||
 |Clement of Alexandria (*150 - †215)|![alt][picture clement_of_alexandria]|Universalism|Ante-Nicene Father||
-|Creflo Dollar|![Creflo Dollar][picture creflo_dollar]|Eternal Security (OSAS), zukünftige Sünden seien auch schon vergeben, Prosperity Gospel (Wohlstandsevangelium)||[www.evangelicaloutreach.org/creflo-dollar.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/creflo-dollar.htm); OSAS-proof found by apostasia.net: "What do I have to do in order to get to heaven? I get born again. I make Jesus Lord of my life. And when I make Jesus Lord of my life and I get born again, the blood of Jesus cleanses me from all of my sin. And, and that’s what, that’s what you do to get to Heaven."|
+|Creflo Dollar|![Creflo Dollar][picture creflo_dollar]|Eternal Security (OSAS), zukünftige Sünden seien auch schon vergeben, Prosperity Gospel (Wohlstandsevangelium)||[www.evangelicaloutreach.org/creflo-dollar.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/creflo-dollar.htm); OSAS-proof found by apostasia.net: "What do I have to do in order to get to heaven? I get born again. I make Jesus Lord of my life. And when I make Jesus Lord of my life and I get born again, the blood of Jesus cleanses me from all of my sin. And, and that’s what, that’s what you do to get to Heaven." / direct quote from [Interview on www.false-teachers.com](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/dollar/CrefloDollarMix.mp3): "_Being wealthy is a part of your heritage, you got to tell yourself often, it is my right and my heritage, it is my bloud-bought heritage to be wealthy, in other words i'm supposed to be wealthy_"; other direct quote: "_and if God now produces men, and everything produces after his own kind, if horses get together they produce what? - horses - and if dogs get together they produce what? - dogs - and if cats get together they produce what? - cats - what if the godhead gets together and say let us make men - then what are they producing? - gods - they're producing gods. I gotta hit this thing real hard in the very beginning because I ain't time to got through all this, but i'm gonna say to all of you, you are gods, little 'g' because you came from God and you are gods you're not just human, the only human part about you is this physical body that you are living in._"|
 |Curtis C. Thomas|![alt][picture curtis_c_thomas]|UdH/OSAS; Calvinism|![alt][picture david_n_steele_five_points_of_calvinism_defended_book] Co-Author (with David N Steele) of the Book "The Five Points of Calvinism: Defined, Defended, and Documented"|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
 |Curtis Hutson|![Curtis Hutson][picture curtis_hutson]|UdH / Eternal Security (OSAS)||[www.eternallifeblog.com/2013/01/31/curtis-hutson-hebrews-1026-29-sword-of-the-lord/](http://gesundelehre.tk/forwarder.php?url=http://www.eternallifeblog.com/2013/01/31/curtis-hutson-hebrews-1026-29-sword-of-the-lord/)|
 |Cutting Edge Ministries, Pastor Ron Riffe|![alt][picture ron_riffle]![alt][picture cutting_edge_ministries]|UdH/OSAS|[cuttingedge.org](http://gesundelehre.tk/forwarder.php?url=http://cuttingedge.org)|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
@@ -447,11 +448,12 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 |David "Servant"|![David "Servant"][picture david_servant]|Eternal Security (OSAS), David Servant Admits To Being A Hypocrite (and Implies Being Lost!)||[www.evangelicaloutreach.org/david_servant_great_gospel_deception.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/david_servant_great_gospel_deception.htm); [www.evangelicaloutreach.org/hereticDavidJStewart.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hereticDavidJStewart.htm)|
 |David Wilkerson (1931-†2011)|![David Wilkerson][picture david_wilkerson]|Eternal Security (OSAS) / lehrt dass König David lediglich die Freude an der Errettung verlor als er in Sünde war _-> in Wahrheit, wenn er da gestorben wäre, wäre er jedoch in die Hölle gekommen -> deshalb musste König david ja Busse tun und umkehren/ablassen von seinen Sünden_, lehrt dass zukünftige Sünden schon vergeben seien, Charismatische Beeinflussung (siehe sein Buch "das Kreuz und die Messerhelden"), lehrt man könne Homosexuell empfinden und gleichzeitig aufrichtiger Gläubiger/Christ sein|[www.davidwilkerson.org](http://gesundelehre.tk/forwarder.php?url=http://www.davidwilkerson.org), Teen Challenge & Times Square Church|for more information visit eomin.org [www.evangelicaloutreach.org/david-wilkerson-it-is-finished-book.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/david-wilkerson-it-is-finished-book.htm) or  here [www.evangelicaloutreach.org/davidwilkerson.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/davidwilkerson.htm)|
 |Deborah Du Rand|![alt][picture deborah_du_rand]|UdH/OSAS|Discerning the World, [www.discerningtheworld.com](http://gesundelehre.tk/forwarder.php?url=http://www.discerningtheworld.com)|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
-|Derek Prince (*1915 - †2003)|![alt][picture derek_prince]|Irrlehre: Geistestaufe (Buch: Baptism in the Holy Spirit), Zionismus|Kontakt mit Katholischer Kirche|Nachweis von [apostasia.net](http://gesundelehre.tk/forwarder.php?url=http://www.apostasia.net/node/146.htm): >>Zitate: "Ich predige oft vor Katholiken... wenn ich es so ausdrücke, dann kann ich oft miterleben, wie hunderte Katholiken in den nächsten Minuten den heiligen Geist empfangen...Noch etwas früher war ich bei einer katholischen Gemeinde in Östereich zu Gast. Der katholische Priester bat mich, den Menschen etwas über die Taufe und über die Zungenrede zu erzählen. Wenn Du in der katholischen Kirche den Priester auf deiner Seite hast, kannst Du gar nicht mehr verlieren. Ich meine es ist fast das selbe, wie wenn Du der Prophten Eliah wärst...Als ich sagte, wie viele von Ihnen möchten empfangen kamen mindestens 500 nach vorne. Ich leitete sie in einfachen Schritten an, und schon hoben sie ab und sprachen in Zungen...Seht ihr, wenn die Katholiken einmal auf Touren kommen, kann sie niemand mehr zurückhalten...Das charakteristische Siegel der Geistestaufe ist die Zungenrede...<< (Audio-Predigt: Geistestaufe und Geistesgaben) Meiner Meinung (apostasia.net) nach ist Derek Prince einer der 1% Typen. 99% Wahrheit und 1% tödliche Lüge. Finger Weg von diesem Menschen und seinen Irrlehren.|
+|Derek Prince (*1915 - †2003)|![alt][picture derek_prince]|Irrlehre: Geistestaufe (Buch: Baptism in the Holy Spirit), Zionismus|Kontakt mit Katholischer Kirche|Nachweis von [apostasia.net](http://gesundelehre.tk/forwarder.php?url=http://www.apostasia.net/node/146.htm): >>Zitate: "Ich predige oft vor Katholiken... wenn ich es so ausdrücke, dann kann ich oft miterleben, wie hunderte Katholiken in den nächsten Minuten den heiligen Geist empfangen...Noch etwas früher war ich bei einer katholischen Gemeinde in Östereich zu Gast. Der katholische Priester bat mich, den Menschen etwas über die Taufe und über die Zungenrede zu erzählen. Wenn Du in der katholischen Kirche den Priester auf deiner Seite hast, kannst Du gar nicht mehr verlieren. Ich meine es ist fast das selbe, wie wenn Du der Prophten Eliah wärst...Als ich sagte, wie viele von Ihnen möchten empfangen kamen mindestens 500 nach vorne. Ich leitete sie in einfachen Schritten an, und schon hoben sie ab und sprachen in Zungen...Seht ihr, wenn die Katholiken einmal auf Touren kommen, kann sie niemand mehr zurückhalten...Das charakteristische Siegel der Geistestaufe ist die Zungenrede...<< (Audio-Predigt: Geistestaufe und Geistesgaben) Meiner Meinung (apostasia.net) nach ist Derek Prince einer der 1% Typen. 99% Wahrheit und 1% tödliche Lüge. Finger Weg von diesem Menschen und seinen Irrlehren. -- Anmerkung gesundelehre.tk: <<<was nützt es einem Katholiken, wenn er in Zungen redet, aber trotzdem noch auf dem Weg zur Hölle ist und bleibt! Gar nichts, man muss ihnen Busse von toten religiösen Werken und Umkehr von aller Sünde predigen, und dass Maria, die Sakramente, Kirchenmitgliedschaft und gute Werke nicht retten können, sondern allein, wenn man an Jesus glaubt (bitte nicht falsch verstehen bzgl. den guten Werken, ich sage hier lediglich, dass man nicht gute Werke tun kann, um eigene Vergebung zu erwirken, gute Werke sind ein MUSS für wahren glauben - Frucht oder Feuer - Joh15/Mt3,10/Jak2>>>|
 |Donald Cole|![alt][picture donald_cole]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch); proof can be found [here (mp3), www.evangelicaloutreach.org/audio/bp12202002osas.mp3](http://gesundelehre.tk/forwarder.php?url=www.evangelicaloutreach.org/audio/bp12202002osas.mp3)(listen from 6:12, Donald Cole talks from about 6:47|
 |Donnie Swaggart|![alt][picture donnie_swaggart]|Eternal Security (OSAS)|Son of [Jimmy Swaggart](http://gesundelehre.tk/forwarder.php?url=www.evangelicaloutreach.org/jimmy-swaggart-study-in-the-word.htm)|[www.eternallifeblog.com/2014/05/30/donnie-swaggarts-license-for-sin/](http://gesundelehre.tk/forwarder.php?url=http://www.eternallifeblog.com/2014/05/30/donnie-swaggarts-license-for-sin/)|
+|_Doug Pagitt_|![alt][picture doug_pagitt]|Heaven/Hell are no literal places, Muslims/Christians/Buddhist will be treated the same in the afterlife --> Universalism, somehow really has a problem to tell that the new heavens and the new earth AND hell is a real place where there will be people|Emerging Church|information from the Way-of-the-master-Radio (Watch Out They Believe OSAS/Eternal Security!!) from [here](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/pagitt/WOTMR-DougPagitt.mp3)"the purpose of judgment is to make make the world the way that it ought to be"|
 |Edgar Whisenant|![alt][picture edgar_whisenant]|Falscher Prophet - falsche Entrückungs-Prophetie auf 1988 (pre-tribulation-rapture), false prophet - falsely prophecised the end to 1988||[www.evangelicaloutreach.org/EdgarWhisenant.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/EdgarWhisenant.htm)|
-|Ellen G. White †|![alt][picture ellen_g_white]|(falsche!) Prophetin bei den Siebenten-Tages-Adventisten|Freimaurer-Beziehungen? (Obelisk als Grabstein, allsehendes Auge auf Zeichnung von ihr)|[www.evangelicaloutreach.org/white.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/white.htm)|
+|**_Ellen G. White**_ †|![alt][picture ellen_g_white]|(falsche!) Prophetin bei den Siebenten-Tages-Adventisten|Freimaurer-Beziehungen? (Obelisk als Grabstein, allsehendes Auge auf Zeichnung von ihr)|[www.evangelicaloutreach.org/white.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/white.htm)|
 |Eric John Phelps|![alt][picture eric_john_phelps]|UdH/OSAS|[www.vaticanassassins.org](http://gesundelehre.tk/forwarder.php?url=http://www.vaticanassassins.org)|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
 |Erwin W. Lutzer|![alt][picture erwin_lutzer]|Eternal Security (OSAS)|Senior Pastor at Moody Church in Chicago|lehrt, dass man Mord begehen kann und immer noch in den Himmel kommen kann, lehrt dass Homosexualität lediglich den Verlust der Gemeinschaft mit dem Vater zur Folge hätte & argumentiert, man sei ja nicht einmal wirklich sicher ob jene Person wirklich errettet gewesen wäre **_(=Standard-Argumentation der UdH-Irrlehrer "diese Person war gar nie errettet" - weil in ihrer Theologie ein Abfallen vom Glauben nicht möglich ist, müssen sie so argumentieren)_** / teaches that you can murder and still go to heaven and that homosexuality only results in the loss of the fellowship with the father & he argues, that one doesn't know for sure whether this person ever at all was saved **_(=Stadard-argumenation of OSAS-False-Teachers "this person was never really saved to begin with" - because in their theology a falling from the faithh is not possible, they have to argue in this way)_**, more info on [www.evangelicaloutreach.org/erwin-lutzer.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/erwin-lutzer.htm)|
 |Eugene H. Peterson|![alt][picture eugene_h_peterson]|Autor der falschen Bibelübersetzung "The Message"|setzt sich für Rob Bell ein||
@@ -474,13 +476,13 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 |**_Jack Chick_** (Chick-Gospel-Traktate)|![alt][picture jack_chick]|OSAS, Easy Believism, Erbsünde, 2-Fragen-Checkliste zur Bekehrung, Trinität||Jesus war nicht durch die Erbsünde befleckt, er hätte GÖTTLICHES BLUT gehabt (dann hätte er jedoch uns gegenüber einen Vorteil gehabt, was nicht fair wäre und dann hätte er uns nicht mehr erretten können, da er nicht in allem gleich gewesen wäre wie wir Menschen, siehe Hebräer 4,15) Gott ist Geist, Gott hat kein Blut... / Trinität: Jesus erschuf alles & Gott starb (steht echt so geschrieben); [www.eternallifeblog.com/2014/05/24/chick-tracts-are-not-sound-beware/](http://gesundelehre.tk/forwarder.php?url=http://www.eternallifeblog.com/2014/05/24/chick-tracts-are-not-sound-beware/)|
 |Jack Hayford|![alt][picture jack_hayford]|Eternal Security (OSAS); sagt, man könne Suizid (Selbstmord) begehen und trotzdem gerettet werden||[www.evangelicaloutreach.org/jack_hayford.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jack_hayford.htm)|
 |Jack Hyles (*1926 - †2001)|![alt][picture jack_hyles1]![alt][picture jack_hyles2]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
-|Jack Van Impe|![alt][picture jack_van_impe]|Katholizismus, Pre-Tribulation-Rapture (Entrückung vor der Trübsalszeit), Eternal Security (OSAS)||[www.evangelicaloutreach.org/vanimpe.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/vanimpe.htm)|
+|Jack Van Impe|![alt][picture jack_van_impe]|Katholizismus, Pre-Tribulation-Rapture (Entrückung vor der Trübsalszeit), Eternal Security (OSAS)|In Connection with the death of Pope John Paul II - he has totally embraced Roman Catholicism to the point of reading from the catechism[according to understandthetimes.org]|[www.evangelicaloutreach.org/vanimpe.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/vanimpe.htm)|
 |Jacob Prasch|![alt][picture jacob_prasch]|Eternal Security (OSAS)||[www.evangelicaloutreach.org/jacob-prasch.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/jacob-prasch.htm)|
 |James Montgomery Boice|![alt][picture james_montgomery_boice]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
 |Jean Gibson|![alt][picture jean_gibson]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
 |Jessie Penn-Lewis (*1861 - †1927)|![alt][picture jessie_penn_lewis]|falsche und gefährliche Dämonenirrlehren|context|(info von [http://www.apostasia.net/node/146](http://gesundelehre.tk/forwarder.php?url=http://www.apostasia.net/node/146)|
 |Jimmy Swaggart|![alt][picture jimmy_swaggart]|Eternal Security (OSAS) - even though he states he believes in "conditional eternal security" and not ind "unconditional eternal security" - he just overcomplicates the issue by inventing a new term, but still teaches a license to sin and says that one cannot lose his salvation over sin|Father of Donnie Swaggart - see also [www.eternallifeblog.com/2014/05/30/donnie-swaggarts-license-for-sin/](http://gesundelehre.tk/forwarder.php?url=http://www.eternallifeblog.com/2014/05/30/donnie-swaggarts-license-for-sin/)|[More info on evangelicaloutreach.org/jimmy-swaggart-study-in-the-word.htm](http://gesundelehre.tk/forwarder.php?url=www.evangelicaloutreach.org/jimmy-swaggart-study-in-the-word.htm); Direct quote from there (transcription): >>_Now sin will cause them problems. Sin always causes terrible problems, but the loss of the soul, no._<<|
-|Joel Osteen|![alt][picture joel_osteen]|1. Joel Osteen wants to remain positive in his messages rather than preaching the Bible’s message 2. Joel Osteen has a double message 3. Smiley Joel Osteen uses the old, “I can’t judge somebody’s heart .... only God can look on somebody’s heart” phrase for his compromise 4. How can Joel Osteen say he doesn’t know if someone who disagrees with him is wrong, yet says he preaches the Bible. 5. Since Joel Osteen doesn’t know if he is right or wrong, he needs to resign and learn the Biblical message before he teaches another sermon, **Illuminati-Symbolism** in Logo (similar to Monster-Energy-Drink)|[www.evangelicaloutreach.org/joel-osteen.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/joel-osteen.htm)|
+|Joel Osteen|![alt][picture joel_osteen]|Joel Osteen preaches about the power of positive thinking|Lakewood Community Church with about 8 Million Members, biggest church in the country|1. Joel Osteen wants to remain positive in his messages rather than preaching the Bible’s message 2. Joel Osteen has a double message 3. Smiley Joel Osteen uses the old, “I can’t judge somebody’s heart .... only God can look on somebody’s heart” phrase for his compromise 4. How can Joel Osteen say he doesn’t know if someone who disagrees with him is wrong, yet says he preaches the Bible. 5. Since Joel Osteen doesn’t know if he is right or wrong, he needs to resign and learn the Biblical message before he teaches another sermon, **Illuminati-Symbolism** in Logo (similar to Monster-Energy-Drink); more information on [www.evangelicaloutreach.org/joel-osteen.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/joel-osteen.htm); quote from [here](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/osteen/JoelOsteenSermonDissected1.mp3): "it is always a joy to come to your homes each week, we know God has good things in store for all of his people...God says he will give you the desires of your heart...lot of people are not enjoying their lifes, all because their mind is a mess...they don't realize it, but the root cause of many of their problems is simply the fact, they're not controlling their thought-life, they're just thinking any thought that comes into their minds, you have to understand our life is going to follow our thoughts, if you think negative thoughts, then you're gonna live a negative life, if you think descouraging, hopeless thoughts, can't do it thought mediocre thought then your life is gonna go down the exact same pathway" from [here](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/osteen/JoelOsteenSermonDissected2.mp3): "here's the key: if a thought is negative, if it's destructive, if it's hurtful, if it's gonna put you down and make you feel bad about yourself, you know that that thought is not from God and you should immediately get rid of it" ---> watch out the radio speaker agrees with Joel Osteen on this (the speaker also condemns Pelagianism for teaching that one can live holy), so probably the radio Teacher clinges on Eternal Security as well (actually he also invited John MacArthur to talk on his radio program - so that should speak volumes...) - if we're convicted of Sin we shouldn't just get rid of that and think "well, I'm forgiven by Jesus anyway..." no! we HAVE TO get rid of that sin in our life or we'll be thrown into the fiery furnace - because there IS NO OSAS!|
 |Johanna Michaelsen|![alt][picture johanna_michaelsen]|Thinks that there are Christian Occultists -> result of believing OSAS|wife Nr. 4 of Hal Lindsey <!-- which means she's in an adulterous relationship and she's an adulterer and therefore on the road to hell according to scripture (Gal5:19-21; 1Cor6:9-11) -->|[more information on www.evangelicaloutreach.org/johanna-michaelsen-beautiful-side-of-evil.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johanna-michaelsen-beautiful-side-of-evil.htm)|
 |John Ankerberg|![alt][picture john_ankerberg]|zukünftige Sünden seien auch schon vergeben|John Weldon|[www.evangelicaloutreach.org/ankerber.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/ankerber.htm)|
 |**_John Calvin / Johannes Calvin_** †|![alt][picture john_calvin]|Calvinismus (= T.U.L.I.P.) enthält OSAS|lehrte die illegitime Wiederverheiratung; Mörder von Michael Servetus (welcher die Trinität ablehnte) und vielen weiteren|[www.evangelicaloutreach.org/johncalvin.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/johncalvin.htm), krasser Auszug von [diegemeindegottes.com/Artikel/die-calvinistische-Denkweise](http://gesundelehre.tk/forwarder.php?url=http://diegemeindegottes.com/Artikel/die-calvinistische-Denkweise): >>_Geschichtsschreiber berichten uns von den Gräueltaten Calvins und dass sein Genf zum Rom des Protestantismus erhoben wurde. Wir werden im Folgenden einige geschichtliche Fälle aufzeichnen: "**Im Laufe von fünf Jahren, 1542 bis1546, gab es in Genf mit seinen 16.000 Einwohnern 57 Hinrichtungen und 76 Verbannungen. All diese Urteile wurden von Calvin gebilligt.**" Als Calvin erfuhr, dass **Michael Servetus** vorhatte nach Genf zu kommen, sagte er: "Ich bin nicht willig, mein Wort für seine Sicherheit zu geloben, denn **wenn er kommen wird, werde ich ihm niemals erlauben, lebendig abzureisen, vorausgesetzt, dass meine Autorität bindend sein wird.**" Die calvinistische Theologie wurde in Genf mit Gewalt eingeführt … Manche Geschichtsschreiber versuchen, Calvin als einen frommen Mann darzustellen, indem sie seine barbarischen Gräueltaten der Zeit zuschreiben, in der er lebte. **Aber die Zeitalter bilden eine geschichtliche Rüge für Calvin, denn reine Menschlichkeit, ein reines Gewissen und die öffentliche Meinung empörten sich gegen solche Handlungsweisen**. Somit war Calvin von der zwingenden Notwendigkeit bewegt, mit einer **Verteidigung für sein Handeln an die öffentlichkeit zu treten**. Dieses tat er im Frühjahr des Jahres 1554. Schaff berichtet darüber folgendermaßen: "**Calvin hielt es … für notwendig, mit einer öffentlichen Verteidigung der Todesstrafe für Ketzerei im Frühjahr 1554 aufzutreten. Er berief sich auf das Gesetz Moses gegen Götzendienst und Lästerung, die Vertreibung der gottlosen Händler aus dem Tempel (Mt 21:12), und er versuchte die Argumente zur Tolerierung, die vom weisen Rat Gamaliels herstammen, zu widerlegen … und Christi Rüge an Petrus dafür, dass er das Schwert zog (Mt 26:52). Das letzte Argument gebrauchte er, um einen Unterschied zwischen privater Rache und öffentlicher Strafe zu machen.**"_<<|
@@ -501,7 +503,7 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 |Josh McDowell|![alt][picture josh_mc_dowell]|UdH|||
 |June Hunt|![alt][picture june_hunt]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
 |Ken Matto|![alt][picture ken_matto]|UdH/OSAS|Scion of Zion|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch), OSAS-proof found by apostasia.net: >>unter http://www.scionofzion.com : "We do not endorse any of the following: ... "Loss of Salvation - John 6:37, 39; Romans 8:33-39, 11:29; Eph. 4:30; 1 John 5:11-13""<< Further statemens in their statement of faith: >>16) We do not believe in the doctrine of "Christian Perfection." It is impossible to be perfect on earth with a sin-tainted body and mind.<< so they believe the same as Luther who also thinks that it is impossible to stop sinning (Original sin) and >>I. Free Will Gospels - Ephesians 2:1-5<< - they also deny that we have a free will, [similar to the manichaens/manichaeism and Augustine according to the Pelagians](http://gesundelehre.tk/forwarder.php?url=http://www.libraryoftheology.com/writings/pelagianism/JulianAndPelagianStatementOfFaith.pdf) - manichaens also stated that with the fall of Adam mankind lost freewill...|
-|Kenneth Copeland|![alt][picture kenneth_copeland]|Prosperity Gospel (Wohlstandsevangelium)|left the (false) charismatic congregation and has now false unity with Catholicism|[www.eternallifeblog.com/2014/03/12/word-faith-kenneth-copeland-unifying-catholicism/](http://gesundelehre.tk/forwarder.php?url=http://www.eternallifeblog.com/2014/03/12/word-faith-kenneth-copeland-unifying-catholicism/)|
+|Kenneth Copeland|![alt][picture kenneth_copeland]|Prosperity Gospel (Wohlstandsevangelium), Teaches that Jesus was the first Person ever Born again, Teaches Jesus went to hell (spiritual death) left the (false) charismatic congregation and has now false unity with Catholicism|[www.eternallifeblog.com/2014/03/12/word-faith-kenneth-copeland-unifying-catholicism/](http://gesundelehre.tk/forwarder.php?url=http://www.eternallifeblog.com/2014/03/12/word-faith-kenneth-copeland-unifying-catholicism/)|
 |Kent Hekel|![alt][picture kent_hekel]|Eternal Security (OSAS), Calvinist||sagt, es gäbe christliche Mörder - widerspricht sich aber selbst, indem er sagt, wenn die Person nicht heilig ist, sei sie nicht Christ, [www.evangelicaloutreach.org/kent-hekel.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/kent-hekel.htm), >>People, they, they want to teach that you can lose your salvation. That is blasphemy! That is so wrong...We, as Christians, we’re all like Saul of Tarsus, except to one degree or another. He just happened to be the one killing Christians. I’ll tell you what, I, I know that sometimes we’re, Paul said you know what, I’m the chief of sinners. I’m the worst sinner who ever walked on the planet. from audio teachings "Amazing Grace".<<|
 |Kent Hovind|![alt][picture kent_hovind]|UdH/OSAS, verteidigt positiverweise den Kreationismus (den biblischen Schöpfungbericht) gegenüber der Evolutionstheorie, hält positiverweise an einer Entrückung NACH der Trübsalszeit fest|[www.drdino.com](http://gesundelehre.tk/forwarder.php?url=http://www.drdino.com), Gemeinschaft mit (dem krassen Irrlehrer) Steven L. Anderson|[www.evangelicaloutreach.org/hovind.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hovind.htm), >>Kent Hovind: Anyway, the Lord said “Come into the Ark.” And so all the critters went in—two of each kind and seven of some. And then the Lord shut the door. That’s a good eternal security verse by the way. When God shuts the door, it won’t leak. People say, ”Brother Hovind, do you believe you’re eternally secure?” Yep, I got born into God’s family and he is stuck with me. Now some of God’s children, he takes them home and crowns them. Other children, he ‘crowns’ them and takes them home. But if you are saved, you are eternally secure, you are going to heaven. (Creation Seminar, Part 6 video, The Hovind Theory).<<|
 |Kirk Cameron|![alt][picture kirk_cameron]|?|Pre-Trib-Rapture-Film/Tim LaHaye||
@@ -521,18 +523,19 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 |Origen (Origenes von Alexandria, *185 in Alexandria - †254))|![alt][picture origen]|Universalism|Ante-Nicene Father||
 |**_Paul Washer_**|![alt][picture paul_washer]|Perceveirance of the Saints / UdH / Eternal Security (OSAS), Calvinist, exalts George Whitefield & Charles Spurgeon|[www.heartcrymissionary.com](http://gesundelehre.tk/forwarder.php?url=http://www.heartcrymissionary.com)|[www.evangelicaloutreach.org/paul_washer.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/paul_washer.htm); very deceiving! as he promotes at the same time holiness! (remember, for a calvinist holiness is NEVER (cannot be) salvation-relevant! (as they believe, that one cannot stop sinning - original sin, then nobody could be saved, as nobody could live holy in their mindset); Zitat von apostasia.net: >>Washer ist ein widerlicher Schauspieler, schaut man sich seine Videos an, die er von sich produziert. Einfach nur widerlich da nur studierte Schauspielerei. Die meisten fallen auf das Schauspiel herein. Hauptsache "es geht ans Herz"<<|
 |Papst Johannes Paul II|![alt][picture pope_john_paul_sleeping]|promoting Idolatry / worship of mary, we should pray to mary, Mary is our eternal security, Mary is our Refuge, Mary Did Take Part In Calvary's Sacrifice, Mary Is All-Knowing And Everywhere Present, Mary is Sovereign|[www.evangelicaloutreach.org/pope-john-paul-II.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/pope-john-paul-II.htm)|
-|Pat Robertson|![alt][picture pat_robertson]|Eternal Security (OSAS), promotes Alzheimer Divorce||[www.evangelicaloutreach.org/patrobertson.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/patrobertson.htm)|
+|Pat Robertson|![alt][picture pat_robertson]|Eternal Security (OSAS), promotes Alzheimer Divorce|Praised the Pope (at John Paul II's death)|[www.evangelicaloutreach.org/patrobertson.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/patrobertson.htm)|
 |R. T. Kendall|![alt][picture r_t_kendall]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
-|Ray Comfort|![alt][picture ray_comfort]|OSAS, Antinomismus/Antimonianism||[www.evangelicaloutreach.org/raycomfort.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/raycomfort.htm)|
+|Ray Comfort|![alt][picture ray_comfort]|OSAS, Antinomismus/Antimonianism|Way Of The Waters Radio (Kirk Cameron / Ray Comfort & Todd Freel (Tod Freel is Protestant (Pro Calvin, Luther, Spurgeon)); Living Waters|[www.evangelicaloutreach.org/raycomfort.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/raycomfort.htm)|
 |Richard Wurmbrand|![alt][picture richard_wurmbrand]|Lehrt, dass man eine Prostituierte oder Verräter und gleichzeitig Christ sein könne([www.apostasia.net/node/280.htm](http://gesundelehre.tk/forwarder.php?url=http://www.apostasia.net/node/280.htm)|die "Stimme der Märtyrer" (Voice of Martyrs)|originalinfo auf [www.eternallifeblog.com/2013/01/23/christian-prostitutes-voice-martyrs](http://gesundelehre.tk/forwarder.php?url=http://www.eternallifeblog.com/2013/01/23/christian-prostitutes-voice-martyrs/)|
 |Rick Joyner|![alt][picture rick_joyner]||Mitglied des okkulten Freimaurer-Ordens "Ritter von Malta"/"Knights of Malta" bzw. Malteser-Orden, unterstützt Todd Bentley, NAR (New Apostolic Reformation), Founder of Morning Star Ministries|[Mehr Infos auf www.diewahrheitistnochda.de](http://gesundelehre.tk/forwarder.php?url=http://www.diewahrheitistnochda.de/irrlehrer-verf%C3%BChrer/rick-joyner/)|
 |Rick Knapp|![alt][picture rick_knapp]|Eternal Security (OSAS)||lehrt, dass man Massenmord begehen kann und immer noch in den Himmel kommen kann, [www.evangelicaloutreach.org/rick_knapp_george_sodini.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/rick_knapp_george_sodini.htm) |
-|**_Rick Warren_**|![Rick Warren][picture rick_warren]|Emerging Church, Saddleback-Church (Saddleback-MEGA-Church), PEACE-Plan-soziales Evangelium|engagiert in der Politik / Contact to Obama, Thomas Schirrmacher, Member of the **_CFR_**!! (Counsil of Foreign Relations), Contact to Brian Houston (see <a href="#love_offering_circuit">love-offering-circuit</a> |[www.evangelicaloutreach.org/rick_warren.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/rick_warren.htm), OSAS-proof found by apostasia.net: >>"Because God gives man eternal life through Jesus Christ, the believer is secure in salvation for eternity." (webseite, unter Eternal Security)<<|
+|**_Rick Warren_**|![Rick Warren][picture warren_rick]|Emerging Church, Saddleback-Church (Saddleback-MEGA-Church), PEACE-Plan-soziales Evangelium|engagiert in der Politik / Contact to Obama, Thomas Schirrmacher, Member of the **_CFR_**!! (Counsil of Foreign Relations), Contact to Brian Houston (see <a href="#love_offering_circuit">love-offering-circuit</a> |[www.evangelicaloutreach.org/rick_warren.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/rick_warren.htm), OSAS-proof found by apostasia.net: >>"Because God gives man eternal life through Jesus Christ, the believer is secure in salvation for eternity." (webseite, unter Eternal Security)<<|
 |**Robert Morey**|![Robert Morey][picture robert_morey]|Perseverance of the saints / Eternal Security (OSAS)||[www.evangelicaloutreach.org/morey.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/morey.htm); Concerning Romans7:14 and following he stated: >>_Paul is speaking of of [sic] the normal Christian life._<<|
-|Rob Bell|![alt][picture rob_bell]|Allversöhner/Universalist -> verleugnet die ewige Hölle, (Bethel? / Mystik, Myszizismus / Charismatik? / Bibel ist nicht Gottes Wort?), Pro-Homosexualität |Emerging Church, Willow Creek|mehr infos auf [diewahrheitistnochda.de](http://gesundelehre.tk/forwarder.php?url=www.diewahrheitistnochda.de/irrlehrer-verführer/rob-bell/) und [im Forum Irrglaube/Wahrheit](http://gesundelehre.tk/forwarder.php?url=http://www.irrglaube-und-wahrheit.ch/sutra35944.html&sid=51da96e884171ff970153e0d7a337432), In der Liste der 100 weltweit einflussreichsten Menschen von 2011, die das TIME-Magazin am 2. Mai 2011 veröffentlichte, [Zitat für Homosexuellen-Gleichstellung von Rob Bell](http://gesundelehre.tk/forwarder.php?url=http://www.mlive.com/news/grand-rapids/index.ssf/2013/03/hear_rob_bell_support_same-sex.html): >“I am for marriage. I am for fidelity. I am for love, whether it’s a man and a woman, a woman and a woman, a man and a man,” Bell said. “And I think the ship has sailed. This is the world we are living in and we need to affirm people wherever they are.”|
+|**_Rob Bell_**|![alt][picture rob_bell]|Allversöhner/Universalist -> verleugnet die ewige Hölle, (Bethel? / Mystik, Myszizismus / Charismatik? / Bibel ist nicht Gottes Wort?), Pro-Homosexualität, Gott würde niemals wütend, "Gott glaubt an uns"|Emerging Church, Willow Creek|mehr infos auf [diewahrheitistnochda.de](http://gesundelehre.tk/forwarder.php?url=www.diewahrheitistnochda.de/irrlehrer-verführer/rob-bell/) und [im Forum Irrglaube/Wahrheit](http://gesundelehre.tk/forwarder.php?url=http://www.irrglaube-und-wahrheit.ch/sutra35944.html&sid=51da96e884171ff970153e0d7a337432), In der Liste der 100 weltweit einflussreichsten Menschen von 2011, die das TIME-Magazin am 2. Mai 2011 veröffentlichte, [Zitat für Homosexuellen-Gleichstellung von Rob Bell](http://gesundelehre.tk/forwarder.php?url=http://www.mlive.com/news/grand-rapids/index.ssf/2013/03/hear_rob_bell_support_same-sex.html): >“I am for marriage. I am for fidelity. I am for love, whether it’s a man and a woman, a woman and a woman, a man and a man,” Bell said. “And I think the ship has sailed. This is the world we are living in and we need to affirm people wherever they are.” - the following is direct quoted/transcribed from [here](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/bell/video/BullwhipGuyRobBell.mp3) which proves completely that he has totally forsaken all of the biblical truth: "_Gods love makes us feel good about ourselves, **if we don't feel good about ourselves, it's not from God** - so instead of telling people this nonsense about God is angry with wickedness, you need to let people know that **God loves them just the way they are**, that their thoughts and feelings are valid no matter what, **it's not that there's some objective standard, that we can use to judge our lives by**_" => flattering words, smooth words, deceptive words, exactly the kind of false teachers that disquises himself in sheeps clothing but inwardly is a ravenous wolf! -- quotation from [here](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/bell/video/BullwhipGuyRobBell.mp3) until 02:22: "_So back to the walking on water thing when you have this boat full of anybodies and the waters choppin' the wind's blowing, then they're terrified because this Jesus comes across the water to them and they think he's a ghost and then Peter says, well if it's you then tell me to come to you. Now why is this Peters first response. Why is Peters first reaction if its you then tell me to come to you. Because he's a disciple. That means he's oriented his whole life, devoted his whole life to doing what he sees his rabbi doing, learning to be like his rabbi. So he sees his rabbi walking on water. What's the first thing he wants to do. I wanna walk on water too. I wanna be like my rabbi. And so Peter gets out of the boat and he starts walking out on water, but he starts to sink and yells out Jesus save me. And the text reads that Jesus immediately caught him and sayd you little faith, why did you doubt. Now I always assumed that Peter doubts Jesus. But Jesus isn't sinking. Who does Peter doubt? **He doubts himself. He looses faith in himself** that he can actually be like his rabbi. I mean Jesus wouldn't have called him if he didn't think he could be like him. Jesus even reminds his disciples of this at one point. He says to them, wa-wa-wait, you didn't choose me, I chose you, the rabbi doesn't choose you unless the rabbi thinks you can do what he does, that you can be like him. I mean, All my life i've heard people talking about believing in God. **But God believes in us, in you**, in me, I mean faith in Jesus is important, but what about Jesus' faith in us? I mean he must have faith in us because he leaves it alone at the hands of these disciples. What was the last thing Jesus says to them? Now you go and make more disciples, he leaves it all at the hands of these anybodies and they do it_" ---> actually scripture says quite the opposite - "Trust in the LORD with all thine heart; and lean not unto thine own understanding." (Prov 3:5, KJV) AND "Thus saith the LORD; Cursed [be] the man that trusteth in man, and maketh flesh his arm, and whose heart departeth from the LORD." (Jer 17:5, KJV) ---> THIS IS HUMANISM DISGUISED/MASCARADED AS CHRISTIANITY|
 |Robert Harold Schuller †2015)|![alt][picture robert_harold_schuller]|Essential Person in the foundation of Easy Believism|Connections to Billy Graham|Founder of the Crystal Cathedral-Church, American Televangelist (Hour of Power Television-Program), Pastor, Motivational Speaker, Author|
 |Robert Shank|![Robert Shank][picture robert_shank_book_lifeintheson]|Eternal Security (OSAS), promotes praying for animals not to sin...||[www.evangelicaloutreach.org/robert-shank.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/robert-shank.htm)|
 |Robert Thieme, Jr (*1918 – †2009)|![alt][picture robert_thieme_jr]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
+|Rodney Howard Brown|![alt][picture rodney_howard_brown]|Prosperity-Preacher; Kundalini-Spirit/Charismatic-Spirit, calls himself the Holy-Ghost-Bartender; nickname know'em down-brown|already active in 1993/1994; launched by **_Benni Hinn_**, got himself on **Kenneth Copelands** TV Program where they acted drunken on TV; Tampa Florida, **Word of Faith-Movement**, **Latter Rain Movement** (Acts 2,14 Pentecost - acts2,15, they were NOT drunk; Randy Clark got that Spirit/anointing from laying on hands there himself and took it to the **Vineyard-Movement** --> was at the Toronto-Blessing/Toronto-Outpouring (January 1994) [people falling down acting drunken, laughing histerically, shaking uncontrollably, jerking backwards and forwards, people even roaring like lions, people making animal noises]|lay hands on people imparting laughter or wave to people and this laughter would overcome them or shaking or uncontrollable jerking - more info  from the author Andrew Strom, of the book "kundulini warning: are false spirits invading the church?" [Kundulini Documentary Part 1](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/crowder/video/SHOCKINGDOCUMENTARY1.mp3);[Kundulini Documentary Part 2](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/crowder/video/SHOCKINGDOCUMENTARY2.mp3)[Kundulini Documentary Part 3](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/crowder/video/SHOCKINGDOCUMENTARY3.mp3); ----- Howardbrown Exposed by Todd Friel (Watch out he clinges to Reformed Doctrine):[Part1](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/RodneyHowardBrowne1.mp3),[Part2](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/RodneyHowardBrowne2.mp3),[Part3](http://gesundelehre.tk/forwarder.php?url=http://www.false-teachers.com/audio/RodneyHowardBrowne3.mp3);||Sect: Southern Baptist Church|![alt][picture southern_baptist_church]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
 |Sect: Southern Baptist Church|![alt][picture southern_baptist_church]|UdH/OSAS|context|(info von [apostasia.net/node/276, Liste Pro/Contra-Apostasie](http://gesundelehre.tk/forwarder.php?url=http://webcache.googleusercontent.com/search?q=cache:XWwF28pbg_4J:www.apostasia.net/node/276+&cd=1&hl=de&ct=clnk&gl=ch)|
 |Spiros Zodhiates|![Spiros Zodhiates][picture spiros_zodhiates]|Eternal Security (OSAS), denies, that Christians can live holy (= Erbsünde/Original Sin-Lehre)||[www.evangelicaloutreach.org/spiros_zodhiates.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiros_zodhiates.htm)|
 |Steven L. Anderson|![alt][picture steven_l_anderson]|OSAS, Abkehr/Busse tun von Sünde hält er für Werkgerechtigkeit (works-based-salvation), Verleugnet dass man von seinen Sünden Busse tun / umkehren könne, Verleugnet dass Busse/Abkehr von Sünde notwendig ist für die Errettung [some info concerning Steven L. Anderson & Alex Jones here: youtube:uwg95sWAvCw - REMOVING REPENTANCE! Steven Anderson's False Gospel Exposed (- But watch out! turnfromyouridols.com (Brian Moonan) is teaching Eternal Security as well!!)](http://gesundelehre.tk/forwarder.php?url=https://www.youtube.com/watch?v=uwg95sWAvCw), "Glaube-Allein" ist für ihn das Evangelium, man müsse lediglich Busse tun von Unglauben zu Glauben |Faithful Word Baptist Church Tempe Arizona, [www.faithfulwordbaptist.org](http://gesundelehre.tk/forwarder.php?url=http://www.faithfulwordbaptist.org), Kontakt zu Kent Hovind, Kontakt zu Alex Jones, Kontakt mit Paul Wittenberger|hält positiverweise an einer Entrückung NACH der Trübsalszeit fest (jedoch gemischt mit Futurismus/Dispensationalismus), Setzt sich für die KJV-Bibel und gegen diverse Bibelfälschungen ein; deshalb: **Achtung** Da er Wahrheit mit Lüge mischt lässt das ihn wahrhaftig und als guten Lehrer erscheinen, wobei er in Wirklichkeit ein Irrlehrer ist, (VERLEUGNET den Holocaust / denies the holocaust: [Part1](http://gesundelehre.tk/forwarder.php?url=https://www.youtube.com/watch?v=GNN_YvZu1uY); [Part2](http://gesundelehre.tk/forwarder.php?url=https://www.youtube.com/watch?v=Qqqdod5ANa8); [Part3](http://gesundelehre.tk/forwarder.php?url=https://www.youtube.com/watch?v=3Idc9IDrAcc); [Part4](http://gesundelehre.tk/forwarder.php?url=https://www.youtube.com/watch?v=aMBscrMMnXQ); [Part5](http://gesundelehre.tk/forwarder.php?url=https://www.youtube.com/watch?v=I8W4kKWWqiQ); [Part6](http://gesundelehre.tk/forwarder.php?url=https://www.youtube.com/watch?v=I8W4kKWWqiQ) -> but Note, that Bryan Denlinger (alias husky394) preaches a false Gospel as well (OSAS & Pre-Trib-Rapture), even though he correctly stands for the KJV and refutes other Bible-Translations on his website: http://www.kingjamesvideoministries.com); Statement from the website of Steven L. Anderson: "We believe in the eternal security of the believer (once saved, always saved)."|
@@ -555,166 +558,170 @@ Geh am Besten einmal die gesamte Liste durch und schau, ob du bereits mit irgend
 
 
 
-[picture a_a_hodge]: files/false_teachers/a_a_hodge.jpg
-[picture adrian_rogers]: files/false_teachers/adrian_rogers.jpg
-[picture alex_jones]: files/false_teachers/alex_jones.jpg
-[picture alphonsus_ligouri]: files/false_teachers/alphonsus_ligouri.jpg
-[picture arthur_c_custance]: files/false_teachers/arthur_c_custance.jpg
-[picture arthur_w_pink]: files/false_teachers/arthur_w_pink.jpg
-[picture augustinus_von_hippo]: files/false_teachers/augustinus_von_hippo.jpg
-[picture barry_napier]: files/false_teachers/barry_napier.jpg
-[picture benny_hinn]: files/false_teachers/benny_hinn.jpg
-[picture bernie_koerselman]: files/false_teachers/bernie_koerselman.jpg
-[picture bill_bright]: files/false_teachers/bill_bright.jpg
-[picture bill_hybels]: files/false_teachers/bill_hybels.jpg
-[picture bill_johnson]: files/false_teachers/bill_johnson.jpg
-[picture billy_graham]: files/false_teachers/billy_graham.jpg
-[picture bob_george]: files/false_teachers/bob_george.jpg
-[picture brian_and_bobbie_houston]: files/false_teachers/brian_and_bobbie_houston.jpg
-[picture brian_h_edwards]: files/false_teachers/brian_h_edwards.jpg
-[picture bruce_wilkinson]: files/false_teachers/bruce_wilkinson.jpg
-[picture c_peter_wagner]: files/false_teachers/c_peter_wagner.jpg
-[picture carl_lentz]: files/false_teachers/carl_lentz.jpg
-[picture carter_conlon]: files/false_teachers/carter_conlon.jpg
-[picture charles_finney]: files/false_teachers/charles_finney.jpg
-[picture charles_russell]: files/false_teachers/charles_russell.jpg
-[picture charles_ryrie]: files/false_teachers/charles_ryrie.jpg
-[picture charles_spurgeon]: files/false_teachers/charles_spurgeon.jpg
-[picture charles_stanley]: files/false_teachers/charles_stanley.jpg
-[picture chuck_missler]: files/false_teachers/chuck_missler.jpg
-[picture chuck_smith]: files/false_teachers/chuck_smith.jpg
-[picture cindy_jacobs]: files/false_teachers/cindy_jacobs.jpg
-[picture clement_of_alexandria]: files/false_teachers/clement_of_alexandria.jpg
-[picture creflo_dollar]: files/false_teachers/creflo_dollar.jpg
-[picture curtis_c_thomas]: files/false_teachers/curtis_c_thomas.jpg
-[picture curtis_hutson]: files/false_teachers/curtis_hutson.jpg
-[picture cutting_edge_ministries]: files/false_teachers/cutting_edge_ministries.jpg
-[picture c_h_mackintosh]: files/false_teachers/c_h_mackintosh.jpg
-[picture d_l_moody]: files/false_teachers/d_l_moody.jpg
-[picture dave_hunt]: files/false_teachers/dave_hunt.jpg
-[picture david_bercot_book_willtherealhereticspleasestandup]: files/false_teachers/david_bercot_book_willtherealhereticspleasestandup.jpg
-[picture david_brainerd]: files/false_teachers/david_brainerd.jpg
-[picture david_brickner]: files/false_teachers/david_brickner.jpg
-[picture david_cloud]: files/false_teachers/david_cloud.jpg
-[picture david_guznik]: files/false_teachers/david_guznik.jpg
-[picture david_icke]: files/false_teachers/david_icke.jpg
-[picture david_n_steele]: files/false_teachers/david_n_steele.jpg
-[picture david_n_steele_five_points_of_calvinism_defended_book]: files/false_teachers/david_n_steele_five_points_of_calvinism_defended_book.jpg
-[picture david_pawson]: files/false_teachers/david_pawson.jpg
-[picture david_servant]: files/false_teachers/david_servant.jpg
-[picture david_stewart]: files/false_teachers/david_stewart.jpg
-[picture david_wilkerson]: files/false_teachers/david_wilkerson.jpg
-[picture deborah_du_rand]: files/false_teachers/deborah_du_rand.jpg
-[picture donald_cole]: files/false_teachers/donald_cole.jpg
-[picture donnie_swaggart]: files/false_teachers/donnie_swaggart.jpg
-[picture edgar_whisenant]: files/false_teachers/edgar_whisenant.jpg
-[picture ellen_g_white]: files/false_teachers/ellen_g_white.jpg
-[picture eric_john_phelps]: files/false_teachers/eric_john_phelps.jpg
-[picture erwin_lutzer]: files/false_teachers/erwin_lutzer.jpg
-[picture eugene_h_peterson]: files/false_teachers/eugene_h_peterson.jpg
-[picture franklin_graham]: files/false_teachers/franklin_graham.jpg
-[picture gail_riplinger]: files/false_teachers/gail_riplinger.jpg
-[picture gary_amirault]: files/false_teachers/gary_amirault.jpg
-[picture gary_wilkerson]: files/false_teachers/gary_wilkerson.jpg
-[picture george_cutting]: files/false_teachers/george_cutting.jpg
-[picture gideons]: files/false_teachers/gideons.jpg
-[picture gospel_for_asia]: files/false_teachers/gospel_for_asia.jpg
-[picture got_questions]: files/false_teachers/got_questions.jpg
-[picture greg_laurie]: files/false_teachers/greg_laurie.jpg
-[picture h_a_ironside]: files/false_teachers/h_a_ironside.jpg
-[picture hal_lindsey]: files/false_teachers/hal_lindsey.jpg
-[picture hank_hanegraaff]: files/false_teachers/hank_hanegraaff.jpg
-[picture hank_lindstrom]: files/false_teachers/hank_lindstrom.jpg
-[picture harold_camping]: files/false_teachers/harold_camping.jpg
-[picture j_g_fijnvandraat]: files/false_teachers/j_g_fijnvandraat.jpg
-[picture j_vernon_mc_gee]: files/false_teachers/j_vernon_mc_gee.jpg
-[picture jack_chick]: files/false_teachers/jack_chick.jpg
-[picture jack_hayford]: files/false_teachers/jack_hayford.jpg
-[picture jack_hyles1]: files/false_teachers/jack_hyles1.jpg
-[picture jack_hyles2]: files/false_teachers/jack_hyles2.jpg
-[picture jack_van_impe]: files/false_teachers/jack_van_impe.jpg
-[picture jacob_prasch]: files/false_teachers/jacob_prasch.jpg
-[picture james_kennedy]: files/false_teachers/james_kennedy.jpg
-[picture james_montgomery_boice]: files/false_teachers/james_montgomery_boice.jpg
-[picture james_white]: files/false_teachers/james_white.jpg
-[picture jean_gibson]: files/false_teachers/jean_gibson.jpg
-[picture jessie_penn_lewis]: files/false_teachers/jessie_penn_lewis.jpg
-[picture jimmy_swaggart]: files/false_teachers/jimmy_swaggart.jpg
-[picture joel_osteen]: files/false_teachers/joel_osteen.jpg
-[picture johanna_michaelsen]: files/false_teachers/johanna_michaelsen.jpg
-[picture john_ankerberg]: files/false_teachers/john_ankerberg.jpg
-[picture john_calvin]: files/false_teachers/john_calvin.jpg
-[picture john_gill]: files/false_teachers/john_gill.jpg
-[picture john_hagee_and_wife]: files/false_teachers/john_hagee_and_wife.jpg
-[picture john_mac_arthur]: files/false_teachers/john_mac_arthur.jpg
-[picture john_nelson_darby]: files/false_teachers/john_nelson_darby.jpg
-[picture john_owen]: files/false_teachers/john_owen.jpg
-[picture john_piper]: files/false_teachers/john_piper.jpg
-[picture john_p_kelly]: files/false_teachers/john_p_kelly.jpg
-[picture john_r_rice]: files/false_teachers/john_r_rice.jpg
-[picture john_s_torell]: files/false_teachers/john_s_torell.jpg
-[picture john_weldon]: files/false_teachers/john_weldon.jpg
-[picture john_wimber]: files/false_teachers/john_wimber.jpg
-[picture jonathan_edwards]: files/false_teachers/jonathan_edwards.jpg
-[picture joseph_prince]: files/false_teachers/joseph_prince.jpg
-[picture joseph_smith_jr]: files/false_teachers/joseph_smith_jr.jpg
-[picture josh_mc_dowell]: files/false_teachers/josh_mc_dowell.jpg
-[picture june_hunt]: files/false_teachers/june_hunt.jpg
-[picture ken_matto]: files/false_teachers/ken_matto.jpg
-[picture kenneth_copeland]: files/false_teachers/kenneth_copeland.jpg
-[picture kent_hekel]: files/false_teachers/kent_hekel.jpg
-[picture kent_hovind]: files/false_teachers/kent_hovind.jpg
-[picture kirk_cameron]: files/false_teachers/kirk_cameron.jpg
-[picture kp_yohannan]: files/false_teachers/kp_yohannan.jpg
-[picture kyle_idleman]: files/false_teachers/kyle_idleman.jpg
-[picture laurence_vance]: files/false_teachers/laurence_vance.jpg
-[picture loren_cunningham]: files/false_teachers/loren_cunningham.jpg
-[picture mark_driscoll]: files/false_teachers/mark_driscoll.jpg
-[picture martin_luther]: files/false_teachers/martin_luther.jpg
-[picture matt_slick]: files/false_teachers/matt_slick.jpg
-[picture max_lucado]: files/false_teachers/max_lucado.jpg
-[picture mike_bickle]: files/false_teachers/mike_bickle.jpg
-[picture mother_teresa]: files/false_teachers/mother_teresa.jpg
-[picture new_tribes_mission]: files/false_teachers/new_tribes_mission.jpg
-[picture nick_vujicic]: files/false_teachers/nick_vujicic.jpg
-[picture norman_geisler]: files/false_teachers/norman_geisler.jpg
-[picture nostradamus]: files/false_teachers/nostradamus.jpg
-[picture origen]: files/false_teachers/origen.jpg
-[picture pat_robertson]: files/false_teachers/pat_robertson.jpg
-[picture paul_washer]: files/false_teachers/paul_washer.jpg
-[picture pope_john_paul_sleeping]: files/false_teachers/pope_john_paul_sleeping.jpg
-[picture r_t_kendall]: files/false_teachers/r_t_kendall.jpg
-[picture ray_comfort]: files/false_teachers/ray_comfort.jpg
-[picture richard_wurmbrand]: files/false_teachers/richard_wurmbrand.jpg
-[picture rick_joyner]: files/false_teachers/rick_joyner.jpg
-[picture rick_knapp]: files/false_teachers/rick_knapp.jpg
-[picture rick_warren]: files/false_teachers/rick_warren.jpg
-[picture rob_bell]: files/false_teachers/rob_bell.jpg
-[picture robert_harold_schuller]: files/false_teachers/robert_harold_schuller.jpg
-[picture robert_morey]: files/false_teachers/robert_morey.jpg
-[picture robert_shank_book_lifeintheson]: files/false_teachers/robert_shank_book_lifeintheson.jpg
-[picture robert_thieme_jr]: files/false_teachers/robert_thieme_jr.jpg
-[picture ron_riffle]: files/false_teachers/ron_riffle.jpg
-[picture s_michael_houdmann]: files/false_teachers/s_michael_houdmann.jpg
-[picture southern_baptist_church]: files/false_teachers/southern_baptist_church.jpg
-[picture spiros_zodhiates]: files/false_teachers/spiros_zodhiates.jpg
-[picture steven_l_anderson]: files/false_teachers/steven_l_anderson.jpg
-[picture t_a_mcmahon]: files/false_teachers/t_a_mcmahon.jpg
-[picture terry_watkins]: files/false_teachers/terry_watkins.jpg
-[picture theodore_austin_sparks]: files/false_teachers/theodore_austin_sparks.jpg
-[picture tim_lahaye]: files/false_teachers/tim_lahaye.jpg
-[picture tim_lahaye_cross_and_crown]: files/false_teachers/tim_lahaye_cross_and_crown.jpg
-[picture todd_bentley]: files/false_teachers/todd_bentley.jpg
-[picture todd_white]: files/false_teachers/todd_white.jpg
-[picture tony_evans]: files/false_teachers/tony_evans.jpg
-[picture torrey]: files/false_teachers/torrey.jpg
-[picture truth_talk_live]: files/false_teachers/truth_talk_live.jpg
-[picture vic_lockman]: files/false_teachers/vic_lockman.jpg
-[picture vic_lockman_catechism_booklet]: files/false_teachers/vic_lockman_catechism_booklet.jpg
-[picture vic_lockman_tulip_booklet]: files/false_teachers/vic_lockman_tulip_booklet.jpg
-[picture w_boyd_hunt]: files/false_teachers/w_boyd_hunt.jpg
-[picture watchman_nee]: files/false_teachers/watchman_nee.jpg
-[picture william_mac_donald]: files/false_teachers/william_mac_donald.jpg
-[picture william_mac_donald]: files/false_teachers/william_mac_donald.jpg
-[picture yonggi_cho]: files/false_teachers/yonggi_cho.jpg
-[picture zane_hodges]: files/false_teachers/zane_hodges.jpg
+[picture a_a_hodge]: ../files/false_teachers/a_a_hodge.jpg
+[picture adrian_rogers]: ../files/false_teachers/adrian_rogers.jpg
+[picture alex_jones]: ../files/false_teachers/alex_jones.jpg
+[picture alphonsus_ligouri]: ../files/false_teachers/alphonsus_ligouri.jpg
+[picture arthur_c_custance]: ../files/false_teachers/arthur_c_custance.jpg
+[picture arthur_w_pink]: ../files/false_teachers/arthur_w_pink.jpg
+[picture augustinus_von_hippo]: ../files/false_teachers/augustinus_von_hippo.jpg
+[picture barry_napier]: ../files/false_teachers/barry_napier.jpg
+[picture benny_hinn]: ../files/false_teachers/benny_hinn.jpg
+[picture bernie_koerselman]: ../files/false_teachers/bernie_koerselman.jpg
+[picture bill_bright]: ../files/false_teachers/bill_bright.jpg
+[picture bill_hybels]: ../files/false_teachers/bill_hybels.jpg
+[picture bill_johnson]: ../files/false_teachers/bill_johnson.jpg
+[picture billy_graham]: ../files/false_teachers/billy_graham.jpg
+[picture bob_george]: ../files/false_teachers/bob_george.jpg
+[picture brian_and_bobbie_houston]: ../files/false_teachers/brian_and_bobbie_houston.jpg
+[picture brian_h_edwards]: ../files/false_teachers/brian_h_edwards.jpg
+[picture brian_mclaren]: ../files/false_teachers/brian_mclaren.jpg
+[picture bruce_wilkinson]: ../files/false_teachers/bruce_wilkinson.jpg
+[picture c_peter_wagner]: ../files/false_teachers/c_peter_wagner.jpg
+[picture carl_lentz]: ../files/false_teachers/carl_lentz.jpg
+[picture carter_conlon]: ../files/false_teachers/carter_conlon.jpg
+[picture charles_finney]: ../files/false_teachers/charles_finney.jpg
+[picture charles_russell]: ../files/false_teachers/charles_russell.jpg
+[picture charles_ryrie]: ../files/false_teachers/charles_ryrie.jpg
+[picture charles_spurgeon]: ../files/false_teachers/charles_spurgeon.jpg
+[picture charles_stanley]: ../files/false_teachers/charles_stanley.jpg
+[picture chuck_missler]: ../files/false_teachers/chuck_missler.jpg
+[picture chuck_smith]: ../files/false_teachers/chuck_smith.jpg
+[picture cindy_jacobs]: ../files/false_teachers/cindy_jacobs.jpg
+[picture clement_of_alexandria]: ../files/false_teachers/clement_of_alexandria.jpg
+[picture creflo_dollar]: ../files/false_teachers/creflo_dollar.jpg
+[picture curtis_c_thomas]: ../files/false_teachers/curtis_c_thomas.jpg
+[picture curtis_hutson]: ../files/false_teachers/curtis_hutson.jpg
+[picture cutting_edge_ministries]: ../files/false_teachers/cutting_edge_ministries.jpg
+[picture c_h_mackintosh]: ../files/false_teachers/c_h_mackintosh.jpg
+[picture d_l_moody]: ../files/false_teachers/d_l_moody.jpg
+[picture dave_hunt]: ../files/false_teachers/dave_hunt.jpg
+[picture david_bercot_book_willtherealhereticspleasestandup]: ../files/false_teachers/david_bercot_book_willtherealhereticspleasestandup.jpg
+[picture david_brainerd]: ../files/false_teachers/david_brainerd.jpg
+[picture david_brickner]: ../files/false_teachers/david_brickner.jpg
+[picture david_cloud]: ../files/false_teachers/david_cloud.jpg
+[picture david_guznik]: ../files/false_teachers/david_guznik.jpg
+[picture david_icke]: ../files/false_teachers/david_icke.jpg
+[picture david_n_steele]: ../files/false_teachers/david_n_steele.jpg
+[picture david_n_steele_five_points_of_calvinism_defended_book]: ../files/false_teachers/david_n_steele_five_points_of_calvinism_defended_book.jpg
+[picture david_pawson]: ../files/false_teachers/david_pawson.jpg
+[picture david_servant]: ../files/false_teachers/david_servant.jpg
+[picture david_stewart]: ../files/false_teachers/david_stewart.jpg
+[picture david_wilkerson]: ../files/false_teachers/david_wilkerson.jpg
+[picture deborah_du_rand]: ../files/false_teachers/deborah_du_rand.jpg
+[picture donald_cole]: ../files/false_teachers/donald_cole.jpg
+[picture donnie_swaggart]: ../files/false_teachers/donnie_swaggart.jpg
+[picture edgar_whisenant]: ../files/false_teachers/edgar_whisenant.jpg
+[picture ellen_g_white]: ../files/false_teachers/ellen_g_white.jpg
+[picture eric_john_phelps]: ../files/false_teachers/eric_john_phelps.jpg
+[picture erwin_lutzer]: ../files/false_teachers/erwin_lutzer.jpg
+[picture eugene_h_peterson]: ../files/false_teachers/eugene_h_peterson.jpg
+[picture franklin_graham]: ../files/false_teachers/franklin_graham.jpg
+[picture gail_riplinger]: ../files/false_teachers/gail_riplinger.jpg
+[picture gary_amirault]: ../files/false_teachers/gary_amirault.jpg
+[picture gary_wilkerson]: ../files/false_teachers/gary_wilkerson.jpg
+[picture george_cutting]: ../files/false_teachers/george_cutting.jpg
+[picture gideons]: ../files/false_teachers/gideons.jpg
+[picture gospel_for_asia]: ../files/false_teachers/gospel_for_asia.jpg
+[picture got_questions]: ../files/false_teachers/got_questions.jpg
+[picture greg_laurie]: ../files/false_teachers/greg_laurie.jpg
+[picture h_a_ironside]: ../files/false_teachers/h_a_ironside.jpg
+[picture hal_lindsey]: ../files/false_teachers/hal_lindsey.jpg
+[picture hank_hanegraaff]: ../files/false_teachers/hank_hanegraaff.jpg
+[picture hank_lindstrom]: ../files/false_teachers/hank_lindstrom.jpg
+[picture harold_camping]: ../files/false_teachers/harold_camping.jpg
+[picture j_g_fijnvandraat]: ../files/false_teachers/j_g_fijnvandraat.jpg
+[picture j_vernon_mc_gee]: ../files/false_teachers/j_vernon_mc_gee.jpg
+[picture jack_chick]: ../files/false_teachers/jack_chick.jpg
+[picture jack_hayford]: ../files/false_teachers/jack_hayford.jpg
+[picture jack_hyles1]: ../files/false_teachers/jack_hyles1.jpg
+[picture jack_hyles2]: ../files/false_teachers/jack_hyles2.jpg
+[picture jack_van_impe]: ../files/false_teachers/jack_van_impe.jpg
+[picture jacob_prasch]: ../files/false_teachers/jacob_prasch.jpg
+[picture james_kennedy]: ../files/false_teachers/james_kennedy.jpg
+[picture james_montgomery_boice]: ../files/false_teachers/james_montgomery_boice.jpg
+[picture james_white]: ../files/false_teachers/james_white.jpg
+[picture jean_gibson]: ../files/false_teachers/jean_gibson.jpg
+[picture jessie_penn_lewis]: ../files/false_teachers/jessie_penn_lewis.jpg
+[picture jimmy_swaggart]: ../files/false_teachers/jimmy_swaggart.jpg
+[picture joel_osteen]: ../files/false_teachers/joel_osteen.jpg
+[picture johanna_michaelsen]: ../files/false_teachers/johanna_michaelsen.jpg
+[picture john_ankerberg]: ../files/false_teachers/john_ankerberg.jpg
+[picture john_calvin]: ../files/false_teachers/john_calvin.jpg
+[picture john_gill]: ../files/false_teachers/john_gill.jpg
+[picture john_hagee_and_wife]: ../files/false_teachers/john_hagee_and_wife.jpg
+[picture john_mac_arthur]: ../files/false_teachers/john_mac_arthur.jpg
+[picture john_nelson_darby]: ../files/false_teachers/john_nelson_darby.jpg
+[picture john_owen]: ../files/false_teachers/john_owen.jpg
+[picture john_piper]: ../files/false_teachers/john_piper.jpg
+[picture john_p_kelly]: ../files/false_teachers/john_p_kelly.jpg
+[picture john_r_rice]: ../files/false_teachers/john_r_rice.jpg
+[picture john_s_torell]: ../files/false_teachers/john_s_torell.jpg
+[picture john_weldon]: ../files/false_teachers/john_weldon.jpg
+[picture john_wimber]: ../files/false_teachers/john_wimber.jpg
+[picture jonathan_edwards]: ../files/false_teachers/jonathan_edwards.jpg
+[picture joseph_prince]: ../files/false_teachers/joseph_prince.jpg
+[picture joseph_smith_jr]: ../files/false_teachers/joseph_smith_jr.jpg
+[picture josh_mc_dowell]: ../files/false_teachers/josh_mc_dowell.jpg
+[picture june_hunt]: ../files/false_teachers/june_hunt.jpg
+[picture ken_matto]: ../files/false_teachers/ken_matto.jpg
+[picture kenneth_copeland]: ../files/false_teachers/kenneth_copeland.jpg
+[picture kent_hekel]: ../files/false_teachers/kent_hekel.jpg
+[picture kent_hovind]: ../files/false_teachers/kent_hovind.jpg
+[picture kirk_cameron]: ../files/false_teachers/kirk_cameron.jpg
+[picture kp_yohannan]: ../files/false_teachers/kp_yohannan.jpg
+[picture kyle_idleman]: ../files/false_teachers/kyle_idleman.jpg
+[picture laurence_vance]: ../files/false_teachers/laurence_vance.jpg
+[picture loren_cunningham]: ../files/false_teachers/loren_cunningham.jpg
+[picture mark_driscoll]: ../files/false_teachers/mark_driscoll.jpg
+[picture martin_luther]: ../files/false_teachers/martin_luther.jpg
+[picture matt_slick]: ../files/false_teachers/matt_slick.jpg
+[picture max_lucado]: ../files/false_teachers/max_lucado.jpg
+[picture mike_bickle]: ../files/false_teachers/mike_bickle.jpg
+[picture mother_teresa]: ../files/false_teachers/mother_teresa.jpg
+[picture new_tribes_mission]: ../files/false_teachers/new_tribes_mission.jpg
+[picture nick_vujicic]: ../files/false_teachers/nick_vujicic.jpg
+[picture norman_geisler]: ../files/false_teachers/norman_geisler.jpg
+[picture nostradamus]: ../files/false_teachers/nostradamus.jpg
+[picture origen]: ../files/false_teachers/origen.jpg
+[picture pat_robertson]: ../files/false_teachers/pat_robertson.jpg
+[picture paul_washer]: ../files/false_teachers/paul_washer.jpg
+[picture pope_john_paul_sleeping]: ../files/false_teachers/pope_john_paul_sleeping.jpg
+[picture r_t_kendall]: ../files/false_teachers/r_t_kendall.jpg
+[picture ray_comfort]: ../files/false_teachers/ray_comfort.jpg
+[picture richard_wurmbrand]: ../files/false_teachers/richard_wurmbrand.jpg
+[picture rick_joyner]: ../files/false_teachers/rick_joyner.jpg
+[picture rick_knapp]: ../files/false_teachers/rick_knapp.jpg
+[picture rick_warren]: ../files/false_teachers/rick_warren.jpg
+[picture warren_rick]: ../files/false_teachers/warren_rick.jpg
+[picture rob_bell]: ../files/false_teachers/rob_bell.jpg
+[picture robert_harold_schuller]: ../files/false_teachers/robert_harold_schuller.jpg
+[picture robert_morey]: ../files/false_teachers/robert_morey.jpg
+[picture robert_shank_book_lifeintheson]: ../files/false_teachers/robert_shank_book_lifeintheson.jpg
+[picture robert_thieme_jr]: ../files/false_teachers/robert_thieme_jr.jpg
+[picture robert_harold_schuller]: ../files/false_teachers/robert_harold_schuller.jpg
+[picture rodney_howard_brown]: ../files/false_teachers/rodney_howard_brown.jpg
+[picture ron_riffle]: ../files/false_teachers/ron_riffle.jpg
+[picture s_michael_houdmann]: ../files/false_teachers/s_michael_houdmann.jpg
+[picture southern_baptist_church]: ../files/false_teachers/southern_baptist_church.jpg
+[picture spiros_zodhiates]: ../files/false_teachers/spiros_zodhiates.jpg
+[picture steven_l_anderson]: ../files/false_teachers/steven_l_anderson.jpg
+[picture t_a_mcmahon]: ../files/false_teachers/t_a_mcmahon.jpg
+[picture terry_watkins]: ../files/false_teachers/terry_watkins.jpg
+[picture theodore_austin_sparks]: ../files/false_teachers/theodore_austin_sparks.jpg
+[picture tim_lahaye]: ../files/false_teachers/tim_lahaye.jpg
+[picture tim_lahaye_cross_and_crown]: ../files/false_teachers/tim_lahaye_cross_and_crown.jpg
+[picture todd_bentley]: ../files/false_teachers/todd_bentley.jpg
+[picture todd_white]: ../files/false_teachers/todd_white.jpg
+[picture tony_evans]: ../files/false_teachers/tony_evans.jpg
+[picture torrey]: ../files/false_teachers/torrey.jpg
+[picture truth_talk_live]: ../files/false_teachers/truth_talk_live.jpg
+[picture vic_lockman]: ../files/false_teachers/vic_lockman.jpg
+[picture vic_lockman_catechism_booklet]: ../files/false_teachers/vic_lockman_catechism_booklet.jpg
+[picture vic_lockman_tulip_booklet]: ../files/false_teachers/vic_lockman_tulip_booklet.jpg
+[picture w_boyd_hunt]: ../files/false_teachers/w_boyd_hunt.jpg
+[picture watchman_nee]: ../files/false_teachers/watchman_nee.jpg
+[picture william_mac_donald]: ../files/false_teachers/william_mac_donald.jpg
+[picture william_mac_donald]: ../files/false_teachers/william_mac_donald.jpg
+[picture yonggi_cho]: ../files/false_teachers/yonggi_cho.jpg
+[picture zane_hodges]: ../files/false_teachers/zane_hodges.jpg

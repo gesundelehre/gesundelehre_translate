@@ -1,88 +1,93 @@
-<!--t Ist Geschlechtsverkehr der Zeitpunkt der Heirat? - in Arbeit (0% übersetzt) t-->
-<!--d Ist Geschlechtsverkehr der Zeitpunkt der Heirat? - in Arbeit (0% übersetzt) d-->
+<!--t Ist Geschlechtsverkehr der Zeitpunkt der Heirat? (100% übersetzt) t-->
+<!--d Heirat, Ehe, Ehebruch, Scheidung, Wiederverheiratung, Wiederheirat, Unzucht, Hurerei d-->
 
 Ist Geschlechtsverkehr/Sexuelle Vereinigung der Zeitpunkt der Heirat?
 
 - - - 
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [www.evangelicaloutreach.org/point-of-marriage.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/point-of-marriage.html) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/unzucht-homosexualitaet-ehebruch/heirat-ist-geschlechtsverkehr-der-zeitpunkt-der-heirat.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Übersetzungsvorschläge können [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/unzucht-homosexualitaet-ehebruch/heirat-ist-geschlechtsverkehr-der-zeitpunkt-der-heirat.md) auf github gemacht werden.
 
-Source: [www.evangelicaloutreach.org/point-of-marriage.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/point-of-marriage.html)
+Quelle: [www.evangelicaloutreach.org/point-of-marriage.html](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/point-of-marriage.html)
 
-#Ist Geschlechtsverkehr/Sexuelle Vereinigung der _Zeitpunkt Der Heirat_
+# Ist Geschlechtsverkehr/Sexuelle Vereinigung der _Zeitpunkt Der Heirat_
 
 ### Dan Corner
 
 
-![point of marriage](../files/pictures/evangelical-point-of-marriage.jpg)
-![Point Of Marriage](../files/pictures/a-colorb.gif)
+![Zeitpunkt der Heirat](../files/pictures/evangelical-point-of-marriage.jpg)
+![Zeitpunkt der Heirat](../files/pictures/a-colorb.gif)
 
-[![Point Of Marriage](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0) 
+[![Zeitpunkt der Heirat](http://s7.addthis.com/static/btn/v2/lg-share-en.gif)](http://www.addthis.com/bookmark.php?v=250&username=xa-4ce723c86d857fe0) 
 <script type="text/javascript" src="http://s7.addthis.com/js/250/addthis_widget.js#username=xa-4ce723c86d857fe0"></script>
 
-[![point of marriage](images/point-of-marriage.jpg "The point of sexual union is not the point of marriage")](divorce.html)
+[![Zeitpunkt der Heirat](../files/pictures/point-of-marriage.jpg "Der Zeitpunkt des Geschlechtsverkehrs ist nicht der Zeitpunkt der Heirat")](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/divorce.html)
 
-Over the years the issue of **when is the _point of marriage_** has come our way more than once: **_Is one married at the point of sexual union?_** Usually such a concept has struck terror in the heart of the _sexually immoral_ because of the implications. The Scripture mainly cited to spread such an idea is the following one: 
-> Do you not know that **he who unites himself with a [prostitute](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm) is one with her in body? For it is said, "The two will become one flesh.**" But he who unites himself with the Lord is one with him in spirit. (1 Cor 6:16,17) 
+Über die Jahre begegneten wir dem Frage **wann ist der _Zeitpunkt der Hochzeit_** mehr denn einmal: **_Ist man zum Zeitpunkt des Geschlechtsverkehrs verheiratet?_** Üblicherweise machte solch ein Konzept dem _sexuell Unmoralischen_ Angst aufgrund der Folgerungen. Die Bibelstelle, die hauptsächlich zitiert wird, um solch eine Idee zu verbreiten ist die folgende:
+> Wisset ihr aber nicht, **dass wer einer [Hure](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/prostitution.htm) anhängt, ein Leib mit ihr ist? "Denn es· werden" spricht er, "die zwei ein Fleisch sein."** Wer aber dem Herrn anhängt, der ist Ein Geist mit ihm. (1. Kor 6,16-17; Schlachter 1905)
 
-The following [**Scriptures**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) will show that one is **_not_** married at the point of sexual union. 
+Die folgenden [**Bibelstellen**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/bible.html) werden zeigen, dass man **_nicht_** verheiratet ist zum Zeitpunkt der sexuellen Vereinigung/des Geschlechtsverkehrs.
 
-**[SEXUAL UNION Can Not Be The Point Of Marriage](#point_of_marriage)** 
-
-## Point of Marriage For Joseph and Mary 
-
-1\. **Joseph and Mary were married _before_ they ever had sexual union**. We know this because **they never had sexual union, which was _after_ Jesus was born, yet they were still _married_**: 
-> This is how the birth of Jesus Christ came about: His mother Mary was **pledged to be married** to Joseph, but **before they came together**, she was found to be with child through the Holy Spirit. Because **Joseph her <u>husband</u>** was a righteous man and did not want to expose her to public disgrace, he had in mind to [**divorce**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/divorce.html) her quietly. But after he had considered this, an angel of the Lord appeared to him in a [**dream**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/dreams.htm) and said, "Joseph son of David, do not be afraid to take **Mary home as <u>your wife</u>**, because what is conceived in her is from the Holy Spirit. She will give birth to a son, and you are to give him the name Jesus, because he will save his people from their sins." All this took place to fulfill what the Lord had said through the prophet: "**The [virgin](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/virginity-of-mary.html) will be with child** and will give birth to a son, and they will call him Immanuel" -which means, "God with us." When Joseph woke up, he did what the angel of the Lord had commanded him and took **Mary home as <u>his wife</u>**. But **he had no union with her <u>until</u> she gave birth to a son**. And he gave him the name Jesus. (Mat 1:18-25) 
-
-**Joseph was already Mary's _husband_ and he was wrongly contemplating _divorcing_ Mary because she became pregnant, _before_ they had sexual together.** 
+**[SEXUELLE VEREINIGUNG Kann Nicht der Zeitpunkt Der Heirat Sein](#point_of_marriage)** 
 
 
-## David and Bathsheba's Adulterous Sexual Union 
+## Zeitpunkt der Heirat Für Joseph und Maria
 
-2\. David committed **_adultery_** with Bathsheba. If they were married at the point of sexual union, **they couldn't have gotten married later, as they did, because they would have been married at that point**. However, the truth is, David **_married_** Bathsheba after her husband died and it was only at that point (sometime after their adultery) that she became his **_wife_**: 
-> **When Uriah's wife heard that her husband was dead, she mourned for him. After the time of mourning** was over, David had her brought to his house, and **<u>she became his wife</u>** and bore him a son. But the thing David had done displeased the LORD. (2 Sam 11:26,27) 
+1\. **Joseph und Maria waren verheiratet _bevor_ sie jemals Geschlechtsverkehr hatten.** Wir wissen dies, **da sie niemals Geschlechtsverkehr hatten bis _nachdem_ Jesus geboren worden war, dennoch waren sie trotzdem _verheiratet_**:
+> Die Geburt Jesu Christi aber war also: Als seine Mutter Maria mit Joseph **verlobt** war, **noch ehe sie zusammenkamen**, erfand sich's, daß sie empfangen hatte vom heiligen Geist. Aber **Joseph, ihr <u>Mann</u>**, der gerecht war und sie doch nicht an den Pranger stellen wollte, gedachte sie heimlich zu [**entlassen**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/divorce.html). Während er aber solches im Sinne hatte, siehe, da erschien ihm ein Engel des Herrn im [**Traum**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/dreams.htm), der sprach: Joseph, Sohn Davids, scheue dich nicht, **Maria, <u>dein Weib</u>**, zu dir zu nehmen; denn was in ihr erzeugt ist, das ist vom heiligen Geist. Sie wird aber einen Sohn gebären, und du sollst ihm den Namen Jesus geben; denn er wird sein Volk retten von ihren Sünden. Dieses alles aber ist geschehen, auf daß erfüllt würde, was von dem Herrn gesagt ist durch den Propheten, der da spricht: «Siehe, **die [Jungfrau](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/virginity-of-mary.html) wird empfangen** und einen Sohn gebären, und man wird ihm den Namen Emmanuel geben; das heißt übersetzt: Gott mit uns.» Als nun Joseph vom Schlaf erwachte, tat er, wie ihm der Engel des Herrn befohlen, und **nahm <u>sein Weib</u> zu sich** und **erkannte sie nicht, <u>bis</u> sie den Sohn geboren hatte;** und er gab ihm den Namen Jesus. (Matt 1:18-25, Schlachterbibel 1951)
 
-## Shechem and Dinah Had Sexual Union But Were NOT Married 
+**Joseph war bereits Marias _Ehemann_ und sinnte fälschlicherweise darüber nach, sich von Maria zu _scheiden_ da sie schwanger wurde, _bevor_ sie Geschlechtsverkehr miteinander hatten.**
 
-Shechem and Dinah, even though **they never actually got _married,_ did have sexual union:** 
-> Now **Dinah**, the daughter Leah had borne to Jacob, went out to visit the women of the land. When **Shechem** son of Hamor the Hivite, the ruler of that area, saw her, he took her and **violated her**. His heart was drawn to Dinah daughter of Jacob, and he loved the girl and spoke tenderly to her. And Shechem said to his father Hamor, "**Get me this girl as my wife**." (Gen 34:1-4) 
+
+## David und Batsebas Ehebrecherischer Geschlechtsverkehr
+
+2\. David beging **_Ehebruch_** mit Batseba. Falls sie verheiratet gewesen wären zum Zeitpunkt des Geschlechtsverkehrs, **so hätten sie später nicht heiraten können, wie sie es gemacht hatten, da sie zu jenem Zeitpunkt verheiratet gewesen wären**. Die Wahrheit ist hingegen, dass David Batseba **_heiratete_** nachdem ihr Ehemann starb und es war erst zu diesem Zeitpunkt (irgendwann nach ihrem Ehebruch), dass sie seine **_Frau_** wurde: 
+> **Und als das Weib Urijas hörte, daß Urija, ihr Mann, tot war, klagte sie um ihren Gatten. Als aber die Trauer vorüber war**, sandte David hin und nahm sie in sein Haus; und **<u>sie wurde sein Weib</u>** und gebar ihm einen Sohn. Aber die Sache, die David getan hatte, war übel in den Augen Jahwes. [= Missfiel dem HERRN] (2. Sam 11,26-27; elb1905)
+
+
+## Sichem und Dina hatten Geschlechtsverkehr, aber waren NICHT Verheiratet
+
+Sichem und Dina hatten Geschlechtsverkehr, obwohl sie **niemals wirklich _verheiratet_ wurden:**
+> Und **Dina**, die Tochter Leas, die sie dem Jakob geboren hatte, ging aus, die Töchter des Landes zu sehen. Und es sah sie **Sichem**, der Sohn Hemors, des Hewiters, des Fürsten des Landes, und er nahm sie und lag bei ihr und **schwächte sie** [=vergewaltigte sie]. Und seine Seele hing an Dina, der Tochter Jakobs, und er liebte das Mädchen und redete zum Herzen des Mädchens. Und Sichem sprach zu Hemor, seinem Vater, und sagte: **Nimm mir dieses Mädchen zum Weibe.** (1. Mose 34,1-4; elb1905)
+
 
 ## Salomos Frauen und Konkubinen
 
-3\. If sexual union was the _point of marriage_ then **there would never be a distinction between Solomon's wives and his _concubines_**, since **he had sexual union with both of them**. In other words, the concubines would also be his _wives:_ 
-> He had seven hundred **<u>wives</u>** of royal birth and three hundred **<u>concubines</u>**, and his wives led him astray. As **[Solomon](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/solomons-apostasy.html)** grew old, his wives turned his heart after other gods ... (1 Kings 11:3,4) 
+3\. Falls Geschlechtsverkehr der _Zeitpunkt der Heirat_ wäre, so **hätte es keine Unterscheidung zwischen Salomos Frauen und seinen _Konkubinen_ gegeben**, **da er mit beiden Geschlechtsverkehr hatte**. Mit andern Worten, die Konkubinen wären auch seine _Frauen:_
+> und zwar hatte er siebenhundert fürstliche **<u>Frauen</u>** und dreihundert **<u>Nebenweiber</u>**, und seine Frauen zogen sein Herz von dem HERRN ab. Als **[Salomo](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/solomons-apostasy.html)** nämlich alt geworden war, wandten seine Frauen sein Herz anderen Göttern zu, so dass sein Herz dem HERRN, seinem Gott, nicht mehr ungeteilt ergeben war wie das Herz seines Vaters David. (1. Könige 11,3-4; Menge)
 
-The same would hold true with all others who had both wives and concubines. 
+Dasselbe wäre wahr für alle andern, welche Frauen und Konkubinen hatten.
+
 
 ## Heirat _Vor_ Der Sexuellen Vereinigung
 
-4\. **Hagar (Sarai's maidservant) became Abraham's wife _before_ their sexual union** and **Ruth became the wife of Boaz _before_ their sexual union. That is more proof that the _point of marriage_ is NOT the point of sexual union. Here is the Biblical evidence:**
-> Now Sarai, Abram's wife, had borne him no children. But she had an Egyptian maidservant named Hagar; so she said to Abram, "The LORD has kept me from having children. Go, sleep with my maidservant; perhaps I can build a family through her." Abram agreed to what Sarai said. So after Abram had been living in Canaan ten years, Sarai his wife took her Egyptian maidservant Hagar and **gave her to her husband to be his <u>wife</u>. He <u>slept with Hagar</u>, and she conceived**. When she knew she was pregnant, she began to despise her mistress. (Gen 16:1-4) 
+4\. **Hagar (Sarai's Magd) wurde Abrams [Abraham hiess einst Abram] Frau _bevor_ sie Geschlechtsverkehr hatten** und **Ruth wurde die Frau von Boas _bevor_ sie Geschlechtsverkehr hatten. Dies ist mehr Beweis dafür, dass der _Zeitpunkt der Heirat_ NICHT der Zeitpunkt der sexuellen Vereinigung ist. Hier ist der biblische Nachweis:**
+> Und Sarai, Abrams Weib, gebar ihm nicht. Und sie hatte eine ägyptische Magd, und ihr Name war Hagar. Und Sarai sprach zu Abram: Siehe doch, Jahwe hat mich verschlossen, daß ich nicht gebäre; gehe doch ein zu meiner Magd, vielleicht werde ich aus ihr erbaut werden [dh. durch sie Nachkommen erhalten]. Und Abram hörte auf die Stimme Sarais. Und Sarai, Abrams Weib, nahm Hagar, die Ägypterin, ihre Magd, nach Verlauf von zehn Jahren, die Abram im Lande Kanaan gewohnt hatte, und **gab sie Abram, ihrem Manne, ihm zum <u>Weibe</u>. Und er ging zu Hagar ein, und sie ward schwanger**; und als sie sah, daß sie schwanger war, da wurde ihre Herrin gering in ihren Augen. (1. Mose 16,1-4; elb1905)
 
-So Boaz took Ruth and **she became his <u>wife</u>. Then he went to her**, and the LORD enabled her to conceive, and she gave birth to a son. (Ruth 4:13) 
+> Und Boas nahm Ruth, und **sie wurde sein <u>Weib</u>, und er ging zu ihr ein**; und Jahwe verlieh ihr Schwangerschaft und sie gebar einen Sohn. (Ruth 4,13; elb1905)
+
 
 ## Herodes und Herodias 
 
-5\. **Herod and Herodias had sexual union without a true marriage in God's eyes. Hence, they were in _adultery._** That is essentially why **[John the Baptist](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john_the_baptist.htm)** publicly rebuked them. She is always identified as **the wife of Herod's brother** because of her illegitimate remarriage, through a divorce, to Herod: 
-> But when John rebuked Herod the tetrarch because of **Herodias, his brother's wife**, and all the other evil things he had done (Luke 3:19) 
+5\. **Herodes und Herodias hatten Geschlechtsverkehr ohne eine wahre Ehe in Gottes Augen. Daher waren sie im _Ehebruch._** Dies ist im Wesentlichen der Grund, weshalb **[Johannes der Täufer](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john_the_baptist.htm)** sie öffentlich tadelte/zurechtwies. Sie wird immer als **die Frau von Herodes Bruder** identifiziert, aufgrund ihrer unrechtmässigen Heirat mit Herodes, durch eine Scheidung:
+> Der Vierfürst Herodes aber, da er von ihm [=Johannes] getadelt wurde wegen **Herodias, der Frau seines Bruders Philippus**, und wegen all des Bösen, was Herodes tat, (Luke 3,19; Schlachterbibel 1951)
 
-> For Herod himself had given orders to have John arrested, and he had him bound and put in prison. He did this because of **Herodias, his brother Philip's wife, whom he had married**. (Mark 6:17) 
+> Denn er, Herodes, hatte hingesandt und den Johannes greifen und ihn im Gefängnis binden lassen, **um der Herodias willen, des Weibes seines Bruders Philippus, weil er sie geheiratet hatte**. (Markus 6,17; elb1905)
 
-**Even though they were married _in the eyes of society_, they were _not_ married in God's eyes and were in _adultery_. If the point of sexual union would be the _point of marriage_ in God's sight, then there would never be the sin of _adultery_ (caused by sexual union) or the sin of _fornication_ (caused by sexual union). Furthermore, a _rape_ would constitute a marriage, if sexual union was the _point of marriage,_ which is never the case**: 
-> But Jonadab son of Shimeah, David's brother, said, "My lord should not think that they killed all the princes; only Amnon is dead. This has been Absalom's expressed intention ever since the day **Amnon raped his sister Tamar**. (2 Sam 13:32) 
+**Obwohl sie verheiratet waren _in den Augen der Gesellschaft_, waren sie _nicht_ verheiratet in Gottes Augen und waren im _Ehebruch_. Falls der Zeitpunkt der sexuellen Vereinigung in Gottes Augen der _Zeitpunkt der Heirat_ wäre, so gäbe es niemals die Sünde des _Ehebruches_ (verursacht durch sexuelle Vereinigung) oder die Sünde der _Unzucht_ (verursacht durch sexuelle Vereinigung). Des Weiteren würde _Vergewaltigung_ eine Ehe erzeugen, falls sexuelle Vereinigung der _Zeitpunkt der Hochzeit_ wäre, was niemals der Fall ist**:
+> Da hob Jonadab, der Sohn Simeas, des Bruders Davids, an und sprach: Mein Herr denke nicht, daß alle Jünglinge, die Söhne des Königs, tot seien; sondern Amnon allein ist tot; denn auf Absaloms Lippen lag ein Vorsatz seit dem Tage, **da jener seine Schwester vergewaltigt hatte**. (2. Sam 13,32; Schlachterbibel 1951)
 
-> David sent word to **Tamar** at the palace: "Go to the house of your brother **Amnon** and prepare some food for him." So Tamar went to the house of her brother Amnon, who was lying down. She took some dough, kneaded it, made the bread in his sight and baked it. Then she took the pan and served him the bread, but he refused to eat. "Send everyone out of here," Amnon said. So everyone left him. Then Amnon said to Tamar, "Bring the food here into my bedroom so I may eat from your hand." And Tamar took the bread she had prepared and brought it to her brother Amnon in his bedroom. **But when she took it to him to eat, he grabbed her and said, "Come to bed with me, my sister." "Don't, my brother!" she said to him. "Don't force me. Such a thing should not be done in Israel! Don't do this [wicked](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wicked-people-forgiven.html) thing. What about me? Where could I get rid of my disgrace? And what about you? You would be like one of the wicked fools in Israel. Please speak to the king; he will not keep me from being <u>married</u> to you." But he refused to listen to her, and since he was stronger than she, he raped her.** (2 Sam 13:7-14) 
+> Da sandte David zu **Thamar** ins Haus und ließ ihr sagen: „Gehe doch in die Wohnung deines Bruders **Amnon** und bereite ihm das Essen!“ So ging denn Thamar in die Wohnung ihres Bruders Amnon, während er zu Bett lag. Sie nahm den Teig, knetete ihn, formte Kuchen vor seinen Augen daraus und buk die Kuchen. Dann nahm sie die Pfanne und schüttete sie vor seinen Augen (auf einen Teller) aus; er weigerte sich jedoch zu essen und befahl, jedermann solle aus dem Zimmer hinausgehen. Als nun alle hinausgegangen waren, sagte Amnon zu Thamar: „Bringe mir das Essen in die Kammer herein, dann will ich von deiner Hand das Essen annehmen.“ Da nahm Thamar die Kuchen, die sie zubereitet hatte, und brachte sie ihrem Bruder Amnon in die Kammer hinein; **aber als sie ihm diese zum Essen hinreichte, ergriff er sie und sagte zu ihr: „Komm, lege dich zu mir, liebe Schwester!“ Sie erwiderte ihm: „Nicht doch, mein Bruder! Entehre mich nicht! So etwas darf in Israel nicht geschehen! Begehe keine solche [Schandtat](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wicked-people-forgiven.html)! Wohin sollte ich denn meine Schande tragen? Und du selbst würdest in Israel als ein ehrloser Mann dastehen! Rede doch lieber mit dem König: er wird mich dir gewiss nicht <u>versagen</u>.**[= verweigern, in Bezug auf zu Heiraten]**“ Aber er wollte nicht auf ihre Vorstellungen hören, sondern überwältigte sie und tat ihr Gewalt an.** [= vergewaltigte sie] (2.Sam 13,7-14; Menge)
 
 <a name="point_of_marriage"></a>
 ## Schlussgedanken zum Biblischen Zeitpunkt der Hochzeit
 
-- If one had to have sexual union to be married, then someone who couldn't physically have sexual union (such as old people or the handicapped) could _never_ be married in God's eyes. 
-- **There are three ways to commit _adultery_**: a) **actual sexual union with someone who is not your legitimate spouse**, b) **[lusting in your heart](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)** after another and c) **[entering into a so-called _marriage_ in the eyes of the world that is not recognized](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/divorce.html) as such by [God](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/almighty.html)**. 
+- Falls man Geschlechtsverkehr haben müsste um verheiratet zu sein, so könnte jemand der physisch nicht dazu in der Lage wäre, Geschlechtsverkehr zu haben (wie zB. ältere Leute oder Behinderte) _niemals_ in Gottes Augen verheiratet sein.
+- **Es gibt drei Wege, _Ehebruch_ zu begehen**: a) **wirklichen Geschlechtsverkehr haben mit jemandem, der nicht dein rechtmässiger Ehegatte ist**, b) nach jemand anderem **[in seinem Herzen begehren](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/lust.html)** und c) **[eine so-genannte _Ehe_ eingehen in den Augen der Welt, die als solche nicht anerkannt wird](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/divorce.html) von [Gott](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/almighty.html)**. 
 
-**Any form of adultery** (including pornography) will drag one to **_eternal fire_**, unless he repents (turns away from that sin) and gets forgiven. **This holds true even for people who were previously saved, as King David was, before he committed adultery and _[died spiritually](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)_ because of this sin (Ezek. 33:18; Rom. 8:13; Gal. 6:8,9; etc.). So, the point of sexual union is NOT the _point of marriage_, according to the Bible.** 
+**Jegliche Form des Ehebruches** (inklusive Pornografie) wird einen in das **_ewige Feuer_** ziehen, es sei denn, dass man Busse tut (sich von dieser Sünde abwendet) und man Vergebung bekommt. **Dies ist auch wahr für Leute, die zuvor gerettet wurden, wie König David es war, bevor er Ehebruch beging und _[geistlich starb](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)_ aufgrund dieser Sünde (Hes. 33,18; Röm. 8,13; Gal. 6,8-9; etc.). Der Zeitpunkt der sexuellen Vereinigung ist also laut der Bibel NICHT der _Zeitpunkt der Heirat_.** 
 
-![point of marraige 1 Cor. 6:16](../files/pictures/a-colorb.gif)
+![Zeitpunkt der Heirat 1. Kor. 6,16](../files/pictures/a-colorb.gif)
 
 **ANDERE THEMEN:** 
 - **[Christliche Singles und Christian Dating](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christiansingles.html)**
@@ -97,4 +102,4 @@ Washington, PA 15301
 EvangelicalOutreach.org  
 EternalLifeBlog.com
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)

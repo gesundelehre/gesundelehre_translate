@@ -1,4 +1,4 @@
-<!--t Bibelfragen im Bezug auf die Sicherheit der Errettung - in Arbeit (10% übersetzt) t-->
+<!--t Bibelfragen im Bezug auf die Sicherheit der Errettung - in Arbeit (91% übersetzt) t-->
 <!--d OSAS, UdH, Einmal Gerettet Immer Gerettet, Unverlierbarkeit des Heils, Eternal Security, ES, Ewige Sicherheit, Bedingte Sicherheit, DanCorner, Fragebogen, Abfall vom Glauben, Heilsgewissheit, Sicherheit des Heils, Heilssicherheit, Sicherheit der Errettung d-->
 
 Bibelfragen im Bezug auf die Sicherheit der Errettung
@@ -6,7 +6,7 @@ Bibelfragen im Bezug auf die Sicherheit der Errettung
 - - -
 - - -
 
-# Nachfolgend die Übersetzung der Datei von [evangelicaloutreach.org/question.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/question.htm) (In Arbeit - falls du mir helfen könntest kannst du mir hier auf [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegene-irrlehren/bibelfragen-in-bezug-auf-die-sicherheit-der-errettung.md) auf github helfen beim übersetzen helfen und anschliessend einen pull-request mit deinem übersetzungsvorschlag machen, anschliessend kann ich deine Übersetzung in diese Datei übernehmen)
+# Übersetzungsvorschläge können [hier](https://github.com/gesundelehre/gesundelehre_translate/blob/master/content/static/grundlegene-irrlehren/bibelfragen-in-bezug-auf-die-sicherheit-der-errettung.md) auf github gemacht werden.
 
 Quelle: [www.evangelicaloutreach.org/question.htm](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/question.htm)
 
@@ -67,19 +67,19 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 11\. War das physischer/körperlicher Tod? ___Ja ___Nein
 12\. Kann der Tod, den der verschwenderische Sohn erfuhr nur **[geistlicher Tod](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/spiritual-death.html)** sein, da er [der Tod] durch sexuelle Sünde kam und gleichgesetzt wird mit _verloren_ zu sein? Siehe auch Rom. 8,13\. ___Ja, es kann nur geistlicher Tod sein ___Nein, es muss nicht geistlicher Tod sein
 
-13\. Is it implied that the Prodigal was first spiritually alive before he became spiritually _dead_ and _lost_ through sin by the word **_again_** (Lk. 15:24,32)? ___Ja ___Nein
+13\. Durch das Wort **_wieder_** wird impliziert, dass der verschwenderische Sohn zunächst geistlich lebendig war, bevor er durch Sünde geistlich _tot_ und _verloren_ wurde (Lk. 15:24,32)? ___Ja ___Nein
 
-14\. Did anyone or anything pluck him out of the Father's hand as promised in **[Jn. 10:28](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john1028.html)**? ___Ja ___Nein
+14\. Riss jemand oder etwas ihn aus des Vaters Hand, wie versprochen in **[Joh. 10,28](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/john1028.html)**? ___Ja ___Nein
 
 15\. Setzte die Liebe, Treue und bewahrende Kraft des Vaters die Konsequenzen des sündhaften Verhaltens des verschwenderischen Sohnes ausser Kraft? ___Ja ___Nein
 
 16\. Liess der Vater ihn, aus seinem freien Willen, von ihm weggehen was zu seinem _toten_ und _verlorenen_ Zustand führte? ___Ja ___Nein
 
-17\. Is the promise of not being snatched out of Jesus' hand (Jn. 10:28) in reference only to those who are **following** Jesus, verse 27? ___Ja ___Nein
+17\. Bezieht sich das Versprechen, dass man nicht aus Jesu Hand gerissen wird (Joh 10,28) nur auf diejenigen, die Jesus **nachfolgen**, Vers 27? ___Ja ___Nein
 
-18\. Though the Prodigal Son was _sealed_ as a son, did that mean he was always saved, even when he was in sexual immorality? (See also 1 Cor. 6:9,10; Rev. 21:8; 22:15.) ___Ja ___Nein
+18\. Obwohl der verschwenderische Sohn als ein Sohn _versiegelt_ war, hiess das, dass er immer gerettet war, sogar als er in sexueller Unmoral war? (Siehe auch 1 Kor. 6,9-10; Off. 21,8; 22,15.) ___Ja ___Nein
 
-19\. Does the Bible say Christians are **[_sealed_ unto the day of redemption](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/seal.htm)** **or** _saved_ unto the day of redemption (Eph. 4:30)? ____Sealed_ unto the day ____Saved_ unto the day
+19\. Besagt die Bibel, dass Christen **[_versiegelt_ sind auf den Tag der Erlösung](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/seal.htm)** **oder** _gerettet_ sind auf den Tag der Erlösung (Eph. 4,30)? ___*Versiegelt* auf den Tag ___*Gerettet* auf den Tag
 
 20\. Can being _sealed_ unto the day of redemption be anabsolute guarantee of entering the kingdom of God im Lichte vom verschwenderischen Sohn, Demas, Judas und anderen, welche einst gerettet waren? ___Ja ___Nein
 
@@ -97,24 +97,24 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 25\. Die Redensarten "**[Einmal Erwählt Immer Erwählt](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)**" (Einmal Gerettet Immer Gerettet), "Einmal in Gnade Immer in Gnade" oder "Einmal ein Sohn Immer ein Sohn" sind keine tatsächlichen Zitate die sich **irgendwo** in der gesamten Bibel befinden. ___Wahr ___Falsch
 
-26\. According to 1 Cor. 6:9,10 and Rev. 21:8, are **all** drunkards, **all** the sexually immoral, **all** greedy and **all** liars categorically unsaved, regardless who they are with no exceptions? ___Ja ___Nein
+26\. Laut 1. Kor 6,9-10 und Off. 21,8, sind **alle** Trunkenbolde, **alle** sexuell Unmoralischen, **alle** Habgierigen und **alle** Lügner grundsätzlich ungerettet, ungeachtet davon, wer sie sind, ohne Ausnahme? ___Ja ___Nein
 
-27\. Are **all** homosexuals **unsaved**, according to **1 Cor. 6:9,10**; Rom. 1:27; Gen. 19:4,5 cf. Jude 7 and Lev. 20:13? ___Ja ___Nein
+27\. Sind **alle** Homosexuellen **unerrettet**, laut **1. Kor. 6,9-10**; Röm. 1,27; 1.Mose 19,4-5 vgl. Judas 7 und 3. Mose 20,13? ___Ja ___Nein
 
 28\. By simple definition, is a person _sexually immoral_ if he/she is presently sexually immoral, regardless of a past commitment to the Lord Jesus? ___Ja ___Nein
 
-29\. Is the implication that a sexually immoral person could possibly be a Christian a ramification of Einmal Gerettet Immer Gerettet? ___Ja ___Nein
+29\. Ist die Folgerung, dass eine sexuell unmoralische Person möglicherweise ein Christ sein könnte eine Verzweigung von Einmal Gerettet Immer Gerettet? ___Ja ___Nein
 
-30\. Is such an implication unscriptural (1 Cor. 6:9,10; Rev. 21:8)? ___Ja ___Nein
+30\. Ist solch eine Folgerung/Implikation unbiblisch (1 Kor. 6,9-10; Off. 21,8)? ___Ja ___Nein
 
-31\. If Einmal Gerettet Immer Gerettet was true, there would be saved sexually immoral people and unsaved sexually immoral people. In contrast, the Bible **only** mentions _the sexually immoral_ and states that such a person is _**[wicked](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wicked-people-forgiven.html)**,_ won't inherit the kingdom of God and will, therefore, be thrown into the lake of fire (1 Cor. 6:9,10; Gal. 5:19-21; 1 Thess. 4:7,8; **Rev. 21:8**). ___Wahr ___Falsch
+31\. Wenn Einmal Gerettet Immer Gerettet wahr wäre, dann gäbe es gerettete sexuell unmoralische Leute und unerettete sexuell unmoralische Leute. Im Kontrast dazu erwähnt die Bibel **nur** _die sexuell Unmoralischen** und besagt, dass solch eine Person [**_böse/ungerecht_**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/wicked-people-forgiven.html) ist, das Königreich Gottes nicht ererben wird, und daher in den Feuersee geworfen werden wird. (1 Kor. 6,9-10; Gal. 5,19-21; 1 Thess. 4,7-8; **Off. 21,8**). ___Wahr ___Falsch
 
-**(See Lk. 8:5-15 and Mt. 13:3-23 for #32 - #37)**
+**(Siehe Lk. 8,5-15 und Mt. 13,3-23 für #32 - #37)**
 
 
-32\. According to Jesus, do some people _believe for a while_ then cease believing (Lk. 8:13)? ___Ja ___Nein
+32\. Laut Jesus, _glauben_ einige Leute _eine Zeit lang_ und hören anschliessend auf zu glauben (Lk. 8,13)? ___Ja ___Nein
 
-33\. Is the _falling away_, which these same people experience in this parable, equated to the plant dying? ___Ja ___Nein
+33\. Ist das _Abfallen_, welches dieselben Leute erfahren in diesem Gleichnis, gleichgestellt mit dass die Pflanze stirbt? ___Ja ___Nein
 
 34\. Erzeugte ihr anfängliche Überzeugung (oder Glaube) Leben? ___Ja ___Nein
 
@@ -128,9 +128,9 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 39\. Als Saulus von Tarsus die Gemeinde verfolgte, wurde die Kirche durch diese Verfolgung zerstört oder aufgebaut (Apg 8,3)? ___Zerstört ___Aufgebaut
 
-40\. Sagte Jesus, dass _viele_ will turn away vom christlichen Glauben am Ende der Zeit auf Grund von Verfolgung (Mt. 24,9-10)? ___Ja ___Nein
+40\. Sagte Jesus, dass sich _viele_ vom christlichen Glauben am Ende der Zeit auf Grund von Verfolgung abwenden werden (Mt. 24,9-10)? ___Ja ___Nein
 
-41\. Does the **standing firm _to the end,_** as mentioned in Mt. 10:22, refer to disciples of Christ remaining faithful to Jesus during persecution, without disowning him? ___Ja ___Nein
+41\. Bezieht sich das **beharren _bis ans Ende_** wie in Mt. 10,22 erwähnt, auf dass Jünger Christi, Jesus während Verfolgung treu bleiben, ohne ihn zu verleugnen? ___Ja ___Nein
 
 42\. Lehrte der Herr Jesus oder ein Sektierer als Erster, "Wer aber beharrt bis ans Ende, der wird gerettet werden" (Mt. 10,22)? ___Der Herr Jesus ___Ein Sektierer
 
@@ -151,11 +151,11 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 49\. Wandten sie sich ab vom heiligen Gebot? ___Ja ___Nein
 
-50\. Were these people at one time _washed_ when they knew the way of righteousness and escaped the corruption of the world by knowing Jesus Christ? ___Ja ___Nein
+50\. Waren diese Leute einst _gewaschen_ als sie den Weg der Gerechtigkeit kannten und den Befleckungen der Welt entflohen waren durch die Erkenntnis von Jesus Christus? [Anm. Schwemme = Waschung] ___Ja ___Nein
 
 51\. Werden wir bei der Errettung in Jesu Blut _gewaschen_ (1 Kor. 6,11; Off. 7,14)? ___Ja ___Nein
 
-52\. Could the people Peter wrote of have been _washed_ in anything other than Jesus' blood? ___Ja ___Nein
+52\. Könnten diese Leute, von denen Petrus schrieb in irgend etwas anderem ausser Jesu Blut _gewaschen_ worden sein? ___Ja ___Nein
 
 53\. Verliessen dieselben Leute _den geraden/rechten Weg_ (2. Petr. 2,15), auch benannt als _der Weg der Gerechtigkeit_ in Vers 21?_ ___Ja ___Nein
 
@@ -171,11 +171,11 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 59\. Müssen wir an Paulus' Botschaft _festhalten_ damit wir gerettet werden und nicht vergeblich glauben (1 Kor. 15,2)? ___Ja ___Nein
 
-60\. Lehrte Jesus, dass Sünde always eine Person davon abhalten könnte, ins Königreich hineinzukommen (Mt. 13,41-42; Mk. 9,43-48; Jph. 5,29; Off. 2,10-11; 3,16)? ___Ja ___Nein
+60\. Lehrte Jesus, dass Sünde eine Person immer davon abhalten könnte, ins Königreich hineinzukommen (Mt. 13,41-42; Mk. 9,43-48; Jph. 5,29; Off. 2,10-11; 3,16)? ___Ja ___Nein
 
 61\. In den vorher erwähnten Stellen, begrenzte der Herr Sünde, welche uns davon abhalten würde, ins Königreich Gottes einzugehen auf _Unglauben?_ ___Ja ___Nein
 
-62\. Lehrte der Herr Jesus, "... **anyone** who says, you fool' will be **in danger of the fire of [Hölle](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html)**" (Mt. 5,22)? ___Ja ___Nein
+62\. Lehrte der Herr Jesus, "... **wer** aber sagt: Du Narr! **der ist des [höllischen Feuers](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/hell.html) schuldig**" (Mt. 5,22)? ___Ja ___Nein
 
 63\. Wenn Einmal Gerettet Immer Gerettet wahr wäre, könnte Jesus diese Wahrheit allen lehren, einschliesslich denen, die bereits gerettet sind? ___Ja ___Nein
 
@@ -183,15 +183,15 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 65\. Ist Sünde daher immer noch das Problem unter der Gnade des Neuen Bundes? ___Ja ___Nein
 
-66\. When Paul taught Gal. 5:19-21 did he know that "neither death nor life, neither angels nor demons, neither the present nor the future, nor any powers, neither height nor depth nor anything else in all creation" could separate the Galatian Christians from the love of God that is in Christ Jesus, as stated in Rom. 8:38,39? ___Ja, er wusste es ___Nein, er wusste es nicht
+66\. Als Paulus Gal 5,19-21 lehrte, wusste er, dass "weder Tod noch Leben, weder Engel noch Fürstentümer, noch Gewalten, weder Gegenwärtiges, noch Zukünftiges, weder Hohes noch Tiefes, noch irgend ein anderes Geschöpf" die galatischen Christen von der Liebe Gottes, die in Christo Jesu ist zu scheiden vermag, wie in Röm. 8,38-39 angeführt? ___Ja, er wusste es ___Nein, er wusste es nicht
 
-67\. Is it, therefore, possible that he understood Rom. 8:38,39 to mean a Christian is unconditionally and eternally secure in the light of Gal. 5:19-21? ___Ja ___Nein, da er sich selbst nicht widersprechen würde
+67\. Ist es daher möglich, dass er Röm 8,38-39 so verstand, dass es bedeutet, dass ein Christ bedingungslos und ewig sicher ist im Lichte von Gal. 5,19-21? ___Ja ___Nein, da er sich selbst nicht widersprechen würde
 
 68\. War Paulus ein _Gnaden_lehrer im wahrsten Sinne? ___Ja ___Nein
 
 69\. Kämpfte Paulus gegen Gesetzlichkeit (Gal. 5,2-4)? ___Ja ___Nein
 
-70\. Could such a warning as issued in Gal. 5:21 be legalistic if it was similarly spoken directly to real Christians today? ___Ja ___Nein
+70\. Könnte solch eine Warnung wie in Gal. 5,21 ausgesprochen ist, legalistisch/gesetzlich sein, wenn es in ähnlicher Weise direkt zu wahren Christen heutzutage gesagt würde? ___Ja ___Nein
 
 71\. Widersprach Paulus seiner _Freiheit_-in-Christus-Botschaft indem er Gal. 5,19-21 lehrte? ___Ja ___Nein
 
@@ -199,7 +199,7 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 73\. Does it follow then, if someone teaches a _freedom_ or liberty message that allows for an occasional getting drunk or act of sexual immorality, that he is teaching falsely and should be openly refuted? ___Ja ___Nein
 
-74\. Does the true Biblical grace or liberty message mean: You believe on Christ, then go do whatever you want? ___Ja ___Nein
+74\. Besagt die wahre biblische Gnade und Botschaft der Freiheit: Glaube an Christus, und gehe anschliessend das tun, was auch immer du willst? ___Ja ___Nein
 
 75\. Sind Gottes Gebote _schwer_ (1 Joh. 5,3)? ___Ja ___Nein
 
@@ -217,11 +217,11 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 82\. Ist dies eine **Unmöglichkeit** für sie, solches zu tun? ___Ja ___Nein
 
-83\. Doesn't that prove that Paul's teaching about grace, sin and the like is different than the Einmal Gerettet Immer Gerettet message, since they can't possibly warn as Paul did in Gal. 5:19-21? ___Ja ___Nein
+83\. Beweist die nicht, dass Paulus' Lehre über Gnade, Sünde und desgleichen anders ist als die Einmal Gerettet Immer Gerettet Botschaft, da sie unmöglich warnen können wie Paulus es tat in Gal. 5,19-21? ___Ja ___Nein
 
 84\. Though a **warning** is alarming when we first hear it, it **is always advantageous** to be warned, because it alerts us to a real danger. Regarding this advantage, aren't all people who listen to Einmal Gerettet Immer Gerettet teaching at a major spiritual disadvantage, for this type of warning of not inheriting the kingdom of God will **never** be issued to a Christian and will even be flatly denied? ___Ja ___Nein
 
-85\. The Apostle Paul wrote, "This righteousness from God comes through faith in Jesus Christ to all who **believe**," Rom. 3:22\. Das Griechische sagt aus, dass das Wort _glauben_ hier in einer **fortdauernden Zeitform** gebraucht ist. Wenn jemand nicht fortfährt in seinem Glauben, würde er dann diese Gott-gegebene Veraussetzung für endgültige Errettung erfüllen? ___Ja ___Nein
+85\. Der Apostel Paulus schrieb, "This righteousness from God comes through faith in Jesus Christ to all who **believe**," Rom. 3:22\. Das Griechische sagt aus, dass das Wort _glauben_ hier in einer **fortdauernden Zeitform** gebraucht ist. Wenn jemand nicht fortfährt in seinem Glauben, würde er dann diese Gott-gegebene Veraussetzung für endgültige Errettung erfüllen? ___Ja ___Nein
 
 86\. Glaubte Paulus, dass ein wahrer Christ _aus der Gnade fallen_ könnte (Gal. 5,4)? ___Ja ___Nein
 
@@ -257,7 +257,7 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 102\. Da Timotheus wirklich gerettet war, glaubte Paulus, dass ein Christ machen könnte, dass er an seinem eigenen Glauben _Schiffbruch erleiden_ könnte? ___Ja ___Nein
 
-103\. Paulus war in einem _Schiffbruch_ auf seinem Weg zu Rom (Acts 27:27-44). The ship he was in was broken to pieces (vv. 41,44). Die Folgerung ist, dieses Schiff war jenseits der Wiederherstellung. Paulus benutzte dieselbe Art von Bezeichnung, um zu beschreiben was möglicherweise dem Glauben eines wahren Christen wie Timotheus geschehen könnte. ___Wahr ___Falsch
+103\. Paulus war in einem _Schiffbruch_ auf seinem Weg zu Rom (Acts 27:27-44). Das Schiff in welchem er war, wurde in Stücke zerbrochen (siehe 41 u. 44). Die Folgerung ist, dieses Schiff war jenseits der Wiederherstellung. Paulus benutzte dieselbe Art von Bezeichnung, um zu beschreiben was möglicherweise dem Glauben eines wahren Christen wie Timotheus geschehen könnte. ___Wahr ___Falsch
 
 104\. Lehrte Paulus, dass Hymenäus und Alexander offensichtlich überhaupt nie richtig gerettet gewesen waren, da sie _Schiffbruch_ am Glauben erlitten hatten? ___Ja ___Nein
 
@@ -285,17 +285,17 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 116\. Könnte Paulus Einmal Gerettet Immer Gerettet gelehrt haben - basierend auf der Möglichkeit eines _jungen Bekehrten_, in die Hölle zu kommen? ___Ja ___Nein
 
-117\. Did Paul believe the seal of the Holy Spirit would prevent such a new convert, as mentioned in 1 Tim. 3:6, from falling under the same condemnation as the devil? ___Ja ___Nein
+117\. Glaubte Paulus, dass das seal des Heiligen Geistes solch einen jungen Bekehrten daran hindern würde, wie erwähnt in 1 Tim. 3:6, from falling under the same condemnation as the devil? ___Ja ___Nein
 
-118\. Glaubte Paulus, dass **[God's sovereignty](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Godswill.htm)**, love, faithfulness or keeping power for that convert would prevent him from falling under the same condemnation as the devil? ___Ja ___Nein
+118\. Glaubte Paulus, dass **[Gottes Souveränität](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/Godswill.htm)**, Liebe, Treue oder bewahrende Kraft für diesen Bekehrten ihn hindern würde from falling under the same condemnation as the devil? ___Ja ___Nein
 
-119\. Glaubte Paulus, dass Jesu' intercession, wie in Heb. 7,25 erwähnt, would prevent the _recent convert_ from falling under the condemnation of the devil? ___Ja ___Nein
+119\. Glaubte Paulus, dass Jesu' intercession, wie in Heb. 7,25 erwähnt, den _frisch Bekehrten_ hindern würde, from falling under the condemnation of the devil? ___Ja ___Nein
 
 120\. Glaubte Paulus, dass weil der neue Bekehrte/Gläubige einer der Auserwählten war, er unmöglich unter die Verdammung/das Gericht des Teufels fallen könnte? ___Ja ___Nein
 
 121\. Lehrte Jesus, dass **fruchtlose Christen in Gefahr sind, "ins Feuer geworfen und verbrannt" zu werden (Joh. 15,1-<u>6</u>)?** ___Ja ___Nein
 
-122\. Could the subjects of verse 6 be only Christians, since they were _clean_ (v. 3), which is the same term used in Jn. 13:10 for forgiven? ___Ja ___Nein
+122\. Könnten die Subjekte von Vers 6 nur Christen sein, da sie _rein_ waren  (V. 3), was derselbe Begriff ist, der in Joh 13,10 benutzt wird für vergeben/verziehen? ___Ja ___Nein
 
 123\. Lehrte Jesus, dass **lauwarme Christen in Gefahr stehen, aus dem Körper Christi ausgespien zu werden (Off. 3,15-16)**? ___Ja ___Nein
 
@@ -305,11 +305,11 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 126\. Muss daher ein Christ getreu sein bis zum Tod, um dem Feuersee zu entfliehen? ___Ja ___Nein
 
-127\. **All who inherit the kingdom of God receive the crown of life**. We know this since the crown of life is promised to those who truly love God (Jam. 1:12) and those who truly love God will inherit the kingdom of God (Jam. 2:5). The crown of life is, therefore, not something that only some Christians will receive, as taught by the Einmal Gerettet Immer Gerettet teachers. ___Wahr ___Falsch
+127\. **Alle die das Königreich Gottes ererben werden, erhalten die Krone des Lebens**. Wir wissen dies, da die Krone des Lebens denen versprochen ist, die Gott lieben (Jak. 1,12) und jene, die Gott lieben das Königreich Gottes ererben werden (Jak. 2,5). Die Krone des Lebens ist daher nicht etwas, was nur einige Christen empfangen werden, wie von den Einmal Gerettet Immer Gerettet Lehrern gelehrt wird. ___Wahr ___Falsch
 
 128\. Da wir bist zum Tod getreu sein müssen, um die Krone des Lebens zu bekommen, müssen wir auch getreu bis zum Tod sein, um ein _Überwinder_ zu sein und das Königreich Gottes zu ererben. ___Wahr ___Falsch
 
-129\. Lehrte der Herr Jesus, dass ****[Unveröhnlichkeit](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/forgive.html)** im Herzen eines Christen seine eigene Vergebung von Gott negieren kann (Mt. 18,21-35)**? ___Ja ___Nein
+129\. Lehrte der Herr Jesus, dass ****[Unversöhnlichkeit](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/forgive.html)** im Herzen eines Christen seine eigene Vergebung von Gott negieren kann (Mt. 18,21-35)**? ___Ja ___Nein
 
 130\. Sollten wir dieser Lehre von Jesus nur geringen Wert beimessen, auf der Basis dessen, da sie vor dem Kreuz gegeben wurde? ___Ja ___Nein
 
@@ -332,12 +332,12 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 138\. Obwohl einige Einmal Gerettet Immer Gerettet Befürworter heutzutage sagen würden, dass wenn du Christus jemals _verleugnen_ würdest, dass man dadurch beweisen würde, dass man überhaupt nie richtig gerettet war, wird das nicht ganz klar von dem, was Petrus geschah widerlegt? ___Ja ___Nein
 
-139\. Did Jesus give that threat/warning of disowning his disciples in Mt. 10:33 if they would disown him for some hidden reason, or because it was a real danger that could befall even the truly saved? ___Hidden reason ___Real danger for the truly saved
+139\. Gab Jesus diese Drohung/Warnung des Verleugnens in Mt. 10,33 seinen Jüngern, falls sie ihn verleugnen würden, aus einem verborgenen Grund, oder weil es eine wirkliche Gefahr war, die sogar den wirklich Geretteten widerfahren könnte? ___Verborgener Grund ___Wirkliche Gefahr für die wirklich Geretteten
 
 140\. Lehrte Paulus dieselbe Wahrheit andern, wie Jesus es in Mt. 10,33 tat
 (2 Tim. 2,12)? ___Ja ___Nein
 
-141\. The _if_ used in 2 Tim. 2:12 shows a real possibility of such occurring. ___Wahr ___Falsch
+141\. Dass _wenn_ welches in 2 Tim. 2,12 gebraucht wird, zeigt eine wirkliche Möglichkeit, dass solches geschehen könnte. ___Wahr ___Falsch
 
 142\. Ist Gott treu gegenüber seinen Drohungen und Warnungen (2 Tim. 2,13)? ___Ja ___Nein
 
@@ -345,9 +345,9 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 144\. Wusste Paulus, dass Jesus Mt. 10,33 vor dem Kreuz gab? ___Ja ___Nein
 
-145\. Did Paul want Christians to **_be afraid_ **regarding their spiritual relationship with God (Rom. 11:20,21)? ___Ja ___Nein
+145\. Wollte Paulus, dass Christen **_sich fürchten_** um ihre geistliche Beziehung mit Gott (Röm. 11,20-21)? ___Ja ___Nein
 
-146\. Könnte er versucht haben, unberechtigte Angst in ihnen erzeugen? ___Ja ___Nein
+146\. Könnte er versucht haben, unberechtigte Angst in ihnen schüren? ___Ja ___Nein
 
 147\. Ist man entweder in dieser gesunden Furcht oder in einer gefährlichen _Arroganz_ bezüglich seiner Sicherheit (Rom. 11,20-23)? ___Ja ___Nein
 
@@ -361,54 +361,54 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 152\. Kann Sünde den wahren Christen von Gott trennen bis zum Punkt, da er geistlich **stirbt** und das Königreich Gottes versäumt (Röm. 8,13; Lk. 15,24-32; Gal. 5,19-21; 6,8)? ___Ja ___Nein
 
-153\. Paul declared that if a Christian lives according to the sinful nature he will definitely **_die_ **(Rom. 8:13). Can this death be physical death, which would imply that if we would not live according to the sinful nature we would not _die_ physically? ___Ja, it's physical death ___Nein, it can't be physical death
+153\. Paulus verkündete, dass wenn ein Christ nach dem Fleisch lebt, so wird er sicherlich **_sterben_** (Röm. 8,13). Kann dieser Tod physischer Tod sein, was bedeuten würde, dass wenn wir nicht nach dem Fleisch leben würden, wir nicht physisch _sterben_ würden? ___Ja, es ist physischer Tod ___Nein, es kann nicht physischer Tod sein
 
-154\. Muss das **sterben** in Röm. 8,13 geistlicher Tod sein, da es ein direktes Resultat von Sünde ist und zeigt, was dem verlorenen Sohn geschahf, der geistlich starb (Lk. 15,24-32)? ___Ja ___Nein
+154\. Muss das **sterben** in Röm. 8,13 geistlicher Tod sein, da es ein direktes Resultat von Sünde ist und zeigt, was dem verlorenen Sohn geschah, der geistlich starb (Lk. 15,24-32)? ___Ja ___Nein
 
 155\. Ist es möglich, geistlich zu _sterben_ wenn man zuerst nie geistlich lebendig war? ___Ja ___Nein
 
 156\. Lehrt die Bibel menschliche Verantwortung für den Christen unter wahrer Gnade (Kol. 3,5; 1 Tim. 5,22; 1. Pet. 2,1; 1 Joh. 5,21; etc.)? ___Ja ___Nein
 
-157\. Can such a teaching regarding human responsibility be a violation to true grace? ___Ja ___Nein
+157\. Kann solch eine Lehre bezüglich menschlicher Verantwortung eine Missachtung wahrer Gnade sein? ___Ja ___Nein
 
 158\. Sagte Jesus, dass wir seine Gebote **befolgen** müssen, um in seiner Liebe zu bleiben (Joh. 15:10)? ___Ja ___Nein
 
-159\. Heb. 5:9 reads, "... he became the source of eternal salvation for all who obey him." **[Eternal salvation](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/getsaved.html)** is given to those who _obey_ God. ___Wahr ___Falsch
+159\. Heb. 5:9 besagt: "und so zur Vollendung gelangt, ist er allen, die ihm gehorchen, der Urheber ewigen Heils geworden," **[Ewiges Heil](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/getsaved.html)** ist all denen gegeben, die Gott _gehorchen_. ___Wahr ___Falsch
 
-160\. **The _unbelieving_ are not the only ones who will end up in the lake of fire (Rev. 21:8).** ___Wahr ___Falsch
+160\. **Die _Ungläubigen_ sind nicht die Einzigen, die im Feuersee landen werden (Off. 21,8).** ___Wahr ___Falsch
 
-161\. Die Bibel endet mit einer Warnung an Christen, dass ihr Anteil in the holy city (Neues Jerusalem) möglicherweise entfernt werden kann (Off. 22,18-19). ___Wahr ___Falsch
+161\. Die Bibel endet mit einer Warnung an Christen, dass ihr Anteil an der heiligen Stadt (Neues Jerusalem) möglicherweise entfernt werden kann (Off. 22,18-19). ___Wahr ___Falsch
 
-162\. If such were an impossibility, this warning would be false and, therefore, the Bible would contain a form of deception. ___Wahr ___Falsch
+162\. Falls dies eine Unmöglichkeit wäre, so wäre diese Warnung unwahr und die Bibel würde daher eine Form von Täuschung enthalten. ___Wahr ___Falsch
 
 163\. Wenn Off. 22,19 eine gültige Warnung ist, kann dann Einmal Gerettet Immer Gerettet wahr sein? ___Ja ___Nein
 
-164\. If a Christian during the reign of the Antichrist yields to the heavy pressure of the time and receives the **[mark of the beast](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/markbeast.html)** and worships his image, what will be his/her eternal future state (Rev. 14:9-12)? ______________________________________________________
+164\. Falls ein Christ während der Herrschaft des Antichristen dem starken Druck der Zeit nachgibt und das **[Malzeichen des Tieres](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/markbeast.html)** annimmt und sein Bild anbetet, was wird sein ewiger zukünftiger Zustand sein (Off. 14,9-12)? ______________________________________________________
 
 165\. Widerlegt diese Stelle Einmal Gerettet Immer Gerettet? ___Ja ___Nein
 
-166\. If a Christian sows to please his sinful nature, will he reap **destruction** as opposed to eternal life (Gal. 6:8, NIV)? ___Ja ___Nein
+166\. Falls ein Christ auf das Fleisch sät, wird er **Verderben** entgegengesetzt dem ewigen Leben ernten (Gal. 6,8)? ___Ja ___Nein
 
-167\. While eternal life, for a Christian, is a present possession (1 Jn. 5:12,13), is eternal life also a _hope_ (Titus 3:7), yet to be reaped (Gal. 6:8,9) in the age to come (Mk. 10:30) for only those who persist in doing good (Rom. 2:7) and don't grow weary and give up (Gal. 6:9)? ___Ja ___Nein
+167\. Obwohl ewiges Leben für den Christen ein gegenwärtiger Besitz ist (1 Joh. 5,12-13), ist ewiges Leben auch eine _Hoffnung_ (Titus 3,7), welche noch zu Ernten ist (Gal. 6,8-9) im zukünftigen Zeitalter (Mk. 10:30) und nur für diejenigen, welche beharren im Tun des Guten (Rom. 2,7) und nicht ermatten und aufgeben (Gal. 6,9)? ___Ja ___Nein
 
-168\. Must a real, Bible-defined Christian **"hold firmly till the end"** the confidence he had at first to share in Christ (Heb. 3:14)? ___Ja ___Nein
+168\. Muss ein wahrer, Bibel-definierter Christ die anfängliche Zuversicht **"bis ans Ende standhaft festbehalten"** um Christi Genosse zu sein (Heb. 3,14)? ___Ja ___Nein
 
 169\. Verkünden Einmal Gerettet Immer Gerettet Lehrer offen diese wichtige Wahrheit? ___Ja ___Nein
 
 170\. Widersprechen Verse wie Heb 3,14 der Einmal Gerettet Immer Gerettet Lehre? ___Ja ___Nein
 
-171\. Did Paul, the true grace teacher, write: "Don't you know that when you offer yourselves to someone to obey him as slaves, you are slaves to the one whom you obey -- whether you are slaves to sin, which leads to **death**, or to **[obedience](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/obey.html)**, which leads to righteousness?" (Rom. 6:16). ___Ja ___Nein
+171\. Schrieb Paulus, der wahre Gnadenlehrer: "Wisset ihr nicht: wem ihr euch als Knechte hingebet, ihm zu gehorchen, dessen Knechte seid ihr und müßt ihm gehorchen, es sei der Sünde zum **Tode**, oder dem [**Gehorsam**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/obey.html) zur Gerechtigkeit?" (Rom 6:16, Schlachterbibel 1951). ___Ja ___Nein
 
-172\. **Fördert wahre Gnadenlehre heiliges Leben** (Titus 2:11,12)? ___Ja ___Nein
+172\. **Fördert wahre Gnadenlehre heiliges Leben** (Titus 2,11-12)? ___Ja ___Nein
 
 173\. Andererseits, kann die falsche Gnadenlehre Unmoral fördern? (Judas 4)? ___Ja ___Nein
 
-174\. **In your opinion, is holy living or immorality promoted by the Einmal Gerettet Immer Gerettet teachings that go out across the United States? ___Holy living ___Immorality**
+174\. **Deiner Meinung nach, wird heiliges Leben oder Unmoral von den Einmal Gerettet Immer Gerettet Lehren gefördert, die in den Vereinigten Staaten verbreitet werden? ___Heiliges Leben ___Unmoral**
 
 
-175\. **In your opinion, is holy living or immorality promoted by the teaching that [David's sins](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/king-david-sinned.html) of adultery and murder did not negate his salvation? ___Holy living ___Immorality**
+175\. **Deiner Meinung nach, wird heiliges Leben oder Unmoral gefördert durch die Lehre, dass [Davids Sünden](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/king-david-sinned.html) des Ehebruches und Mord seine Errettung nicht negierten? ___Heiliges Leben ___Unmoral**
 
-176\. In your opinion, is holy living or immorality promoted by the teaching under Einmal Gerettet Immer Gerettet that if a formerly saved person commits **[suicide](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/suicide.html)**, he will go to heaven? ___Holy living ___Immorality
+176\. Deiner Meinung nach, wird heiliges Leben oder Unmoral gefördert durch die Lehre unter Einmal Gerettet Immer Gerettet dass wenn eine einst gerettete Person [**Suizid/Selbstmord**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/suicide.html) begeht, sie dann in den Himmel kommt? ___Heiliges Leben ___Unmoral
 
 177\. Ist Suizid wirklich vorsätzlicher Selbst-Mord wovon man nicht Busse tun kann? ___Ja ___Nein
 
@@ -416,23 +416,23 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 179\. Ist es möglich für ein Suizid-Opfer in den Himmel zu kommen? ___Ja ___Nein
 
-180\. Do some Einmal Gerettet Immer Gerettet teachers openly declare the possibility of a **[Christian](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian.html)** being an **[alcoholic](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/drunk.html)**? ___Ja ___Nein
+180\. Verkünden einige Einmal Gerettet Immer Gerettet Lehrer offen die Möglichkeit, dass ein **[Christ](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/christian.html)** ein **[Alkoholiker](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/drunk.html)** sein kann? ___Ja ___Nein
 
 181\. Ist das eine Lizenz für Unmoral? ___Ja ___Nein
 
-182\. If one denies that a particular teaching is a license for immorality, does that mean it is not a license for immorality? ___Ja ___Nein
+182\. Falls jemand verleugnet, dass eine bestimmte Lehre eine Lizenz für Unmoral ist, heisst das, dass es dann keine Lizenz für Unmoral ist? ___Ja ___Nein
 
 183\. Ist die Sichtweise, dass Davids Sünde seine Errettung/sein Heil nicht negierte [_engl. negate] ein Teil der Einmal Gerettet Immer Gerettet Lehre? ___Ja ___Nein
 
-184\. Sometimes some of the more moderate Einmal Gerettet Immer Gerettet proponents unwittingly imply that David was **never really saved**, since he committed sins of adultery and murder. ___Wahr ___Falsch
+184\. Manchmal implizieren einige der gemässigteren Einmal Gerettet Immer Gerettet Befürworter unabsichtlich, dass David **überhaupt nie gerettet** war, da er Sünden des Ehebruchs und Mordes beging. ___Wahr ___Falsch
 
 185\. Kann eine wirklich gerettete Person anschliessend ein Götzendiener werden (1 Kor. 10,7)? ___Ja ___Nein
 
 186\. Werden alle Götzendiener im Feuersee landen (Off. 21,8)? ___Ja ___Nein
 
-187\. Can Einmal Gerettet Immer Gerettet be true since people once saved can afterwards become idolaters and end up in the lake of fire? ___Ja ___Nein
+187\. Kann Einmal Gerettet Immer Gerettet wahr sein, da Leute die einst gerettet waren anschliessend Götzendiener werden und in den Feuersee kommen können? ___Ja ___Nein
 
-188\. Were the Lord's disciples first called _Christians_ at Antioch (Acts 11:26)? ___Ja ___Nein
+188\. Wurden die Jünger des Herrn zuerst in Antiochien _Christen_ genannt (Apg 11,26)? ___Ja ___Nein
 
 189\. Sind _Jünger_ von Jesus gerettet (Mt. 12,49-50; Lk. 14,26-33)? ___Ja ___Nein
 
@@ -446,42 +446,42 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 194\. Kam Judas in die Hölle, nachdem er Suizid begangen hatte (Mk. 14,21; Joh. 17,12)? ___Ja ___Nein
 
-195\. If Judas was never saved to begin with, how was he chosen by Jesus to hold the highest office in the church, that of _apostle_ (Lk. 6:12-16 cf. 1 Cor. 12:28)? ___He was obviously saved ___I don't know
+195\. Falls Judas überhaupt nie gerettet gewesen wäre, wie wurde er von Jesus auserwählt, um das höchste Amt in der Gemeinde, das eines _Apostels_ zu führen (Lk. 6,12-16 vgl. 1 Kor. 12,28)? ___Er war offensichtlich gerettet ___Ich weisse es nicht
 
-196\. Since Judas was once saved, but afterwards betrayed Jesus and went to hell after his death, can Einmal Gerettet Immer Gerettet be true, since it only takes one Scriptural example of a person ever saved who later becomes unsaved to disprove Einmal Gerettet Immer Gerettet? ___Ja ___Nein
+196\. Da Judas einst gerettet war, aber nachher Jesus verriet und nach seinem Tod in die Hölle kam, kann Einmal Gerettet Immer Gerettet wahr sein, da es nur ein biblisches Beispiel einer Person braucht, die jemals gerettet war und anschliessend ungerettet wurde, um Einmal Gerettet Immer Gerettet zu widerlegen? ___Ja ___Nein
 
-## [More Bible Questions and Truth Which Exposes The Eternal Security Myth](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)
+## [Mehr Bibelfragen und Wahrheiten Welche Den Ewigen-Sicherheits-Mythos Entlarven](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)
 
 
 197\. Wird man ein _Mörder_ durch einen einzigen Akt des Mordes (4. Mose 35,16)? ___Ja ___Nein
 
 198\. Gibt es eine Haftungsausschluss-Klausel für eine Person die vormals gerettet war in 4. Mose 35,16 oder irgendwo sonst in der Bibel? ___Ja ___Nein
 
-199\. In the natural, we as heirs receive our inheritance when the giver dies. This, however, is not so in the spiritual! To receive our inheritance of the kingdom we must _overcome_ (Rev. 21:7). ___Wahr ___Falsch
+199\. Im Natürlichen, bekommen wir als Erben unsere Erbschaft, wenn der Geber stirbt. Dies ist jedoch nicht so im geistlichen! Um unser Erbe des Königreichs zu bekommen, müssen wir _überwinden_ (Off. 21,7). ___Wahr ___Falsch
 
-200\. Totally unlike in the natural, when a person gets saved he changes his spiritual family and ceases being a child of the devil. In light of this truth, is it safe to reason from the natural to the spiritual as frequently done by Einmal Gerettet Immer Gerettet proponents? ___Ja ___Nein
+200\. Vollkommen verschieden vom Natürlichen, wenn eine Person gerettet wird, ändert sie ihre geistliche Familie und hört auf, ein Kind des Teufels zu sein. Im Lichte dieser Wahrheit, ist es gefahrlos, vom Natürlichen zum Geistlichen zu argumentieren, wie häufig von Befürwortern von Einmal Gerettet Immer Gerettet gemacht wird? ___Ja ___Nein
 
-201\. The Apostle Paul wrote: "See to it that no one takes you captive through hollow and deceptive philosophy, **which depends on human tradition and the basic principles of this world rather than on Christ**" (Col. 2:8). Can it be misleading, then, to reason from the _principles of this world_ such as is frequently done by Einmal Gerettet Immer Gerettet teachers? ___Ja ___Nein
+201\. Der Apostel Paulus schrieb: "​Sehet zu, dass euch niemand beraube durch die Philosophie und leeren Betrug, **nach der Ueberlieferung der Menschen, nach den Grundsätzen der Welt und nicht nach Christo.**" (Kol 2,8; Schlachter 1905). Kann es folglich irreführend sein, von den _Grundsätzen der Welt_ zu argumentieren, wie solches häufig von Einmal Gerettet Immer Gerettet Lehrern getan wird? ___Ja ___Nein
 
 202\. Wenn "Einmal ein Sohn Immer ein Sohn" geistlich einwandfrei wäre, wäre es dann unmöglich, gerettet zu werden, da alle unerretteten Leute _Söhne des Bösen sind_ (Mt. 13,38)? ___Ja ___Nein
 
-203\. Kann Einmal Gerettet Immer Gerettet in either of its two forms wahr sein? ___Ja ___Nein
+203\. Kann Einmal Gerettet Immer Gerettet in irgendeiner seiner zwei Formen wahr sein? ___Ja ___Nein
 
-204\. Is Einmal Gerettet Immer Gerettet a _glorious truth_ as some call it, or a myth that promotes unholy living and that needs to be boldly addressed and openly refuted as never before? ___Glorious truth ___Myth that promotes unholy living and that needs to be boldly addressed and openly refuted as never before.
+204\. Ist Einmal Gerettet Immer Gerettet eine _glorreiche Wahrheit_ wie einige es nennen, oder ein Mythos, der unheiliges Leben fördert und mutig angesprochen und offen wie nie zu vor widerlegt werden muss? ___Glorreiche Wahrheit ___Mythos, der unheiliges Leben fördert und mutig angesprochen und offen wie nie zu vor widerlegt werden muss
 
-205\. The Apostle John wrote, "This is how we **know** who the children of God are and who the children of the devil are: Anyone who does not do what is right is not a child of God; nor is anyone who does not love his brother" (1 Jn. 3:10). According to true grace teaching, is it possible for us to _know_ who the Christians are and who the unsaved are **by their behavior**? ___Ja ___Nein
+205\. Der Apostel Johannes schrieb: "Daran sind die Kinder Gottes und die Kinder des Teufels **offenbar**: Wer nicht Gerechtigkeit übt, der ist nicht von Gott, und wer nicht seinen Bruder liebt." (1John 3,10; Schlachter 1905). Laut wahrer Gnadenlehre, ist es für uns möglich, **aufgrund ihrem Verhalten** zu _wissen_ wer die Christen sind und wer die Ungeretteten sind? ___Ja ___Nein
 
 206\. Gibt es wahrnehmbaren Beweise für rettende Gnade (Apg 11,23)? ___Ja ___Nein
 
 207\. If one accepts Einmal Gerettet Immer Gerettet, is this ability to know one's spiritual family through behavior denied by the Einmal Gerettet Immer Gerettet _carnal Christian_ teaching that a _**[carnal Christian](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/antinomianism.htm)**_ lives indistinguishably from a lost person? ___Ja ___Nein
 
-208\. Since 1 Jn. 3:10 (and other verses) teach that we can know if one is saved or not by one's behavior, but this is flatly denied by Einmal Gerettet Immer Gerettet teaching, **is it possible for Einmal Gerettet Immer Gerettet to be from the same spiritual source as 1 Jn. 3:10 and these other Scriptures**? ___Ja ___Nein
+208\. Da 1 Joh. 3,10 (und andere Verse) lehren, dass wir von jemandem durch sein Verhalten wissen können, ob er gerettet ist oder nicht, aber dies von der Einmal Gerettet Immer Gerettet Lehre entschieden verleugnet wird, **ist es daher für Einmal Gerettet Immer Gerettet möglich, von derselben geistlichen Quelle zu sein wie 1 Joh. 3,10 und diese anderen Bibelstellenyy**? ___Ja ___Nein
 
 209\. Die allererste Botschaft, welche nach Adams Schöpfung gelehrt wurde war, dass wir **nicht** geistlich sterben würden durch Sünde (1. Mose 3,4). Der ursprüngliche Lehrer dieser Art von Botschaft war ___Gott ___Der Teufel
 
 210\. Sündige Eva bald nachdem sie diese erste Botschaft über Einmal Gerettet Immer Gerettet gehört hatte? ___Ja ___Nein
 
-211\. Is it true that Eve didn't die spiritually until after she heard, through a false teaching, that she would not die spiritually through sin? ___Ja ___Nein
+211\. Ist es wahr, dass Eva nicht geistlich starb, bis nachdem sie durch eine falsche Lehre hörte, dass sie durch Sünde nicht geistlich sterben würde? ___Ja ___Nein
 
 212\. Was bewirkte, dass sich Evas Verhalten, in Ungehorsam veränderte? ________________________________
 
@@ -493,7 +493,7 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 216\. War dieselbe Warnung hypothetisch oder wurde sie in Bezug auf eine sehr reale Gefahr zitiert, welche geschehen könnte? ___Hypothetisch ___Sehr reale Gefahr
 
-217\. If one accepts the teaching today that a Christian can't die spiritually through sin, is he dangerously deceived as Eve was immediately before she died spiritually? ___Ja ___Nein
+217\. Falls jemand heutzutage die Lehre akzeptiert, dass ein Christ durch Sünde nicht geistlich sterben könne, ist er dann gefährlich irregeführt wie Eva es war, unmittelbar bevor sie geistlich starb? ___Ja ___Nein
 
 218\. _Starb_ Adam auch geistlich als er sündigte (1. Mose. 2,17)? ___Ja ___Nein
 
@@ -513,7 +513,7 @@ Die Antworten auf diese Bibelfragen können leicht gefunden werden, indem du die
 
 226\. Ist es sicherer und besser an eine falsche Sicherheit zu glauben, oder an die beunruhigende Wahrheit? ___Falsche Sicherheit ___Beunruhigende Wahrheit
 
-227\. Paulus stellte eine Frage bezüglich Gnade, und beantwortete sie sodann. Er schrieb, "What shall we say then? Shall we continue in sin that grace may abound? Certainly not! . . ." (Rom. 6:1,2, NKJV). For Einmal Gerettet Immer Gerettet proponents to cite this passage to downplay the seriousness of sin or to teach that grace allows for continuous sin is a gross distortion of the word of God. ___Wahr ___Falsch
+227\. Paulus stellte eine Frage bezüglich Gnade, und beantwortete sie sodann. Er schrieb, "Was wollen wir nun sagen? Sollen wir in der Sünde verharren, damit das Mass der Gnade voll werde? Das sei ferne! ..." (Röm 6,1-2a; Schlachter1905). Für Vertreter von Einmal Gerettet Immer Gerettet, diese Passage zu zitieren, um die Ernsthaftigkeit von Sünde zu verharmlosen oder zu lehren, dass Gnade für kontinuierliche Sünde erlaubt, ist eine grobe Verzerrung des Wortes Gottes. ___Wahr ___Falsch
 
 228\. Röm. 5,5 besagt, dass Gott seine Liebe in eines Christen Herzen ausgegossen hat, aber kann Sünde Liebe kalt werden lassen (Mt. 24,12-13)? ___Ja ___Nein
 
@@ -549,7 +549,7 @@ Kann es sein, dass die **[einmal gerettet immer gerettet Denominationen](http://
 **EvangelicalOutreach.org**  
 **EternalLifeBlog.com**
 
-[**Contact Us Or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 **Evangelical Outreach**  
 **PO Box 265, Washington, PA 15301**

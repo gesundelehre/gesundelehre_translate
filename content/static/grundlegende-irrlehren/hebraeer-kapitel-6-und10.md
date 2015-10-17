@@ -1,5 +1,5 @@
 <!--t Hebräer Kapitel 6 und 10 - in Arbeit (0% übersetzt) t-->
-<!--d Hebräer Kapitel 6 und 10 - in Arbeit (0% übersetzt) d-->
+<!--d d-->
 
 Hebräer Kapitel 6 und 10
 
@@ -85,9 +85,9 @@ Besides the clarity of that phrase we also see the same people were once _enligh
 
 So when does a person become _enlightened_ or _illuminated_? According to Jn. 1:4, we read:
 
-> In Him was life, and **the life was the light of men** (Jn. 1:4, NKJV).
+> In ihm war Leben, und **das Leben war das Licht der Menschen.** (Johannes 1,4; Schlachter 1905)
 
-Notice, spiritual life is _the light_, which a true believer has.
+Beachte, geistliches Leben ist _das Licht_, welches ein wahrer Gläubiger hat.
 
 <big>**[Apostasy Occurs Among Christians](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/everyNTbook.htm)**</big>
 
@@ -284,4 +284,4 @@ The context of Jesus' teaching about **[eternal sin](http://gesundelehre.tk/forw
 
 <small>Click on the book</small>[![eternal security refuted](../files/pictures/BigBookFix.jpg)](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/dan-corner-the-believers-conditional-security.html)
 
-[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/contact.html)
+[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://evangelicaloutreach.org/contact.html)

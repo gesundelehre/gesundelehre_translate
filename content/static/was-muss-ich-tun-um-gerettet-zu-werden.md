@@ -34,7 +34,7 @@ Quelle: [www.evangelicaloutreach.org/plan-of-salvation.html](http://gesundelehre
 
 **_Was ist das Evangelium von Jesus Christus_? ANTWORT: Das _Evangelium von Jesus Christus_ ist das gleiche wie der _biblische Plan der Errettung_ und der biblische Plan der Errettung ist wie eine Person Vergebung für seine Sünden findet, wiedergeboren und eine neue Schöpfung/Kreatur in Christus wird. Unglücklicherweise gibt es viele [**falsche Evangelien**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/anothergospel.html) und verzerrte Errettungs Wahrheiten. Dies macht dieses Thema am wichtigsten. In der Tat, es gibt kein zweites Thema, das nahe an den biblischen _Plan der Errettung_ herankommt.** Obwohl der Begriff _Errettung/Heil_ auf verschiedene Art und Weise gebraucht werden kann, so bezieht er sich hier auf **_Befreiung von der Verdammung/Verurteilung in den Flammen der Hölle._** **Dies ist die einzige Art und Weise, wie dieser wichtige Begriff in dieser Unterrichtseinheit gebraucht werden wird.**
 
-[![plan der errettung der biblische plan der errettung]](../files/pictures/plan-of-salvation-verses.JPG)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/greatest-danger.html)
+[![plan der errettung der biblische plan der errettung](../files/pictures/plan-of-salvation-verses.JPG)](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/greatest-danger.html)
 
 <big><big>**[ACHTUNG: Plan der Errettung Warnung](#warning)**</big></big>
 

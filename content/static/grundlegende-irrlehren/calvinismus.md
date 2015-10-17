@@ -177,7 +177,7 @@ Click here to order [![This NO eternal security book is the dread of eternal sec
 
 [**Das Nie Gerettet Argument Scrutinized**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/neversavedargument.htm) 
 
-![was ist Calvinismus und wie widerlegt man ihn](../files/pictures/John-Calvins-Election.gif "what is Calvinismus and how to refute it") 
+![was ist Calvinismus und wie widerlegt man ihn](../files/pictures/John-Calvins-Election.gif "was ist Calvinismus und wie widerlegt man ihn") 
 
 [**Johannes Calvins Erwählung/Auserwählung (Election)** ](../files/pictures/John-Calvins-Election.pdf)**(pdf)**
 > For a person to say that a professing Christian was never saved, if he turns away from God to sin, is fallacious in at least 7 different areas. If you are a Christian, carefully ponder the following so you can help others see the dangerous folly of such a declaration. 
@@ -305,7 +305,7 @@ God bless you. Heb. 3:14.
 
 - [**Ewige Sicherheit oder Bedingte Sicherheit**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/eternal-security.html)
 
-[**Contact or Join Our Internet Church**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
+[**Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)
 
 [**Support Evangelical Outreach**](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/support.html)
 
@@ -381,7 +381,7 @@ In 1980, the year of Edwin H. Palmer's death, an enlarged edition of this same b
 
 **www.EternalLifeBlog.com**
 
-**[Contact Us Or Join Our Internet Church](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
+**[Kontaktiere Uns Oder Geselle Dich Zu Unserer Internetgemeinde](http://gesundelehre.tk/forwarder.php?url=http://www.evangelicaloutreach.org/contact.html)**
 
 **Evangelical Outreach**
 
